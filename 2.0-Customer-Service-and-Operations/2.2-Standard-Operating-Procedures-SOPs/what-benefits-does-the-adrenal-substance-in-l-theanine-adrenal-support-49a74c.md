@@ -1,0 +1,3 @@
+# What benefits does the adrenal substance in L-Theanine Adrenal Support provide?
+
+L-Theanine Adrenal Support - Argentinian Grass-Fed Desiccated Adrenal Substance (bovine) Argentinian grass-fed desiccated adrenal substance (bovine) is a glandular extract derived from the adrenal glands of cows raised on pasture in Argentina. Provides Adrenal-Specific Nutrients: Argentinian grass-fed desiccated adrenal substance (bovine) is a natural source of various compounds, including enzymes and peptides. Energy & Vitality: This ingredient may contribute to a sense of energy and vitality.

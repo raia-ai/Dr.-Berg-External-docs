@@ -1,0 +1,3 @@
+# Will the Electrolyte Powder break a fast?
+
+Dr. Berg Electrolyte Powder product contains minimal calories and carbohydrates. The amount will technically break a strict fast. This product should not be used if you are on a religious fast.However, for most other fasting situations, the minimal amount of calories and carbohydrates can be thought of as a speed bump while driving. The calories and carbs may momentarily slow a fast, but it will not stop the fasting progress or benefits. The benefits of electrolytes for hydration and mineral deficiency prevention outweigh the minor slowing of the fasting process.

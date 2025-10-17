@@ -1,0 +1,3 @@
+# Is vitamin B12 important?
+
+A huge percentage of the population is deficient in vitamin B12. A person deficient in vitamin B12 could experience irreversible damage, primarily to their nervous system and brain. A vitamin B12 deficiency could also lead to heart damage, anemia, depression, and other health issues. Vitamin B12 is in red meat and isn’t present in plants. A well-known cause of vitamin B12 deficiency is a lack of animal products in the diet. If someone is vegetarian or vegan, they need to take a natural vitamin B12 supplement.

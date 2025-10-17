@@ -1,0 +1,3 @@
+# What is the most effective treatment for hyperpigmentation?
+
+Some people also refer to hyperpigmentation as aging spots, dark spots, or liver spots. The liver doesn’t actually cause aging spots or liver spots. These spots are caused by too much melanin, which is a skin pigment. Certain things might cause you to notice more dark spots, including: • The summer months • Age • Diabetes • Pregnancy • Birth control • Hormone replacement therapy • Stresshttps://hls-player.drberg.com/asset?path=migrated-assets/how-to-get-rid-of-hyperpigmentation-aging-or-dark-spots

@@ -1,0 +1,3 @@
+# What does "cGMP facility" mean?
+
+A cGMP facility is a manufacturing facility that follows Current Good Manufacturing Practice (cGMP) regulations.Purpose Ensure the quality, purity, strength, and identity of productsPrevent contamination and mix-upsEnsure a hygienic environment for productionDesign and Maintenance Meet specific cleanliness and safety requirementsRegularly clean and sanitize all surfacesConduct risk assessments to identify potential sources of contamination

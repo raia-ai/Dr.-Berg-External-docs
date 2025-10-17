@@ -1,0 +1,3 @@
+# What is the emotional symptom of low blood sugar?
+
+High blood sugar - anger. Low blood sugar is anxiety, worry, nervous. There's shades of in between, but when your blood sugar is low you get anxiety and you get nervous or you get worried. And that's why a little bit of nutritional yeast or B1 just completely clears it up because that really can help you with your blood sugars. Potassium can help too but B1 is the one.

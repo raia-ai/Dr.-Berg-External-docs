@@ -1,0 +1,3 @@
+# What are the side effects of eating unhealthy food and what to eat instead?
+
+13 Top Sources of Calories in the United States: 1. Grain-based desserts 2. Bread 3. Chicken 4. Soda, Energy Drinks, Sports Drink 5. Pizza 6. Pasta 7. Mexican Dishes 8. Beef Dishes 9. Dairy Desserts 10. Burgers 11. Regular Cheese 12. Potato and Corn Chips 13. Alcohol Side Effects of Unhealthy Foods: • Tired • Swollen Eyes • Fluid Retention • High Blood Pressure • Cravings • Hungry • Grouchy and Irritable • Belly FatWhat to Eat:• Pasture-raised eggs • Fish / sea food / sardines • Avocados • Greens / veggies • Grass-fed meats / dairy • Olives / olive oil • Nuts • Berries Many of the worst foods that you should avoid can be replaced with similar healthy alternative foods on a ketogenic diet.

@@ -1,0 +1,3 @@
+# Why am I not detecting ketones in my urine while on a ketogenic diet?
+
+Urine strips test excess ketones in your urine, and it could be that you are not burning up all of your ketones.There are 3 different types of ketones in urine: acetate, acetoacetate and beta- hydroxybutyrate, but the only one tested in urine is acetoacetate.Additionally, if your body is switching from using glucose fuel to using ketones, it becomes more efficient at burning those ketones so you are less likely to see any in your urine. This normally happens once you have fully adapted to keto and have been doing it for over 2 months.https://hls-player.drberg.com/asset?path=migrated-assets/in-ketosis-but-no-ketones-in-urine-drberg-answers-why

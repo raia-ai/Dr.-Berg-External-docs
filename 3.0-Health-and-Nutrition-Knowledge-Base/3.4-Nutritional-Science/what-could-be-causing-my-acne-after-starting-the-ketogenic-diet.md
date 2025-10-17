@@ -1,0 +1,5 @@
+# What could be causing my acne after starting the ketogenic diet?
+
+Acne development after initiating a ketogenic diet may indicate that the version of keto you're following is not optimal or that you might be lacking certain essential nutrients. Generally, when adhering to a well-balanced and nutritious ketogenic diet, individuals often see an improvement in skin condition, including a reduction in acne.
+
+One crucial nutrient for preventing acne is vitamin A. The synthetic version of vitamin A, such as Accutane, is used in severe cases, but it is advisable to focus on natural sources instead. Foods rich in retinol, such as egg yolks, liver, and butter, as well as certain dairy products like cheese, can significantly contribute to your vitamin A intake. It's important to note that the form of vitamin A found in animal products is more effective for skin health than the provitamin A found in plant sources. If acne persists, it may be beneficial to consult a healthcare professional for personalized recommendations.

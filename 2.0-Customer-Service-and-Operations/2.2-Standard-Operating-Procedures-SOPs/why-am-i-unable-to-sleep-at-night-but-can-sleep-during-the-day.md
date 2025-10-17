@@ -1,0 +1,3 @@
+# Why am I unable to sleep at night but can sleep during the day?
+
+Misaligned wake-sleep cycles can delay daily melatonin release, making it difficult to fall asleep. This can lead to insomnia and a lack of restful and rejuvenating sleep, which typically induces daytime sleepiness. Shift work, an inconsistent sleep schedule, insulin resistance due to a high-carb diet, and consuming caffeine or alcohol close to bedtime can disrupt your internal body clock and misalign your circadian rhythm, making you sleepy during the day.

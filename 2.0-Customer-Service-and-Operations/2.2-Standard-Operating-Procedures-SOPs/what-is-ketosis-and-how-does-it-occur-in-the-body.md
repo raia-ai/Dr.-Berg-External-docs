@@ -1,0 +1,3 @@
+# What is ketosis, and how does it occur in the body?
+
+Ketosis is a unique metabolic state that allows your body to run on ketones (fat) instead of glucose (sugar). You can get into ketosis by reducing your carbohydrate consumption to 20 to 50 grams per day—this is known as a ketogenic diet. Keto is the best way to restore insulin sensitivity and lose weight. Learn more about ketosis here:https://www.youtube.com/embed/s5w-PyeJOrs

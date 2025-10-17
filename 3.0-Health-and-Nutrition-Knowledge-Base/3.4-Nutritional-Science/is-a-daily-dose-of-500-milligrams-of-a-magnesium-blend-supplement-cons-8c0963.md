@@ -1,0 +1,3 @@
+# Is a daily dose of 500 milligrams of a magnesium blend supplement considered excessive, and what are the potential risks or benefits of this dosage?
+
+No, It's not too much. Just make sure also that you're taking the other minerals too, because they all work together, especially with potassium, magnesium, calcium, magnesium, but I wouldn't take any calcium.You can normally get that from the diet. So I think also vitamin D is important with magnesium. They both need each other for, for optimum function.

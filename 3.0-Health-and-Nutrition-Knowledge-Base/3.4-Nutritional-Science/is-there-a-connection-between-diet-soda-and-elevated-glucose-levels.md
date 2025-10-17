@@ -1,0 +1,3 @@
+# Is there a connection between diet soda and elevated glucose levels?
+
+I believe artificial sweeteners can have an indirect impact on health, particularly through their effects on the microbiome. Alterations in the microbiome can lead to insulin resistance and various issues related to blood sugar regulation. Therefore, it is reasonable to conclude that artificial sweeteners may contribute to these metabolic concerns.

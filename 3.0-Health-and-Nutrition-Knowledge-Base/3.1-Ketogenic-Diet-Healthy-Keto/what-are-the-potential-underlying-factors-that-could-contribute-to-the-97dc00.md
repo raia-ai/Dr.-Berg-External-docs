@@ -1,0 +1,3 @@
+# What are the potential underlying factors that could contribute to the cessation of my menstrual cycle?
+
+The term you're looking for is "metabolomics," which allows for an in-depth analysis of your biochemical processes, providing a wealth of information beyond what standard blood tests can offer. If you're considering a hormone test, it might help identify any imbalances that could be affecting your menstrual cycle. If you’re following a healthy ketogenic diet and ensuring you’re getting all the necessary nutrients, you shouldn't experience such issues. However, it's crucial to evaluate the specific foods in your diet to ensure they are nutrient-dense. A more comprehensive understanding of your eating habits would be necessary for a thorough assessment.

@@ -1,0 +1,7 @@
+# What can I do if I'm overthinking 24/7?
+
+Overthinking can trigger cortisol, which equals more stress. Stress hormones will continue to stress you out, leaving you trapped in a vicious cycle of anxious thoughts that can be very difficult to break out of.
+
+Most of the time, anxiety and overthinking can be fixed by addressing nutritional imbalances, but people are often prescribed SSRIs. These drugs block the reabsorption of serotonin and come with several side effects. They can downgrade the receptor for serotonin, which can cause a major deficiency in serotonin. Drugs, chronic stress, junk food, lack of sun, and vitamin D can deplete your serotonin and dopamine. Many people get the blues during the winter months because of a lack of vitamin D from the sun. Vitamin D deficiency can lead to anxiety and depression. Research has shown that vitamin D may produce the same results as a medication for depression without the side effects!
+
+The health of your microbiome directly affects your mental health. The microbes that help increase serotonin are very sensitive to broad-spectrum antibiotics. To stop overthinking and improve your mental health, you’ll want to take at least 10,000 IU of vitamin D each day. You also need the microbes that make serotonin! L. reuteri affects serotonin more than any other microbe, yet over 96% of the population is deficient! The best way to fix this problem is to make your own probiotic yogurt using L. reuteri. This microbe can help decrease anxiety, increase oxytocin, and significantly reduce cortisol.

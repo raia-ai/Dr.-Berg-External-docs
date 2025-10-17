@@ -1,0 +1,3 @@
+# What are the risk factors for gallstone formation?
+
+### Risk factors for gallstone formation include obesity, rapid weight loss, high-carbohydrate low-fiber diets, prolonged fasting, sedentary lifestyle, nutrient deficiencies, and certain medications like estrogen and cholesterol-lowering drugs. Awareness of these factors can help you make informed choices to support gallbladder health and reduce the risk of gallstones.

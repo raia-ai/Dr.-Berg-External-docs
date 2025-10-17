@@ -1,0 +1,5 @@
+# What are the most effective natural strategies for managing and alleviating the symptoms associated with a hiatal hernia?
+
+I think the hiatal hernia originally came from a weakness within some of the supporting connective tissue around in your abdomen. And so in that case there's a couple of things that I would look at. I would check your vitamin C because vitamin C deficiency can affect collagen support and strength of collagen itself and the fascia. And then also check the acid in the stomach because many people with hiatal hernia have a low stomach acid and they can't break down the amino acids. So you don't get the benefit of the complete amino acids into the tissues. Taking betaine hydrochloride, maybe five or six before you eat might just help you with that.
+
+In the meantime, there's some great stretch type acupressure type treatments you can do for hiatal hernia. But you have to type in Dr. Berg hiatal hernia for many of the topics that you want to research, because unfortunately, they're ranking now more(22:49) medical sites than alternative sites.

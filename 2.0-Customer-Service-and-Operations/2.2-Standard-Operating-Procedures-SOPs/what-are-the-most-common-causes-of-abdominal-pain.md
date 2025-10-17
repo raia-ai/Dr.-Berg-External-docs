@@ -1,0 +1,3 @@
+# What are the most common causes of abdominal pain?
+
+A few lesser-known causes that can lead to abdominal pain are:1. Low hydrochloric acid2. A bile deficiency3. A problem with the pancreas4. A lack of enzymes5. A lack of friendly bacteriaOther common abdominal pain causes include:• Food allergies• An intolerance to certain foods• Sensitivities to certain foods• Enzyme inhibitors• Antinutrients• Inflammatory foods• Synthetic fibershttps://hls-player.drberg.com/asset?path=migrated-assets/the-real-cause-of-abdominal-pain-and-bloating-drberg

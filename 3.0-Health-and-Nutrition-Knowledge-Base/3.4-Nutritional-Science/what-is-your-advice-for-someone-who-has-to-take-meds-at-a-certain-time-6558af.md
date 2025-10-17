@@ -1,0 +1,3 @@
+# What is your advice for someone who has to take meds at a certain time while doing IF?
+
+If you're taking medication while practicing intermittent fasting, it's crucial to prioritize liver and kidney health. While specific timing for medication intake varies, supporting your body with protective nutrients like milk thistle is beneficial. Milk thistle contains powerful phytonutrients that help mitigate the potential side effects of medications by reducing free radical damage and toxicity. This plant is well-known for its ability to protect against various toxins, making it a valuable supplement for those on medication.

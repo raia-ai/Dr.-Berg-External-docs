@@ -1,0 +1,3 @@
+# How do I know if I'm drinking too much water?
+
+Excessive water intake can dilute sodium levels, leading to a dangerous condition called hyponatremia. It's important to drink appropriate amounts to stay hydrated without overdoing it. While some individuals may need more water to prevent hypercalcemia or kidney stones, generally, it's best to drink according to your hydration needs rather than forcing large quantities.

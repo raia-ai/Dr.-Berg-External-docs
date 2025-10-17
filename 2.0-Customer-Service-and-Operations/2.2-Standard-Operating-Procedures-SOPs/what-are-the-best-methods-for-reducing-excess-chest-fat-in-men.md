@@ -1,0 +1,3 @@
+# What are the best methods for reducing excess chest fat in men?
+
+Man boobs come from to too much estrogen, which could stem from your own fat on your body. There is an enzyme called aromatase, which will convert testosterone to estrogen. This could come from a bad liver. If the liver becomes scarred developing cirrhosis or a fatty liver then the liver could produce more estrogen.Cirrhosis: Serrapeptase Fatty Liver: Choline Estrogen Reducers: Stinging Nettle Roothttps://hls-player.drberg.com/asset?path=migrated-assets/men-estrogen-weight-gain-man-boobs-drberg

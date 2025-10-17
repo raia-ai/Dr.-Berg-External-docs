@@ -1,0 +1,3 @@
+# What techniques can help you fall asleep quickly and enhance sleep quality?
+
+Dr. Berg discusses the key factors that help you sleep fast:1. Keeping your room dark - this triggers melatonin,.2. Avoid watching TV before bed.3. Can't get to sleep - use remedies for the adrenal.4. Too much energy - you need to exercise.5. Digestion - use remedies based on your problem.https://hls-player.drberg.com/asset?path=migrated-assets/youtube-videos-5-foods-that-improve-sleep-quality

@@ -1,0 +1,3 @@
+# How to detoxify fatty liver?
+
+MTHFR gene, known as the detox gene. It's involved in creating neurotransmitters and in hormonal regulation.If you have a genetic mutation of the MTHFR gene, a typical detox won't help you very much. You have to have a very clean lifestyle. With this mutation, your liver could have a difficult time just getting rid of things like alcohol or caffeine. But there are things you can do to help this gene work correctly. First off, you should avoid synthetic, enriched, and fortified foods and supplements.The best things to support detoxification if you have a mutation of the MTHFR gene: 1. Methylfolate 2. Methylcobalamin 3. Choline 4. Natural B vitamin complex (nutritional yeast) 5. Magnesium (leafy greens) 6. Cruciferous vegetables

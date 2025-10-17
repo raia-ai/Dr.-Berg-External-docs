@@ -1,0 +1,3 @@
+# What benefits does potassium citrate provide in the Electrolyte Powder?
+
+Potassium (from potassium citrate): Potassium citrate, as an ingredient in electrolyte powder, may offer the following benefits contributing to overall well-being: Support for Hydration: Potassium is an essential electrolyte that works with sodium to maintain fluid balance in the body. Blood Pressure: Potassium is an essential mineral that plays a role in maintaining healthy blood pressure. Muscle Function: Potassium is a key nutrient that supports various bodily functions, including muscle function.

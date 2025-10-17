@@ -1,0 +1,3 @@
+# Is it normal to have loose, watery stools during a 48-hour fast?
+
+No, it's not normal. And there's obviously probably something going on with your microbes, that there's some imbalance. And sometimes if you actually do a first fast and you haven't done it before so what can happen is these microbes are so used to getting fed and all of a sudden you don't feed them. What I would probably recommend is to take a probiotic. Take something that survives the stomach acid too. Kefir is a good natural probiotic as well.

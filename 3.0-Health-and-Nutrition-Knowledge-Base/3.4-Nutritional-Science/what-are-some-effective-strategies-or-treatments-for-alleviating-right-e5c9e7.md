@@ -1,0 +1,3 @@
+# What are some effective strategies or treatments for alleviating right shoulder pain?
+
+For right-shoulder pain and gallbladder discomfort, consider taking purified bile salts. Use a gallbladder formula with food and on an empty stomach. Taking two doses on an empty stomach twice a day can help open the bile ducts and improve bile flow. Apple cider vinegar can also increase bile production, but starting with additional bile salts may be beneficial.

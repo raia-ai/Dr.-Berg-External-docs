@@ -1,0 +1,3 @@
+# Does drinking alcohol kick you out of Ketosis?
+
+Yes, drinking alcohol can kick you out of ketosis. Your body perceives ethanol as a poison, and your liver prioritizes alcohol detoxification which stops your metabolism from converting fatty acids into ketones. And, what’s more, alcohol can trigger powerful carb cravings, and you may find it hard to resist enticing carb-rich foods while under the influence.

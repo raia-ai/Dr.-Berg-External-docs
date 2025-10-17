@@ -1,0 +1,3 @@
+# Why do overweight individuals struggle with losing fat?
+
+This is because of insulin resistance. All 6 fat burning is blocked in the presence of insulin. If you are overweight, then you've had insulin resistance for quite some time and insulin now is very resistant - when this happens it stays high. This high insulin will now make it very difficult to get the weight off. If your insulin is normal, the weight will come off easily - this is the only difference between someone who is able to lose weight easily or has a hard time with it. https://hls-player.drberg.com/asset?path=migrated-assets/weight-loss-problem-overweight-people-have-hard-time-losing-fat-drberg

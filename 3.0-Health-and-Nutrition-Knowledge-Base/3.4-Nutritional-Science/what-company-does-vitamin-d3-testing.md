@@ -1,0 +1,3 @@
+# What Company Does Vitamin D3 Testing?
+
+Grass Roots Health: [https://daction.grassrootshealth.net/product/vitamin-d-home-test-kit/?refId=drberg&utm\_source=youtube&utm\_medium=description\_link&utm\_campaign=https://youtu.be/Sn7T46fCjLE](https://daction.grassrootshealth.net/product/vitamin-d-home-test-kit/?refId=drberg&utm_source=youtube&utm_medium=description_link&utm_campaign=https://youtu.be/Sn7T46fCjLE) and [https://www.grassrootshealth.net/important-thing-know-vitamin-d/?refId=drberg&utm\_source=youtube&utm\_medium=description\_link&utm\_campaign=https://youtu.be/Sn7T46fCjLE](https://www.grassrootshealth.net/important-thing-know-vitamin-d/?refId=drberg&utm_source=youtube&utm_medium=description_link&utm_campaign=https://youtu.be/Sn7T46fCjLE)

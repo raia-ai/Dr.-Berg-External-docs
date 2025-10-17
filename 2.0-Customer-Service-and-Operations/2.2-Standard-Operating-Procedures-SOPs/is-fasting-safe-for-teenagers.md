@@ -1,0 +1,3 @@
+# Is fasting safe for teenagers?
+
+While it is commonly said that fasting is unhealthy for teenagers, but as long as you get approval from a medical professional first, teens can actually gain many benefits from fasting. Such benefits include improved cognitive function, mood elevation, weight loss, and the elimination of acne.Start your teen fasting by skipping breakfast, and slowly pushing the first meal of the day later and later until they have a reasonable fasting window. Make sure that when they do eat, the food is nutrient-rich, so that they continue healthy development and find fasting easy.https://hls-player.drberg.com/asset?path=migrated-assets/can-teens-do-fasting-drberg-on-intermittent-fasting

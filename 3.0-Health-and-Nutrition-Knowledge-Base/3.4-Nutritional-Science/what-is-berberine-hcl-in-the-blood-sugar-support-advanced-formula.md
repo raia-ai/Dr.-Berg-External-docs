@@ -1,0 +1,3 @@
+# What is Berberine HCL in the Blood Sugar Support Advanced Formula?
+
+Berberine HCl (hydrochloride) in our Blood Sugar Support Advanced Formula is a form of berberine that’s easier for the body to absorb. Berberine is a natural compound found in plants and is often used to support healthy blood sugar levels and overall metabolic health. The “HCl” means it’s bound with hydrochloride to improve stability and absorption—it’s still the same active berberine.

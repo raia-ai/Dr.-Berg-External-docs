@@ -1,0 +1,3 @@
+# Is it possible to effectively detoxify the body through the skin, and what biological processes facilitate the elimination of toxins via this method?
+
+While the skin can eliminate certain toxins via sweat, the liver and kidneys process and remove the majority of toxins via the stool and urine. However, promoting healthy skin function in combination with activities such as saunas or hot baths can support skin-related detoxification processes.

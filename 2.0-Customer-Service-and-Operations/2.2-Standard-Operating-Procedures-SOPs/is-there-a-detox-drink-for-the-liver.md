@@ -1,0 +1,3 @@
+# Is there a detox drink for the liver?
+
+Keep in mind that the ketogenic diet and intermittent fasting can help remove fat from the liver. I believe this is essential if you have a fatty liver. A great shake to keep fat off the liver: Ingredients (organic if possible): • 2 cups kale (frozen) • 1 cup blueberries (frozen) • 1 cup water • 1 cup plain whole-milk kefir (organic and grass-fed if possible)Instructions: Blend all of the ingredients in a blender for a couple of minutes. Drink once a day in combination with a Healthy Keto diet and intermittent fasting.https://hls-player.drberg.com/asset?path=migrated-assets/drink-1-cup-per-day-to-remove-fat-from-your-liver-drberg

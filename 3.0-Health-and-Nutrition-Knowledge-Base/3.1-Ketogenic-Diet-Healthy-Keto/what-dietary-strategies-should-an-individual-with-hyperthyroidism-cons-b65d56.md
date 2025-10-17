@@ -1,0 +1,3 @@
+# What dietary strategies should an individual with hyperthyroidism consider to manage their condition?
+
+For someone with hyperthyroidism, I recommend a healthy version of the ketogenic diet with a few adjustments. Increase your intake of vitamin B1 and vitamin D3, as hyperthyroidism is often autoimmune-related. Avoid bile salts, as they can accelerate thyroid function, and steer clear of iodine or sea kelp. These general tips can help manage hyperthyroidism effectively.

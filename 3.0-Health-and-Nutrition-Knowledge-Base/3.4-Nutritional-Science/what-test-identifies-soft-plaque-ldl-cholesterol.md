@@ -1,0 +1,5 @@
+# What test identifies soft plaque LDL cholesterol?
+
+A CAC test gives you a score of how much plaque you have in your arteries. This test primarily detects calcified plaque, so the score usually won’t reflect soft plaque. The CAC paradox is a phenomenon that occurs after you clean up your diet and get healthy, but your CAC score rises. This doesn't mean your plaque is getting worse. It means that some of your soft plaque has stabilized and become hard plaque. Soft plaque is associated with glycation and more oxidation of the LDL. There are 2 types of LDL: small-dense pathogenic LDL and large-buoyant non-pathogenic LDL. **Myeloperoxidase and Lp-PLA2** both signify soft plaque on a blood test. An ultrasound can also detect soft plaque.
+
+Here’s how to determine whether you have small dense LDL or large buoyant LDL. Divide the LDL by ApoB—the part of the lipoprotein that indicates the number of particles. You want your result to be greater than 1.2. This indicates large buoyant LDL.

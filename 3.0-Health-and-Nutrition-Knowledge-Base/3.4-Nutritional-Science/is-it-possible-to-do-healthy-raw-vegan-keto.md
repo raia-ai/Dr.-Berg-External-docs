@@ -1,0 +1,3 @@
+# Is it possible to do healthy raw vegan keto?
+
+Achieving ketosis while adhering to a vegan diet is indeed feasible, albeit more challenging. The primary difficulty lies in balancing macronutrients, particularly in obtaining sufficient fat and complete protein sources. Adequate intake of nutrients like zinc, typically found in animal products, may require careful attention and supplementation from alternative plant-based sources. Similarly, obtaining the active form of vitamin A, such as retinol, and essential omega-3 fatty acids can pose challenges and necessitate strategic dietary planning.

@@ -1,0 +1,7 @@
+# Who shouldn't do intermittent fasting?
+
+Certain individuals should avoid intermittent fasting due to specific health conditions. Pregnant women should maintain a nutrient-dense diet with three meals a day without restricting calories. Nursing mothers must ensure they receive all necessary nutrients to avoid deprivation. Individuals with neurodegenerative conditions, such as Alzheimer’s or Parkinson’s, should consume three meals daily with a low carbohydrate intake. Babies and small children should avoid sweets and maintain regular meals.
+
+Those with eating disorders like anorexia and bulimia should also refrain from intermittent fasting. For people with hypoglycemia, intermittent fasting can be beneficial if introduced gradually with nutrient-dense foods to stabilize blood sugar levels. Anxiety can decrease with intermittent fasting as it supports adrenal gland function, and it can also improve sleep disorders by enhancing brain health and reducing the need for sleep. Women with hormonal issues, including PCOS, may benefit from intermittent fasting due to its positive effects on hormone regulation.
+
+ [See Video/Image/Document](https://hls-player.drberg.com/asset?path=migrated-assets/5-types-of-people-who-should-not-do-intermittent-fasting-drberg)

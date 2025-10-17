@@ -1,0 +1,3 @@
+# How can you tell if you're in fat-burning mode?
+
+A key indicator that you're in fat-burning mode is a noticeable reduction in appetite, especially between meals. If you find that you can go long periods without feeling hungry, it's a strong sign that your body is efficiently burning fat for energy. Conversely, if you constantly need to eat every few hours, it's likely you're still relying on sugar rather than fat as your primary fuel source.

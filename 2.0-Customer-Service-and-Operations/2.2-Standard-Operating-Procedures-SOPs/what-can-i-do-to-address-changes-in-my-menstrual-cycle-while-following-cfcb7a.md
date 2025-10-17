@@ -1,0 +1,3 @@
+# What can I do to address changes in my menstrual cycle while following a ketogenic diet?
+
+If you're experiencing changes in your menstrual cycle while following a ketogenic diet, it’s important to ensure that you are consuming adequate calories and the appropriate amount of carbohydrates. Additionally, if you are engaging in intense exercise, consider reducing the intensity or frequency of your workouts as your body adjusts to this dietary shift. These adjustments can help support hormonal balance and promote regularity in your menstrual cycle.https://hls-player.drberg.com/asset?path=migrated-assets/the-ketogenic-diet-women-hormones-hormonal-imbalance-in-women-on-keto-drberg

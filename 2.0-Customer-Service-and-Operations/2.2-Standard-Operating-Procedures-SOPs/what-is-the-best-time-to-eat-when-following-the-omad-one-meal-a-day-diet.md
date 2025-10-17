@@ -1,0 +1,3 @@
+# What is the best time to eat when following the OMAD (One Meal A Day) diet?
+
+While you can eat at any time of the day, late afternoons or early evenings are often the best times to eat OMAD. Eating later in the day aligns with social norms, and you can enjoy a meal with friends and family. https://hls-player.drberg.com/asset?path=migrated-assets/when-is-the-best-time-to-do-omad-one-meal-a-day-drberg-on-intermittent-fasting

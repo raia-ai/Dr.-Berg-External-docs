@@ -1,0 +1,3 @@
+# Why do some skinny people not gain weight?
+
+Dr. Berg talks about skinny person who is eating junk food and sugar, yet because they are not fat thinks they can eat whatever they want. However, if you do a blood profile, you will find they have cholesterol problems, high A1C, prediabetic, etc. Yet they have a fast metabolism that can burn up lots of sugar. So they burn up fat but they can't break down the cholesterol. Cholesterol is not used as fuel. Overweight people and obese type 1 live longer. Being overweight is one aspect that forces people to change as compared to a skinny person who may not be as motivated. https://hls-player.drberg.com/asset?path=migrated-assets/why-some-skinny-people-dont-gain-weight-drberg

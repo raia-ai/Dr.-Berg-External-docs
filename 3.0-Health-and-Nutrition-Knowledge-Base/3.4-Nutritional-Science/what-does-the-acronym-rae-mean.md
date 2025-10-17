@@ -1,0 +1,3 @@
+# What does the acronym "RAE" mean?
+
+The term "RAE" refers to the amount of vitamin A. The acronym "RAE" stands for Retinol Activity Equivalents, which is a unit of measurement for vitamin A activity in food and dietary supplements. This unit takes into account the different bioactivities of retinol and provitamin A carotenoids, all of which are converted by the body into the active form of vitamin A. Dr. Berg's Cod Liver Oil Capsules, each serving provides 1062 mcg RAE of Vitamin A. This amount is equivalent to 118% of the recommended daily intake of vitamin A.

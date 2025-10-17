@@ -1,0 +1,3 @@
+# Is eating sea kelp beneficial for your health?
+
+Sea kelp is beneficial due to its rich nutrient profile containing iodine, vitamins, and trace minerals.Incorporating moderate amounts of dried flakes or powder into meals can help improve metabolism and immune system function while supporting hormonal balance and overall wellness.The high concentration of iodine in seaweed supports healthy thyroid function, which is crucial in regulating hormone production throughout the endocrine system.

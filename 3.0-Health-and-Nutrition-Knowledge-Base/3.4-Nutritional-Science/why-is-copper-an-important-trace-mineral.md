@@ -1,0 +1,3 @@
+# Why is copper an important trace mineral?
+
+The trace mineral copper is crucial for the proper management of iron in the body. Excess iron can be problematic as the body has limited means to excrete it, potentially leading to accumulation and damage to organs. While menstruating females are less susceptible to overload due to blood loss, copper is necessary for keeping iron in its proper place. In fact, some instances of anemia, commonly linked to iron deficiency, may actually stem from impaired iron handling caused by a deficiency in copper, highlighting copper's vital regulatory role.

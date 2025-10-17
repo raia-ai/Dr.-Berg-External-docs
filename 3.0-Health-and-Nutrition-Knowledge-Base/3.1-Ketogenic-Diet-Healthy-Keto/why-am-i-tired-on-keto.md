@@ -1,0 +1,7 @@
+# Why am I tired on Keto?
+
+Many of my patients ask me why they feel lethargic and fatigued when they go into ketosis. First, let’s talk about what ketosis is. On a ketogenic diet, you switch from using sugar as your primary fuel source to using fat. The purpose of fat is to protect the body from starving of sugar. So when you eliminate sugar, you naturally start burning fat. Most people don’t start burning fat reserves because they have a little too much sugar or carbs in their diet. You have to starve the body of sugar to really get into ketosis. To break down fat and turn it into fuel, your body now has to create new enzymes. This can take between three days and two weeks. There’s one nutrient that helps with this process. Without it, you are going to feel fatigued and lethargic. This nutrient is vitamin B5. This is a helper vitamin that boosts the metabolism of fat. Vitamin B5 also supports the adrenal glands, which helps with adrenal fatigue.
+
+If you are tired on keto, grab some vitamin B5 from the health foods store and see how it affects your energy levels.
+
+ [See Video/Image/Document](https://hls-player.drberg.com/asset?path=migrated-assets/why-are-you-tired-on-keto-keto-diet-fatigue-explained-by-drberg)

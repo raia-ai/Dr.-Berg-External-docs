@@ -1,0 +1,3 @@
+# Why can a vitamin D deficiency lead to hair loss?
+
+Vitamin D regulates many aspects of the hair growth cycle, promotes hair follicle health, and modulates sebaceous gland functions. Lack of adequate vitamin D can lead to disrupted hair follicle regeneration, thinning of hair, and excessive shedding. In addition, vitamin D deficiency can increase the risk of autoimmune responses and lead to the development of alopecia areata, an autoimmune hair disorder characterized by partial or complete loss of body hair.

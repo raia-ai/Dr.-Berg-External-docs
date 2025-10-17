@@ -1,0 +1,3 @@
+# What is the most common deficiency associated with migraines?
+
+Migraines cause severe pain, hypersensitivity to smells, sounds, and light, and can lead to nausea and vomiting. While migraines can be genetic, understanding epigenetic factors can help manage them. One key factor is under-functioning mitochondria, often linked to riboflavin (vitamin B2) deficiency, which is crucial for mitochondrial function and glutathione production.What to Do:- Preventive: Take 400 mg of vitamin B2 daily.- During a Migraine: Take 100 mg of vitamin B2 every hour until symptoms subside, not exceeding 400 mg per day.- Additional Tips: Increase sea salt intake for sodium, and try ginger or turmeric for relief if B2 doesn’t help.

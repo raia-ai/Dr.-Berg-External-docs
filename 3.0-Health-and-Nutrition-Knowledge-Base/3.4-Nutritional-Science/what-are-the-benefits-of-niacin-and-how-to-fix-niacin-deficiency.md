@@ -1,0 +1,5 @@
+# What are the benefits of Niacin and how to fix Niacin deficiency?
+
+**Benefits of Niacin:** Niacin is a precursor to NAD, which helps extract electrons from foods. This allows you to get more energy from the food that you eat. Vitamin B3 helps support something known as sirtuins, which support longevity and DNA repair. L-tryptophan can convert to niacin, serotonin, and melatonin! Niacin is very beneficial for skin health and conditions like acne and psoriasis. A niacin deficiency can cause very dry, scaly skin. The form of niacin known as niacinamide can help with inflammatory conditions like arthritis. Niacin also supports healthy levels of LDL and HDL cholesterol. It was very popular before the development of statins.
+
+**Where to get it:** Animal protein and organ meats are the best sources of niacin. You can also get niacin from spirulina and nutritional yeast, but look for nutritional yeast that does not have added synthetic vitamins. There is a tremendous amount of research on niacin and cholesterol, the heart, and mood disorders like schizophrenia, depression, and bipolar disorder.

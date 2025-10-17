@@ -1,0 +1,3 @@
+# What strategies can help increase fiber intake on a ketogenic diet?
+
+To enhance fiber consumption on a ketogenic diet, it is advisable to focus on vegetables rather than grains. Grains can pose issues due to their higher glycemic index, gluten content, and the presence of phytic acid, which may inhibit nutrient absorption. Vegetables provide an excellent source of dietary fiber that supports gut health, as beneficial microbes thrive on vegetable fiber. Therefore, prioritizing fiber from vegetables is the most effective strategy for meeting your fiber needs while adhering to a ketogenic diet.

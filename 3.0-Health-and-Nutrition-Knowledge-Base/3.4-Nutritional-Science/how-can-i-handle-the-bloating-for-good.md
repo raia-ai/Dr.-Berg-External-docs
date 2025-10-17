@@ -1,0 +1,7 @@
+# How can I handle the bloating for good?
+
+Ninety percent of digestion occurs in the small intestine, where bile and secondary bile salts made by your microbes break down your food. The large intestine, small intestine, and pancreas release enzymes to aid digestion. Around 20% of these enzymes are made by your microbes. Bloating is caused by a problem with digestion. The type, amount, and diversity of your gut bacteria directly affect bloating. This often depends on if you’ve taken antibiotics and how much you’ve taken over time.
+
+Broad-spectrum antibiotics significantly reduce your microbes, and they do not come back! If you’re missing any of your gut microbes, you’ll experience bloating, gas, burping, constipation, and more. Other chemicals in the environment that mimic antibiotics can also cause a bloated belly. Glyphosate, birth control pills, steroids, anti-depression medications, PPIs, artificial sweeteners, fluoride, and statins can all contribute to bloating.
+
+So many people can not properly digest food anymore because they don’t have all of their microbes in sufficient quantities. A high-quality probiotic is a great solution to bloating. Along with probiotics, consume fermented foods regularly, such as kefir, yogurt, sauerkraut, and pickles. Apple cider vinegar and kombucha can also help awaken dormant microbes by acidifying their environment. These microbes help support your bile and enzymes, helping you digest food, which takes stress off your organs.

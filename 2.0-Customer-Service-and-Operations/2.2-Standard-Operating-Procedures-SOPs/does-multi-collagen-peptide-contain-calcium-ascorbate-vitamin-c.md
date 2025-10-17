@@ -1,0 +1,3 @@
+# Does Multi Collagen Peptide contain Calcium Ascorbate (Vitamin C)?
+
+Dr. Berg's Multi Collagen Peptide includes calcium ascorbate, a gentler, buffered form of Vitamin C that not only supports collagen production and acts as a powerful antioxidant to protect against free radical damage but also enhances the absorption of collagen peptides while contributing to connective tissue and bone health through its calcium content.

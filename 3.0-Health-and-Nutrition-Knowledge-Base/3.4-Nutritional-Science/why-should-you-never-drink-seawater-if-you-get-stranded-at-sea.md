@@ -1,0 +1,3 @@
+# Why should you never drink seawater if you get stranded at sea?
+
+It will actually cause dehydration because of the high salt levels. Because what happens is you're doing this concentrated salt and you are literally pulling any and all water out of your system. And your kidneys can't help but get rid of the salt. The little bit of water you have left. So basically you accelerate the death process. You accelerate your dehydration problem.

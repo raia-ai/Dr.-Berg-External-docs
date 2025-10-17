@@ -1,0 +1,3 @@
+# What are the shipping transit times?
+
+Shipping transit times vary depending on your location and chosen shipping method.Domestic transit times:• UPS SurePost: 2 to 3 business days• UPS Ground: 1 to 2 business daysInternational transit times:• Canada: 2 business days• Europe: 3 to 4 business days• Asia and Latin America: 4 to 5 business daysInternational shipping delivery times may vary and are out of our control. It can take 6 to 8 weeks, or longer, depending on your country’s rules and regulations.

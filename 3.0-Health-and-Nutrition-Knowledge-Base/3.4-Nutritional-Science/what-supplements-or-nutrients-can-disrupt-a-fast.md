@@ -1,0 +1,3 @@
+# What supplements or nutrients can disrupt a fast?
+
+Supplements that can disrupt a fast typically include those with significant caloric content, such as protein powders (e.g., whey protein) and sugary vitamin drinks. In contrast, most vitamins and minerals without added calories, sugar, or protein generally do not interfere with fasting. To maintain the integrity of your fast, avoid supplements that contain these ingredients.

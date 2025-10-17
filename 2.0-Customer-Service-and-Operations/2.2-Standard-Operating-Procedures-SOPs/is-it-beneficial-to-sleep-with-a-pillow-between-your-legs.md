@@ -1,0 +1,3 @@
+# Is it beneficial to sleep with a pillow between your legs?
+
+A pillow that is flatter and is not too big or too small may work well. You want a pillow that will raise up the knee just enough so that the spine is level. Potential benefits of sleeping with a pillow between your legs: 1. Reduce or prevent low back pain 2. Reduce sciatica pain 3. Reduce knee pain 4. Reduce hip pain 5. Improve breathinghttps://hls-player.drberg.com/asset?path=migrated-assets/why-sleep-with-a-pillow-between-your-legs

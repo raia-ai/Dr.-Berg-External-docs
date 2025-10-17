@@ -1,0 +1,3 @@
+# What is dry fasting?
+
+Dry fasting, abstaining from both food and liquids, offers profound benefits including enhanced autophagy, which supports cellular detoxification by recycling damaged proteins and eliminating pathogens. This practice also improves mitochondrial function, strengthens biochemical processes, and acts as a potent epigenetic stimulus. Dry fasting is noted for its ability to mimic some benefits of deep sleep, making it a valuable tool for cellular rejuvenation and longevity.

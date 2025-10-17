@@ -1,0 +1,3 @@
+# Why might I be feeling cold while following a ketogenic diet?
+
+Experiencing coldness while following a ketogenic diet is a normal adaptation process as your body adjusts to a lower carbohydrate intake. During this transition, your core body temperature may decrease, which is a typical response to reduced food intake. To help mitigate this sensation, consider supplementing with vitamin B1 (thiamine), which may support your body's adaptation. Over time, as you continue with the diet, the feeling of coldness is likely to lessen.https://hls-player.drberg.com/asset?path=migrated-assets/feeling-cold-on-keto-intermittent-fasting-drberg

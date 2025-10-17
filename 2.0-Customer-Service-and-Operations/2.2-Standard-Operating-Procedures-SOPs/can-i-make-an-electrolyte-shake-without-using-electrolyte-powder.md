@@ -1,0 +1,3 @@
+# Can I make an electrolyte shake without using electrolyte powder?
+
+Replenishing your electrolytes is crucial on a Healthy Keto and intermittent fasting plan. Without electrolyte replenishment, you might experience keto flu, constipation, dehydration, and many other issues. Check out this easy keto-friendly electrolyte shake recipe: • 1 avocado • 1 cup berries • 1/2 cup lemon juice • 1 tbsp apple cider vinegar • 1/4 tsp sea salt • 5 cups water/ice cubes (to desired consistency) • 20 drops of berry or lemon-flavored stevia (optional) Blend up these ingredients and enjoy!https://hls-player.drberg.com/asset?path=migrated-assets/do-it-yourself-homemade-electrolyte-shake

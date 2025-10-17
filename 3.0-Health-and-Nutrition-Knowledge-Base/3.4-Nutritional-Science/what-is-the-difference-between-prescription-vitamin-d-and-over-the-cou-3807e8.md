@@ -1,0 +1,3 @@
+# What is the difference between prescription vitamin D and over-the-counter vitamin D supplements in terms of formulation, dosage, and effectiveness?
+
+Prescription vitamin D is often in the form of D2, which is synthetic and less effective compared to D3, the more potent form found in over-the-counter supplements. Research indicates that D3 is generally more beneficial and effective than D2, leading to better outcomes in studies.

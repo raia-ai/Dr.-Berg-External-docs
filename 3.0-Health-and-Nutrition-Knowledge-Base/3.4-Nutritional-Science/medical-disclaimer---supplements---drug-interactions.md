@@ -1,0 +1,6 @@
+# Medical Disclaimer - Supplements - Drug Interactions
+
+Dr. Berg Nutritionals produces dietary supplements and is not a medical office. According to United States regulations, we cannot provide information about supplemental nutrients and their interactions with medical drugs. Unlike drugs, dietary supplements are regulated as food under the Dietary Supplement Health and Education Act (DSHEA). Supplement manufacturers are responsible for ensuring their products are safe and accurately labeled but are not required to test for safety with medications before marketing.
+Before starting a new supplement, it's essential to consult with your healthcare provider or pharmacist, especially if you have a pre-existing medical condition or are taking medication.
+
+If your doctor or pharmacist does not have interaction information, the medication manufacturer is also a resource. Drug manufacturers must look for interactions if the drug's mechanism of action has a known or suspected interaction with nutrients and dietary supplements.

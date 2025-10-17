@@ -1,0 +1,3 @@
+# What benefits does Vitamin B9 (Folic Acid) provide in Kids Multivitamins?
+
+Folate (Vitamin B9) Calcium 5-methyltetrahydrofolate Calcium 5-methyltetrahydrofolate (5-MTHF) is the active form of folate (vitamin B9). Active Form of Folate: This multivitamin includes calcium 5-methyltetrahydrofolate (5-MTHF), an active form of folate. Neurotransmitter production: 5-MTHF is involved in the production of neurotransmitters. Cell Growth: 5-MTHF is involved in DNA synthesis and cell growth.

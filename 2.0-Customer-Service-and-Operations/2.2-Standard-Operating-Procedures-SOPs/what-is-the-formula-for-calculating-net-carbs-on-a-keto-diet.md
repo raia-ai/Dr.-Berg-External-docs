@@ -1,0 +1,3 @@
+# What is the formula for calculating net carbs on a keto diet?
+
+Net carbs https://www.drberg.com/blog/understanding-net-carbs-ketogenic-dietare the carbohydrates that your body can digest and use for energy. To calculate net carbs, you take the total carbohydrates in a food item and subtract the amount of fiber and sugar alcohols.The formula looks like this: Net Carbs = Total Carbs - Fiber - Sugar Alcohols.https://hls-player.drberg.com/asset?path=migrated-assets/what-is-net-carb-understanding-net-carbs-on-keto-diet-with-drberg

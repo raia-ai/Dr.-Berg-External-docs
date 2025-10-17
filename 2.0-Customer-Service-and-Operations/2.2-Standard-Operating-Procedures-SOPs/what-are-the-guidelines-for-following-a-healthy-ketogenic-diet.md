@@ -1,0 +1,3 @@
+# What are the guidelines for following a healthy ketogenic diet?
+
+Here are two main guidelines that you must follow on the Healthy Keto diet:1. Eat low-carb high-fat foods that cause you to use your body's fat reserves when you're in ketosis.2. Eat foods that provide all the nutrients your body requires for health.https://hls-player.drberg.com/asset?path=migrated-assets/drbergs-healthy-keto-basics-step-2-what-to-eat

@@ -1,0 +1,3 @@
+# What benefits does vitamin D (shiitake mushroom) in Whole Food Multivitamin?
+
+Why Vitamin D (shiitake mushroom) is a beneficial ingredient in our Whole Food Multivitamin.Vitamin D, when sourced from shiitake mushrooms in a whole food multivitamin, offers a range of benefits due to its natural form and the accompanying nutrients: Naturally Occurring Vitamin D: Sourced from shiitake mushrooms, this form of Vitamin D is readily converted by the body into its active for Immune System Support: Vitamin D is important for maintaining a balanced immune system. Natural Source of Vitamin D: Our whole food multivitamin includes Vitamin D sourced from shiitake mushrooms, offering a natural approach to supplementation.

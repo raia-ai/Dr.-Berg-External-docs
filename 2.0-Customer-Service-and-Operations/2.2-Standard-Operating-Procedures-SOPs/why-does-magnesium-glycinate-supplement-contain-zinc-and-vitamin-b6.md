@@ -1,0 +1,3 @@
+# Why does Magnesium Glycinate supplement contain zinc and vitamin B6?
+
+Combining Zinc and Vitamin B6 (as P-5-P) with Magnesium Glycinate results in a comprehensive formula. Vitamin B6 is included because it plays a role in processes that support magnesium utilization in the body. Both B6 and Zinc contribute to supporting the normal function of the immune system and nervous system. They also play roles in pathways related to maintaining a healthy mood and normal hormonal balance, complementing the functions supported by magnesium glycinate. The use of bioavailable forms like Glycinate, Picolinate, and P-5-P is chosen to help support the body's absorption and utilization of these nutrients.

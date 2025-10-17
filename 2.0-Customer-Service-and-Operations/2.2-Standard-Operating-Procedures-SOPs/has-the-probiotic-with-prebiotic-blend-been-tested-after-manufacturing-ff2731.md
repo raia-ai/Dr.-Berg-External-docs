@@ -1,0 +1,3 @@
+# Has the Probiotic with Prebiotic Blend been tested after manufacturing to determine its probiotic potency lifespan?
+
+The Probiotic with Prebiotic Blend has been tested to ensure that the probiotics are present during manufacturing. However, Probiotic with Prebiotic Blend has not undergone post-manufacturing probiotic testing to determine the probiotic count lifespan. Many storage factors may affect the live probiotic count in the product, including heat, direct sunlight, and humidity. Refrigerate Probiotic with Prebiotic Blend after opening to help maintain potency.

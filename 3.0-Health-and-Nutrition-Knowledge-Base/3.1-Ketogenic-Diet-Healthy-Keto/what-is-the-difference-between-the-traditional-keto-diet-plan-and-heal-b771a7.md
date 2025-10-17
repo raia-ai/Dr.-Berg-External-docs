@@ -1,0 +1,3 @@
+# What is the difference between the traditional keto diet plan and Healthy Keto?
+
+Any type of ketogenic diet, by limiting net carbs, also reduces your fat-storing hormone. To distinguish my keto program from others, I coined the term “Healthy Ketosis.” It’s based on a guiding principle of mine: It’s not “Lose weight to get healthy,” it's “Get healthy to lose weight!” Healthy Keto is groundbreaking because it emphasizes obtaining your required nutrients from high-quality foods such as organic vegetables, full-fat organic dairy, and wild-caught, grass-fed, pasture-raised meat, fish, fowl, and eggs—with the goal to get you healthy to lose weight rather than lose weight to get healthy.

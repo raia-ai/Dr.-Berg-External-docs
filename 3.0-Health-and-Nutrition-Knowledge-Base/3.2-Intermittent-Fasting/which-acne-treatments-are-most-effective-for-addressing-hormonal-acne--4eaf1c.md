@@ -1,0 +1,3 @@
+# Which acne treatments are most effective for addressing hormonal acne specifically, and how do their mechanisms of action differ from those targeting other types of acne?
+
+The most effective treatment for hormonal acne often involves a combination of dietary and lifestyle changes. Low-carb diet, intermittent fasting, and stress-reducing techniques can lower the risk of menstrual acne and contribute to clearer skin.

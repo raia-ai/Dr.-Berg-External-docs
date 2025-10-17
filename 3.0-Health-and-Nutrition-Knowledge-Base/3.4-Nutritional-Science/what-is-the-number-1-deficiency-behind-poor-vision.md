@@ -1,0 +1,11 @@
+# What is the number 1 deficiency behind poor vision?
+
+Did you know that the more you wear your glasses, the stronger prescription you’ll need?
+
+Contrast sensitivity loss is an eye problem doctors don’t commonly check for. This condition affects the ability to differentiate between shades of grey, causing blurry vision, especially in low light. Carotenoids are antioxidants that protect the eyes against blue light, chemicals, damage from diabetes, and more. However, as we age, carotenoids decrease, so eye protection also decreases. Full-spectrum light can be helpful but will not solve the problem.
+
+To improve eyesight, you need to increase the efficiency of the retina. Sunlight is vital for eye and retina health. It allows UV and infrared light into the eye and can also help build up the eye’s melatonin. You can increase carotenoids in the eye by consuming foods with lutein and zeaxanthin. Both carotenoids are found in egg yolks. If you choose supplements with lutein and zeaxanthin, look for one with at least 10 mg of lutein and 2 mg of zeaxanthin. Research has shown significant improvement in macular degeneration and contrast sensitivity loss in people who took lutein and zeaxanthin for 12 weeks.
+
+Ophthalmologist Dr. Chris Knobbe stresses the importance of removing seed oils from the diet and moving towards an ancestral diet for improved eyesight and eye health. Fatty fish like salmon contain omega-3s, which support eye health and reduce inflammation. DHA is vital for the brain and retina and is found in fish oil and cod liver oil.
+
+Vitamin D is critical for every part of the eye and can help with conditions like glaucoma, macular degeneration, and retinopathy. Take at least 10,000 IU of vitamin D every day. Vitamin A is essential, especially for night vision. Zinc can also help!

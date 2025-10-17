@@ -1,0 +1,3 @@
+# I do OMAD and can not sleep now - what do I do?
+
+Starting OMAD (One Meal A Day) can sometimes lead to sleep issues due to blood sugar fluctuations. Consider adding a small portion (around 50 grams) of blueberries to your meal to ease this transition. Blueberries offer some carbohydrates for blood sugar stability, which could help you sleep better. Ideally, this would also help prevent a morning rise in cortisol, a stress hormone that can disrupt sleep.

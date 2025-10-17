@@ -1,0 +1,3 @@
+# Is there a difference between Dr. Berg’s Zinc with Magnesium, Vitamin D3, and Selenium and Dr. Berg’s Hair Formula?
+
+Dr. Berg’s Zinc with Magnesium, Vitamin D3, and Selenium is a good option for individuals looking for general health support with the added bonus of promoting healthy hair. Dr. Berg’s Hair Formula is a better choice for individuals specifically concerned with hair loss, thinning hair, or those looking for more targeted support for hair growth.

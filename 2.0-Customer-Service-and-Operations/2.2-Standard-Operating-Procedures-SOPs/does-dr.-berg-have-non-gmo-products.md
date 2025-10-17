@@ -1,0 +1,3 @@
+# Does Dr. Berg have non-GMO products?
+
+Yes, Dr. Berg sells certified non-GMO products. These products include:Nutritional Yeast Flakes https://shop.drberg.com/product/nutritional-yeast-flakesChewable Vitamin C Complex https://shop.drberg.com/product/vitamin-c-complexRaw Organic Wheatgrass Juice Powder https://shop.drberg.com/product/raw-wheat-grass-juice-powderRaw Organic Wheatgrass Juice Powder Lemon Flavor https://shop.drberg.com/product/raw-wheat-grass-juice-powder-lemon-regularDr. Berg offers many products with non-GMO ingredients that are in the process of being certified non-GMO.

@@ -1,0 +1,3 @@
+# Why do some Multivitamins contain 100% DV on all of the nutrients?
+
+Some multivitamin products are formulated to contain 100% (or more) of the Daily Value for virtually all listed nutrients. This contrasts sharply with how nutrients are found in nature, where such uniformly high concentrations are not typically present. Achieving these standardized, high levels often indicates the use of synthetic vitamins, which can be derived from petrochemicals.

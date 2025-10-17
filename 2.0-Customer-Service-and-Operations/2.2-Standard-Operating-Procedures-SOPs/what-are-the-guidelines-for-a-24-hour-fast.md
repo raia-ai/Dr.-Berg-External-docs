@@ -1,0 +1,3 @@
+# What are the guidelines for a 24-hour fast?
+
+The basic rules for 24-hour fasting are to abstain from eating food and only drink calorie-free beverages such as water, black coffee, or herbal teas to push your metabolism into a fat-burning mode. If you are new to prolonged fasting, it’s recommended to slowly prolong your fasting periods until you are comfortable starting a 24-hour fast. This helps your body adapt to the metabolic changes triggered by calorie restriction and minimizes side effects of fasting, such as weakness, fatigue, and dizziness. https://hls-player.drberg.com/asset?path=migrated-assets/the-7-important-intermittent-fasting-rules

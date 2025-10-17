@@ -1,0 +1,3 @@
+# How many grams of carbs can I eat without worrying about insulin resistance or high blood sugar?
+
+The magic number is 50 net carbs. So don't go over 50 net carbs. That means you're minusing the fiber in some of the foods. But when we're talking about leafy green vegetables and salads, don't even count those. We want you to have more of those unless you're a bloater and you have some issues with that.

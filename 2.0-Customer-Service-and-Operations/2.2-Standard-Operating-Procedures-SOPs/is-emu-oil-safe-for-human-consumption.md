@@ -1,0 +1,3 @@
+# Is emu oil safe for human consumption?
+
+An emu is a large, flightless bird, native to Australia. Emu oil contains nutrients called fatty acids. These fatty acids might reduce pain and swelling.BenefitsHas essential fatty acids (omega-3, omega-6 and omega-9)AntioxidantAnti-inflammatoryContains vitamin AContains phytonutrients (healthy substances found in plants)Good for conditions likeEczemaPsoriasisDry skinWrinklesDermatitisItchy skinDamaged skin as in shinglesGut healing (taken in pill form)Joint painMuscle painHow to consume itFollow the directions on the label for the proper dosage.Where to get itYou can get it at a health food store or order it online.https://hls-player.drberg.com/asset?path=migrated-assets/what-are-the-benefits-of-emu-oil-drberg

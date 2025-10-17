@@ -1,0 +1,3 @@
+# If calcium and magnesium compete for absorption, why is calcium present in the Electrolyte Powder?
+
+Dr. Berg recommends against taking magnesium and calcium supplements simultaneously, as they can hinder each other's absorption. However, he points out that a small amount of calcium in a supplement with a significantly higher proportion of magnesium, such as his electrolyte products, is acceptable. The issue arises when the ratio of calcium to magnesium is closer to 1:1.

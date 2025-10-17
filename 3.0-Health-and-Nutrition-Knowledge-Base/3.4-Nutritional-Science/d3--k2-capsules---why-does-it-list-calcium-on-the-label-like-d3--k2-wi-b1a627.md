@@ -1,0 +1,3 @@
+# D3 & K2 Capsules - Why Does it List Calcium on the Label like D3 & K2 with Zinc & MCT Oil?
+
+Our D3 & K2 capsules and D3 & K2 with Zinc and MCT Oil formulas are distinct in their composition. The liquid formula uses MCT oil as its base, resulting in a higher concentration and measurable calcium content. Conversely, the capsules contain only a small amount (10mg) of added MCT oil, which doesn't contribute significantly to calcium levels.

@@ -1,0 +1,3 @@
+# Does vitamin K2 have the ability to cross the placenta, and what implications does this have for fetal development and maternal supplementation during pregnancy?
+
+Although vitamin K2 has been found to cross the placenta, it’s thought that only small amounts of vitamin K can enter the fetal circulation. This explains why infants are at increased risk of vitamin K deficiency and typically receive vitamin K2 supplementation immediately after birth.

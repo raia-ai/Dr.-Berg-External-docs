@@ -1,0 +1,3 @@
+# What is vitamin K2?
+
+The vitamin K1 is recycled and has everything to do with coagulating and binding protein that helps forming clots or stopping the bleeding and is also involve with bone formation while the vitamin K2 is not recycled and is basically binds calcium in the bone, helps transport calcium out of the soft tissues and is also involved with the metabolism.There are several types of vitamin K2; MK2 – 14 but the ones you get in supplements are MK4 and MK7.Best Sources of Vitamin K2• Greens / Leafy Vegetables• Grass-Fed• Egg Yolk• Butter• Cheese• Liver• Fermented Foods https://hls-player.drberg.com/asset?path=migrated-assets/what-is-vitamin-k2-its-benefits-sources-drberg

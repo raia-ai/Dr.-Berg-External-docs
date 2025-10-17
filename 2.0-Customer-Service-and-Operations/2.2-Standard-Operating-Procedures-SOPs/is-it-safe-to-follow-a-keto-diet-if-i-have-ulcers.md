@@ -1,0 +1,3 @@
+# Is it safe to follow a keto diet if I have ulcers?
+
+Absolutely! Keto may speed up the healing process of a peptic ulcer. Removing carbohydrates, sugar, alcohol, and refined grains from your diet is one of the best things you can do if you have an ulcer.We recommend consulting with your doctor before making any dietary changes or before you start taking any new supplements, especially if you have any existing health conditions.

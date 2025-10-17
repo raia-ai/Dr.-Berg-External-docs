@@ -1,0 +1,3 @@
+# Is it advisable for those with Gilbert's syndrome to follow a ketogenic diet and fasting?
+
+When following a ketogenic diet, it's essential to prioritize nutrient-dense, high-quality ingredients, even if you have specific health conditions. Keto primarily involves reducing carbohydrate intake, but this does not inherently guarantee the use of healthy foods. Incorporating intermittent fasting alongside a well-structured ketogenic approach can enhance overall health benefits. In fact, I find it difficult to identify any scenarios where this combination would be contraindicated, even during pregnancy or lactation. However, while keto may be beneficial, intermittent fasting might not be appropriate for all individuals in those situations.

@@ -1,0 +1,3 @@
+# How can I stop snacking at night?
+
+You may have cravings, be actually hungry, or you may not feel anything. Eating or snacking constantly, between meals, or after meals prevents you from successfully fasting.To curb your snacking habits, try shifting your first meal later in the day, so that you do not spike your insulin first thing in the morning and have to resist the urge to snack the rest of the day. This way, you can also have your last meal later in the day, which will keep you satiated until bed, making your urge to snack disappear.https://hls-player.drberg.com/asset?path=migrated-assets/cant-stop-late-night-snacking-grazing-on-intermittent-fasting-simple-tips-by-drberg

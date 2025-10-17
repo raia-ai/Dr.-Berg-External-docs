@@ -1,0 +1,3 @@
+# What is the most common symptom of dehydration?
+
+The most common symptom of dehydration is fatigue. When the body lacks adequate hydration, electrolyte balance, particularly sodium, is disrupted, leading to weakness and reduced energy levels. Proper fluid intake is essential not only for maintaining hydration but also for ensuring optimal electrolyte levels, crucial for overall strength and vitality.

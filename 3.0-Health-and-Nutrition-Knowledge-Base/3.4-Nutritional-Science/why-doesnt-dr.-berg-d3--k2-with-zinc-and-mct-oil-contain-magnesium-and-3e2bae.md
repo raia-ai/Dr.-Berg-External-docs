@@ -1,0 +1,3 @@
+# Why doesn't Dr. Berg D3 & K2 with Zinc and MCT Oil contain magnesium and Vitamin B6?
+
+Our liquid D3 & K2 with Zinc and MCT oil is designed differently than our D3 & K2 capsules. The liquid format, using MCT oil as a base, is ideal for optimal absorption of fat-soluble vitamins like D3 and K2. However, this makes it challenging to incorporate water-soluble ingredients like magnesium and vitamin B6, which don't dissolve effectively in oil.

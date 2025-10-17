@@ -1,0 +1,3 @@
+# What are some keto-friendly options when traveling?
+
+First of all, I think it's a great opportunity when you travel to do fasting, right? So, you do fasting.You just basically fast through the whole trip. And also, you may have some jet lag, so take some vitamin D with you. Take Vitamin D that handles jet lag so fast. But trying to find food in an airport is literally impossible, like real food. There's so much junk. And then, of course, if they feed you anything on the plane that's not any better.

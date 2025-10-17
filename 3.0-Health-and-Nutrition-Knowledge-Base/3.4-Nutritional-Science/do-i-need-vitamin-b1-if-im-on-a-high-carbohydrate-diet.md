@@ -1,0 +1,3 @@
+# Do I need Vitamin B1 if I'm on a high carbohydrate diet?
+
+Many individuals consume diets high in carbohydrates, which can deplete levels of Vitamin B1 (Thiamine). Vitamin B1 is essential for properly metabolizing carbohydrates, allowing the body to convert them into usable energy. When B1 is deficient, this metabolic pathway is impaired, hindering the body's ability to effectively process carbohydrates. This can lead to an accumulation of substances like lactic acid in the muscles. Consequences associated with this impaired metabolism and B1 deficiency can include symptoms such as restless leg syndrome, increased acidity, fatigue, and a higher risk of developing conditions like diabetes.

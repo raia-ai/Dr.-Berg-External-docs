@@ -1,0 +1,3 @@
+# Which provides more vitamin C: strawberries or bell peppers, and how do their nutrient levels compare regarding daily recommended intake and health benefits?
+
+Bell peppers are generally a better source of vitamin C compared to strawberries due to their higher content and lower sugar levels. For optimal flavor and nutritional value, consider purchasing bell peppers from farmer's markets or growing them yourself.

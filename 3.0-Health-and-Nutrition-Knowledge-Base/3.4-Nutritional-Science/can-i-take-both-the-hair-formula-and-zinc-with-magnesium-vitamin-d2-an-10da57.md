@@ -1,0 +1,3 @@
+# Can I take both the Hair Formula and Zinc with Magnesium, Vitamin D2 and Selenium?
+
+Yes, you can take both Dr. Berg's Hair Formula and his Zinc with Magnesium, Vitamin D3, and Selenium. While it's generally safe to combine these supplements, it's always best to consult with your healthcare provider for personalized advice, especially if you have any existing health conditions or are taking medications

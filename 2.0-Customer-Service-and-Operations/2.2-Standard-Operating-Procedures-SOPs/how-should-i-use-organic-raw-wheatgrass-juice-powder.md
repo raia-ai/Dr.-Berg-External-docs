@@ -1,0 +1,3 @@
+# How should I use Organic Raw Wheatgrass Juice Powder?
+
+For the best results dissolve 1 teaspoon (1 scoop, 2.5 g) into an 8-ounce glass of water or a smoothie. Do not take with hot liquids because heat will neutralize active enzymes. Recommended daily on an empty stomach (20 minutes before or 2 hours after a meal). We also recommend using a shaker bottle for easier preparation. https://shop.drberg.com/shaker-bottle

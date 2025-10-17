@@ -1,0 +1,3 @@
+# Can you reverse alcoholic liver disease?
+
+To improve liver health after drinking, it’s crucial to support liver cell function with a nutritious liver cleanse diet rich in green leafy vegetables, broccoli sprouts, and turmeric. In addition, certain supplements, including milk thistle, CoQ10, and astaxanthin, have been found to mitigate the adverse effects of alcohol and promote liver cell regeneration.

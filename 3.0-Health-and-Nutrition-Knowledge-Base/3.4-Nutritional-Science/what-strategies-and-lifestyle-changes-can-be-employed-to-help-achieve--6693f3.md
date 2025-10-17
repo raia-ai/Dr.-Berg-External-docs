@@ -1,0 +1,5 @@
+# What strategies and lifestyle changes can be employed to help achieve remission in individuals with multiple sclerosis?
+
+Dr. Coimbra’s protocol for managing multiple sclerosis emphasizes the use of high doses of vitamin D3 to enhance the regulation of autoimmune conditions. However, it is important to be aware of potential symptoms of hypercalcemia—such as increased thirst, abdominal pain, nausea, and confusion—that may arise from elevated vitamin D levels. Vitamin D functions as an immune modulator, influencing over 3,000 genes and regulating immune cell activity through specific receptors.
+
+To optimize vitamin D absorption, it is essential to consider the role of various nutrients, including DHA, zinc, vitamin K2 (MK7), magnesium, choline, B2, B12, folate, chromium, and selenium. Key recommendations for individuals following this protocol include avoiding dairy products and maintaining adequate hydration.

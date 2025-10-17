@@ -1,0 +1,3 @@
+# Can fasting mess with a woman’s hormones?
+
+Fasting can actually promote a sense of calm and reduce stress, as it often leads to a state of increased tolerance and serenity. Some concerns arise from the temporary increase in cortisol levels, a counter-regulatory hormone, when blood sugar levels drop due to not eating. However, this is typically not an issue once the body adapts to fasting and enters ketosis, usually within two to three days. At this point, the body efficiently runs on fat as fuel instead of relying solely on blood sugar, stabilizing cortisol levels. The key is to adapt to a ketogenic diet, which helps maintain hormonal balance during fasting.

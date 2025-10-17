@@ -1,0 +1,3 @@
+# What benefits does Vitamin B6 offer in Kids Multivitamins?
+
+Kids Multivitamin - Vitamin B6 (Pyridoxal-5 phosphate) Pyridoxal-5-Phosphate (P5P) is the active form of vitamin B6. Active Form: Vitamin B6 is available in different forms. This multivitamin uses pyridoxal-5-phosphate (P5P), which the body can use directly. Neurotransmitter production: Pyridoxal-5-phosphate (P5P) is involved in the production of neurotransmitters. Red Blood Cells: P5P plays a role in the health of red blood cells Healthy immune response: Pyridoxal-5-phosphate (P5P) supports a healthy immune system.

@@ -1,0 +1,3 @@
+# What can I do for dermatitis and eczema?
+
+Often, skin issues may indicate underlying gut inflammation or liver involvement, potentially linked to dysbiosis—a microbial imbalance in the gut flora. Addressing this imbalance with probiotics, prebiotics, and foods like sauerkraut and kefir can be beneficial. Vitamin D supplementation is also important. Consider previous antibiotic use or gut infections as potential contributors to these issues. Professional guidance can help target these underlying causes effectively.

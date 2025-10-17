@@ -1,0 +1,3 @@
+# What are the side effects of keto beta-hydroxybutyrate (BHB)?
+
+While beta-hydroxybutyrate (BHB) supplements may increase ketone levels detected in urine, they don't necessarily promote fat burning or weight loss. In fact, relying on exogenous ketones like BHB may negate the primary goal of ketogenic diets, which is to derive energy from fat stores. A cost-effective alternative to BHB supplements is MCT oil, which can support ketosis and fat burning more efficiently. It's important to consider the potential financial drawbacks of BHB supplements, as they may not provide the desired weight loss benefits.

@@ -1,0 +1,3 @@
+# What are the most common symptoms of low stomach acid?
+
+The most common sign of low stomach acid is indigestion, where food feels stuck and the stomach feels full and slow to empty. Other symptoms include:• Upset stomach• Fullness• Heartburn• Nausea• Belching• Gas• BloatingMany mistakenly take antacids, which can worsen the issue as stomach acid is essential for protein breakdown, nutrient absorption, and controlling harmful microbes. Low acidity can cause significant bloating and discomfort. Your body needs chlorides from salt, potassium, zinc, and other nutrients to produce two liters of hydrochloric acid daily.https://hls-player.drberg.com/asset?path=migrated-assets/most-common-sign-of-low-stomach-acid-is

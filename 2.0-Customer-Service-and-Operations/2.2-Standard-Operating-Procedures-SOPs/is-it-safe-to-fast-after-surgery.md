@@ -1,0 +1,3 @@
+# Is it safe to fast after surgery?
+
+Yes. If you’re going to have surgery and you have the ability to prepare for it, it may be best to start intermittent fasting 2 weeks beforehand. This way, you’re fully adapted to fat-burning and you can go into the surgery without any problems with blood sugars.Right after the surgery you may want to do a more prolonged fast (at least 48 hours).During your fast it may be best to take certain nutrients, such as:Sea saltElectrolytesB vitaminsAmino acidsVitamin Dhttps://hls-player.drberg.com/asset?path=migrated-assets/always-fast-after-a-surgery-injury-or-trauma

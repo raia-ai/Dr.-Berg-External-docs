@@ -1,0 +1,7 @@
+# What is the #1 food I should avoid if I want to have a healthy liver?
+
+It’s a myth that liver damage is permanent. The liver is one of the only organs that can regenerate itself 100%. Another myth is that the liver is filled with toxins. The liver detoxifies poisons, it doesn't store them. **The worst “food” or ingredient for your liver is seed oils.** **Seed oils are damaging, inflammatory, and high in omega-6 fats, specifically linoleic acid. Lard contains about 2.5% linoleic acid, and tallow only contains 0.7%. Corn oil contains 56.6% linoleic acid!**
+
+**Seed oils contain oxidized linoleic acid that can cause significant oxidative damage in the body, especially in the liver and the nervous system.** The average diet is 25 to 30% seed oils, which is too much. Seed oils become lodged in our fat cells and the membranes surrounding the nervous system and can remain there for 2 to 3 years. Seed oils can’t be used for energy. They inflame the liver and contribute to insulin resistance. You should avoid seed oils, including canola oil, soy oil, and cottonseed oil, which are commonly labeled as vegetable oil.
+
+Always check food labels and avoid seed oils and foods that contain them. Replace seed oils with oils high in omega-3 fatty acids rather than omega-6. Reduce your consumption of grain-fed animal products and look for grass-fed meats.

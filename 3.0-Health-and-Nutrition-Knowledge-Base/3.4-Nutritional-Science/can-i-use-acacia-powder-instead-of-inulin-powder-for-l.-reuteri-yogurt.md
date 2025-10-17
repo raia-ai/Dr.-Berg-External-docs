@@ -1,0 +1,3 @@
+# Can I use Acacia Powder instead of inulin powder for L. Reuteri Yogurt?
+
+We have not tried the acacia powder as a replacement for inulin powder for the L. reuteri superfood yogurt, and we cannot verify it will work. Dr. Davis suggests raw potato starch in his recipe blog post - [https://drdavisinfinitehealth.com/2019/07/how-to-make-l-reuteri-yogurt-step-by-step/](https://drdavisinfinitehealth.com/2019/07/how-to-make-l-reuteri-yogurt-step-by-step/)

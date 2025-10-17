@@ -1,0 +1,7 @@
+# What is Bill Gates Apeel?
+
+Bill Gates’ new product, Apeel, is used to make fresh produce last longer. Of the ingredients in Apeel, 99.34 percent are listed as “other ingredients,” which is a red flag because of the lack of transparency. We know that Apeel contains monoglycerides and diglycerides—emulsifiers, which help mix things together. Apeel also contains solvents and heavy metals, including palladium, cadmium, lead, mercury, and arsenic! Manufacturers claim these metals are safe in small amounts, but there is no data about chronic consumption over time. Apeel also contains polyethylene glycol, a compound found in antifreeze.
+
+Apeel could be a partially hydrogenated product. The FDA has banned trans fats, but loopholes still allow manufacturers to use them in their products. If a product has less than .5 grams of trans fats, the FDA allows them to round it down to zero and not report the trans fats in the product. If a product is classified as an emulsifier, not a lipid or fat, it is exempt from the FDA’s ban on trans fats.
+
+There is some controversy surrounding the function of the Apeel coating on produce. Is it a coating to keep food fresh or a fungicide? The EPA and the OMRI describe Apeel as a fungicide used after harvest, but Apeel is advertised as a protective coating. There’s no way to remove the Apeel coating from your fresh produce, so it could potentially lock pesticides or pathogens inside. Think twice about buying fruits and vegetables that have this coating on them.

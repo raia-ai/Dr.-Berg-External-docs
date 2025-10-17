@@ -1,0 +1,3 @@
+# What is the most effective treatment for bacterial vaginosis?
+
+Bacterial vaginosis is a condition caused by an overgrowth of bacteria in the vagina. This increases inflammation, which can cause itchiness, redness, and bleeding.Remedies:Consume kefir (plain grass-fed)Avoid pasteurized milkFermented vegetablessauerkrautpickleskimchiConsume a specific probiotic (lactobacillus brevis)Consume oregano oilConsume grapefruit seed extractConsume apple cider vinegar (1 to 2 teaspoons stirred into about a cup of water)https://hls-player.drberg.com/asset?path=migrated-assets/home-remedies-for-bacterial-vaginosis-treatment-drberg

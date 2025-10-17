@@ -1,0 +1,3 @@
+# Is vitamin K2 included in the Advanced Immune Support?
+
+While D3 and K2 are important for working together to regulate calcium absorption and prevent calcification, that's not the primary focus of Advanced Immune Support. Its main function is to provide a powerful boost to your immune system, either to proactively fight off frequent illnesses or to help your body recover faster when you're feeling under the weather. For best results, a dedicated D3/K2 supplement should be taken daily, especially if your diet is high in calcium.

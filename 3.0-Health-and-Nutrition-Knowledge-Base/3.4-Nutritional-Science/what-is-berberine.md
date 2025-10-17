@@ -1,0 +1,3 @@
+# What is berberine?
+
+Berberine is a natural chemical in certain plants. Berberine is most known for helping to support healthy blood sugar levels and making insulin more sensitive. Berberine attacks insulin resistance, which is at the heart of most health problems like a fatty liver, high blood pressure, high triglycerides, and high LDL cholesterol. Anything that helps decrease insulin resistance will also help support weight loss.

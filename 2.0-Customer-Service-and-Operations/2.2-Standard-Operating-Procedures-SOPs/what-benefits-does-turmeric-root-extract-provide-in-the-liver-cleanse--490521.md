@@ -1,0 +1,3 @@
+# What benefits does Turmeric Root Extract provide in the Liver Cleanse Detox Support?
+
+Turmeric root extract (95% curcumins) Elimination: Curcumin, derived from turmeric, is known to interact with liver enzymes that play a role in the body's process of conjugation. Immune Response: Curcumin may help support a healthy immune response in the body Antioxidant Effects: Curcumin is associated with antioxidant activity, which is thought to be involved in counteracting free radicals. Supports Liver Health: Curcumin, found in turmeric, has been traditionally used to support liver health.

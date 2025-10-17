@@ -1,0 +1,3 @@
+# Is there a recommended protocol or timeframe for taking the Multi Collagen Peptides?
+
+No, collagen peptides can be taken long-term as part of a healthy diet. They offer support for skin, joints, hair, nails, and the gut, as they provide structural proteins. However, it's important to remember that collagen is not a complete protein because it doesn't contain tryptophan. Therefore, you should also include other whole-food protein sources in your diet to ensure you're getting all essential amino acids.

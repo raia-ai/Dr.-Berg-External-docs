@@ -1,0 +1,3 @@
+# What is the initial indicator of a vitamin A deficiency?
+
+The primary indicator of a vitamin A deficiency often presents as night blindness, characterized by difficulty seeing in low-light conditions. This condition impairs the ability to discern objects clearly in dimly lit environments and may be erroneously attributed to a need for corrective lenses. Sufficient intake of retinol, the active form of vitamin A, is crucial for maintaining optimal vision across varying lighting conditions. It is advisable to seek medical consultation for accurate diagnosis and appropriate treatment if experiencing symptoms indicative of vitamin A deficiency.

@@ -1,0 +1,3 @@
+# What are good alternatives to Gatorade and Powerade for replenishing electrolytes?
+
+Making your own electrolyte-enriched water using a high-quality electrolyte powder is an excellent way to promote electrolyte balance without the risk of weight gain. Opt for a sugar-free electrolyte powder containing 1,000 milligrams of potassium and around 40 milligrams of sodium to promote a healthy potassium-to-sodium balance, which is linked to better blood pressure control and overall cardiovascular health.

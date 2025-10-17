@@ -1,0 +1,3 @@
+# How can I tell if I need electrolytes?
+
+Many people don’t consume enough electrolytes, including potassium, magnesium, and calcium, to maintain optimal electrolyte balance, and most individuals can benefit from regularly replenishing lost electrolytes. In addition, symptoms such as muscle cramps, headaches, dehydration, high blood pressure, fatigue, irregular heartbeat, sleep issues, and restlessness can indicate electrolyte imbalances.

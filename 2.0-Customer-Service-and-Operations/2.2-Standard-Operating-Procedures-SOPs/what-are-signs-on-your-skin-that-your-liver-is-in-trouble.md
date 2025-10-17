@@ -1,0 +1,3 @@
+# What are signs on your skin that your liver is in trouble?
+
+Skin problems that could be related to the liver: • Itchy skin • A red nose • Red nodules • White and yellow deposits on the eyelids • Jaundice • Spider veins • Red, purple plaque • Red palms • Paper money skin • Grey skin • An enlarged red bumpy nose • Eczema • White nail beds • Rosacea • Red papulehttps://hls-player.drberg.com/asset?path=

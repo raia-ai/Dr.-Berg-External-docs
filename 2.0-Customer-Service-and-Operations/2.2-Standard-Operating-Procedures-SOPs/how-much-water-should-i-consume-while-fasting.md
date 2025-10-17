@@ -1,0 +1,3 @@
+# How much water should I consume while fasting?
+
+You need more water while fasting because you lose glycogen and, consequently, fluids, electrolytes, and salts. Consuming 2-3 liters of water daily while fasting is recommended to prevent dehydration and kidney stones. Adding electrolytes and sea salt is crucial to avoid keto fatigue, keto flu, and weakness. A daily intake of 1-1.5 teaspoons of sea salt is suggested, with more needed if you exercise.https://hls-player.drberg.com/asset?path=migrated-assets/how-much-water-to-drink-when-fasting

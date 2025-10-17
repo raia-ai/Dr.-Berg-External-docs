@@ -1,0 +1,3 @@
+# Can a Dr. Berg Advisor help me with my medical conditions?
+
+Dr. Berg Advisors are experts in Healthy Keto, Intermittent Fasting, Dr. Berg's products, and free resources. It's important to note that Dr. Berg Advisors are not trained medical professionals and, therefore, are not authorized to advise on medical conditions, treatments, diagnoses, or cures for diseases. Any information relating to a disease or condition is for educational purposes only. Please consult your doctor if you need assistance with any of these issues.

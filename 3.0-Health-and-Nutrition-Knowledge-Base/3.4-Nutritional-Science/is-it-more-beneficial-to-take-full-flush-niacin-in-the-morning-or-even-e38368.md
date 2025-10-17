@@ -1,0 +1,3 @@
+# Is it more beneficial to take full-flush niacin in the morning or evening, and what are the considerations for timing in relation to its effects and side effects?
+
+The timing of taking full-flush niacin is flexible as it's water-soluble and can be taken on an empty stomach. However, if the flushing response is disruptive, it might be better to avoid taking it right before bed. Overall, the timing of niacin intake is not crucial.

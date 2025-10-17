@@ -1,0 +1,3 @@
+# Responding to Customers Questions About the Safety of Taking Multiple Supplements
+
+I can share some info about the Upper Limits (ULs) for certain nutrients, but I need to be super clear: I'm not a medical expert, and I don't know your health history. So, this isn't personal advice! Everyone's different, and things like medications and health conditions can really change what's safe. Always, always talk to your doctor or a registered dietitian before you start taking any new supplements. They're the ones who can give you the right advice for you

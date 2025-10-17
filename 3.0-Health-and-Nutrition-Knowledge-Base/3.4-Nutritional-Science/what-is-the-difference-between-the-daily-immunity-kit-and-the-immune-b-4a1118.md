@@ -1,0 +1,3 @@
+# What is the difference between the Daily Immunity Kit and the Immune Booster Kit?
+
+The key difference lies in the overall formulations and intended use. The Daily Immunity Kit is designed for year-round, daily immune support with Friendly Bacteria Probiotic, Trace Minerals, and Vitamin D3 & K2. The Immune Booster Kit, with Chewable Vitamin C, Vitamin D3 & K2, and Trace Minerals, is formulated for a more targeted boost when your immune system needs extra support, like during cold and flu season or when you feel run down.

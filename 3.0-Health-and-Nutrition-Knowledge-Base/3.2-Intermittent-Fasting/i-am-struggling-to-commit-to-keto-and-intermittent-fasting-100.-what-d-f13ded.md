@@ -1,0 +1,3 @@
+# I am struggling to commit to keto and intermittent fasting 100%. What do you suggest?
+
+Starting gradually is key when transitioning to a ketogenic diet and intermittent fasting, especially if you're accustomed to frequent meals and a high-carb diet. Incorporating MCT oil can help reduce cravings and support longer fasting periods, but introduce it gradually to avoid digestive issues. As your body adapts to fat burning, the process becomes easier, leading to uplifted mood, reduced cravings, and increased energy. Ensure you consume enough nutrients by incorporating plenty of vegetables and nutritional yeast into your diet. Keep progressing towards your goal with consistency and patience.

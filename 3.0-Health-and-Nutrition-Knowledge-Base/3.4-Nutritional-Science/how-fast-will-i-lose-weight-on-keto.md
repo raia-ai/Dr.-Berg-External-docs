@@ -1,0 +1,3 @@
+# How fast will I lose weight on keto?
+
+On a Healthy Keto® diet, individuals can generally expect to lose approximately 2 pounds of fat per week, with the inclusion of intermittent fasting potentially accelerating this process. Initially, weight loss may be more significant, with individuals losing between 7 to 15 pounds in the first week, largely attributed to the loss of water weight associated with glycogen depletion. Various factors can influence weight loss on the ketogenic diet, including age, activity level, gender, metabolism, overall health, dietary choices, and stress levels.

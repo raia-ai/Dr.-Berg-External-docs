@@ -1,0 +1,3 @@
+# How can I get better sleep and energy?
+
+To improve sleep: 1. Add more vegetables - 7-10 cups per day. 2. Avoid excess protein - 3-6 ounces. 3. Avoid too much caffeine 4. Don't snack in the evening 5. Avoid sugar - excess insulin causes your bladder to more active. 6. Avoid over-training - and walk regularly. If you can't get to sleep - you need minerals (calcium, potassium and magnesium)https://hls-player.drberg.com/asset?path=migrated-assets/how-to-get-better-sleep-and-energy-explained-by-drberg

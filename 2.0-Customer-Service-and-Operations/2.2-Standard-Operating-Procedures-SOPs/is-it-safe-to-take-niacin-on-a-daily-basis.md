@@ -1,0 +1,3 @@
+# Is it safe to take niacin on a daily basis?
+
+Yes! Dr. Berg Niacin is ideal for those looking to support heart health, protect cells from the damaging effects of oxidative stress, and maintain balanced cholesterol levels*Do not exceed recommended dose. Pregnant or nursing mothers, children under the age of 18, and individuals with known medical conditions should consult a physician before using this or any dietary supplement. Product may cause temporary flushing, tingling, or itching. This is normal and may be worse if taken on an empty stomach. Discontinue use, or consult a physician if there are unwanted side effects or prolonged discomfort.

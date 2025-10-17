@@ -1,0 +1,7 @@
+# How can I deal with hyperpigmentation?
+
+Dark spots are often blamed on the sun, and they can become more problematic as we age. Melanocytes are cells that make the pigment melanin in your skin. These cells are affected by oxidation. To fix hyperpigmentation, focus on antioxidation from antioxidants.
+
+Adequate vitamin D will protect you against the overproduction of melanin, preventing dark spots from forming. If you’re avoiding the sun and using sunscreen, you will be low in vitamin D! Work on increasing vitamin D levels by consuming 10,000 to 20,000 IU of vitamin D3 daily. Build antioxidant networks in the body by consuming high-quality protein such as fish, meat, and eggs. Trace minerals, including zinc, copper, and iodine, are vital. B vitamins, vitamin C, and vitamin E are also essential.
+
+If you want a quick fix to remove uneven skin tone, use grass-fed organic plain unsweetened yogurt. Rub it into the skin and leave it on for 5 minutes before rinsing off. Add this step to your skincare routine once per week to help get rid of dark spots. Yogurt contains lactic acid at a gentle concentration that dissolves the bonds between dead skin cells that have darkened in pigment. It also provides probiotics to support the skin’s microbiome. If hyperpigmentation is severe, add a pinch of turmeric to the yogurt before applying it to your skin.

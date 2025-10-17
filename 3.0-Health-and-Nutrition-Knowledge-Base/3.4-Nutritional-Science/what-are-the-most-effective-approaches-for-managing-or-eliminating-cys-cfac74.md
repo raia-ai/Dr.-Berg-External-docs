@@ -1,0 +1,3 @@
+# What are the most effective approaches for managing or eliminating cysts on the kidneys or liver, and how can they address symptoms and support overall organ health?
+
+With the cyst usually the body is trying to encapsulate and contain some toxicity. There's not a lot of data out there on how to reverse cysts. I do know in general when people have cysts and other parts of their body, whether it's external on their knee or other surfaces, I do know there's a couple common things that I've seen. Number one they have insulin resistance, they're doing too many carbs. Number two, they might need more iodine because it could be even fibrocystic breasts, for example. The antidote to that is iodine. Seek help.

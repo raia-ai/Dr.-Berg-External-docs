@@ -1,0 +1,3 @@
+# I’m insulin-resistant and apple cider vinegar gives me dandruff and skin redness, any tips?
+
+If you're experiencing issues with apple cider vinegar, it's best to discontinue its use for now. Switching to organic varieties may alleviate the problem. In the meantime, consider alternative supplements to address insulin resistance, such as Berberine or cinnamon. Additionally, maintain a healthy ketogenic diet with organic ingredients to support your overall health and manage insulin levels effectively.

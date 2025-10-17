@@ -1,0 +1,3 @@
+# What are steroid drugs and what are side effects of them?
+
+Corticosteroids are primarily used to manage inflammation, but they suppress the immune system, increasing susceptibility to infections like pneumonia and potentially activating latent tuberculosis. Long-term use can lead to adrenal suppression and withdrawal symptoms such as osteoporosis, ulcers, and diabetes. Alternatives include curcumin, boswellia, green tea, vitamin D, and fasting. Corticosteroids should be used cautiously and for short durations.

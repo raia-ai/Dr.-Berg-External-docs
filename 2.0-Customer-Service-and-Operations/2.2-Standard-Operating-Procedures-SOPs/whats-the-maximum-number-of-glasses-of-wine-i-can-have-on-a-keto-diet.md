@@ -1,0 +1,3 @@
+# What’s the maximum number of glasses of wine I can have on a keto diet?
+
+How many glasses of wine you can drink while in ketosis depends on the carb content of the wine, your metabolism, and how efficiently your liver detoxifies alcohol. Dry wine tends to contain around four grams of carbs per serving. While this may fit into your daily carb count, it’s important to remember that ethanol blocks your liver's ability to burn fat, and drinking any amount of wine while in ketosis can interfere with weight loss and opposes the metabolic benefits of a low-carb diet. https://hls-player.drberg.com/asset?path=migrated-assets/can-i-drink-alcohol-on-keto-ketogenic-diet-drberg

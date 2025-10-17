@@ -1,0 +1,3 @@
+# Can I consume an antimicrobial formula containing Manuka honey without disrupting the benefits of autophagy, especially during fasting or other autophagy-promoting practices?
+
+No, consuming Manuka honey would inhibit the benefits of autophagy due to its fructose and glucose content, which can raise insulin levels. While honey has antimicrobial properties, other options, like celery, may be better suited if you're aiming to maintain autophagy. For antimicrobial benefits, consider alternatives that do not affect autophagy.

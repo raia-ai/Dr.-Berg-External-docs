@@ -1,0 +1,3 @@
+# Is liver cirrhosis reversible?
+
+The more scarring in your liver, the less your liver has the ability to detoxify your body. In turn, you may have a build-up of toxins in your body if you have liver fibrosis or cirrhosis. Liver fibrosis can start out with a fatty liver, liver inflammation, viral infections, alcohol consumption, a poor diet, low choline levels, too much iron, and certain drugs. So, back to the question, can you reverse liver cirrhosis? The answer is: it depends. If you have mild fibrosis or cirrhosis, it may be possible to reverse some of the damage. However, if you have severe liver cirrhosis, the problem may not be reversible.

@@ -1,0 +1,3 @@
+# What causes dyspareunia?
+
+This condition can cause pain during intercourse, pelvic exams, and horse riding, or while inserting a tampon or sitting too long. My opinion is that this condition is typically caused by oxalates in the vaginal area. Oxalates can form crystals that can look like razor blades and are behind other conditions, as well, like kidney stones and gout. Thankfully, there are natural remedies for dyspareunia and certain foods that may be helpful. You may also want to avoid high-oxalate foods for a while to help determine if oxalates could be involved.

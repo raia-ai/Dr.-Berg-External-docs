@@ -1,0 +1,7 @@
+# Why is it important to buy grass-fed grass-finished beef or 100% grass-fed?
+
+Many people envision cattle grazing in fields when they think of beef, and the term "grass-fed" on packaging reinforces this image. However, the reality of beef production in the country is often quite different. True grass-finished beef constitutes less than 1% of the total market.
+
+Standard practice involves raising cattle on grass for about the first six months. They are then transferred to feedlots for several months (typically 4-6). Here, their diet is primarily grain, including waste products from ethanol production, combined with antibiotics and growth-promoting medications. This allows for an unnatural rate of weight gain, up to 3.5 pounds daily, focused solely on rapid fattening. The conditions in feedlots are highly restrictive; animals are kept in very tight quarters, equivalent to six cows occupying just one parking space for months on end.
+
+This system culminates in the cattle being fattened and sent to slaughter. The challenge for consumers is that beef finished on grain is often marketed as "grass-fed." This can be misleading, leading consumers to pay considerably more (e.g., a 70% premium) for beef that did not complete its life cycle on grass, effectively paying a higher price for a grain-finished product. To ensure you are getting beef from animals raised exclusively on grass, labels specifying "grass-fed, grass-finished" or "100% grass-fed" are necessary.

@@ -1,0 +1,3 @@
+# Does organic labeling mean that a product contains no pesticides?
+
+3 Basic Definitions:1. Made with Organic Ingredients – It means 70% of the product has to be organic and 30% does not have to be organic and it could be GMO, pesticides, insecticides, herbicides, and fungicides.2. Organic – 95% has to be organic and 5% could be GMO, pesticides, insecticides, herbicides, and fungicides.3. 100% Organic – 100% has to be organic.https://hls-player.drberg.com/asset?path=migrated-assets/what-is-organic-pesticides-drberg

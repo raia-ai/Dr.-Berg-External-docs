@@ -1,0 +1,3 @@
+# What are the most effective treatments for acne?
+
+Acne is often influenced by overactive sebaceous glands, exacerbated by hormonal spikes during puberty, particularly androgens. Managing acne involves ensuring adequate vitamin A, omega-3 fatty acids, and vitamin D intake—benefits found in cod liver oil. Zinc supplementation also aids in regulating gland function. Avoiding seed oils and reducing sugar intake help mitigate insulin levels, which can indirectly elevate androgens associated with acne, notably in conditions like polycystic ovarian syndrome. A low-carb diet may significantly improve symptoms.

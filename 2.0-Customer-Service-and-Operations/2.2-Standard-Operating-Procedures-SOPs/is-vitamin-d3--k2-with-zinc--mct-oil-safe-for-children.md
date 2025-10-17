@@ -1,0 +1,3 @@
+# Is Vitamin D3 & K2 with Zinc & MCT Oil safe for children?
+
+Vitamin D3 & K2 with Zinc & MCT Oil can be child-friendly. However, the child's pediatrician will need to answer this question. Dr. Berg Nutritionals cannot advise on child usage. Vitamin D3 & K2 with Zinc & MCT Oil has measuring lines on the dropper (1.0 mL, 0.75 mL, 0.5 mL, and 0.25 mL) that can help estimate the amount of D3 to provide the child based on their doctor's recommendation. Based on the product label, .8 mL is 5000 IUs. .25 mL would be roughly 1562.5 IUs.

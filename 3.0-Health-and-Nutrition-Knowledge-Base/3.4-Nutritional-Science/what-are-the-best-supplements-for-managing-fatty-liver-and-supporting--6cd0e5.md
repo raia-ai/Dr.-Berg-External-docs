@@ -1,0 +1,3 @@
+# What are the best supplements for managing fatty liver and supporting health without a gallbladder?
+
+For addressing a fatty liver and the absence of a gallbladder, taking bile salts is essential. The gallbladder’s primary role is to concentrate bile, not just store it. Without this concentration, bile is less effective, which can impact the absorption of fat-soluble nutrients. Supplementing with bile salts can help mitigate this effect, ensuring proper nutrient extraction and supporting liver health in the long term.

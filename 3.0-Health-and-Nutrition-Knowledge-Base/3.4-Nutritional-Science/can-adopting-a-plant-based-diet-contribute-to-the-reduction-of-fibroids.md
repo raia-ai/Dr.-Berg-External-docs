@@ -1,0 +1,3 @@
+# Can adopting a plant-based diet contribute to the reduction of fibroids?
+
+Following a keto diet can be more challenging on a plant-based regimen due to the need for adequate protein and essential nutrients like B12, bioavailable forms of zinc and iron, and retinol (the active form of vitamin A). While it is possible to achieve a vegan keto diet, careful planning is essential to ensure you're obtaining these vital nutrients. I recommend watching my videos on how to effectively implement a vegan-style keto approach, as you may need to incorporate additional nutritional sources to meet your dietary needs.

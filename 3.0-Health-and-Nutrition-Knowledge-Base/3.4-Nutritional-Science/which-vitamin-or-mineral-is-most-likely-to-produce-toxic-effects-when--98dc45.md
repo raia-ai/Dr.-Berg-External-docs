@@ -1,0 +1,3 @@
+# Which vitamin or mineral is most likely to produce toxic effects when taken in excessive amounts, and what are the potential health risks associated with high doses?
+
+Out of all the vitamins and minerals, which one produces the most toxic effect if taken in large amounts? - Iron is the worst thing to take in excessive amounts because we don't have real any biochemical mechanism to get rid of iron. So when the cells take an iron, the cell dies off and then it gets eliminated through the bowel. Iron in high amounts, we don't need a lot of it and we can get anemia without of it, if you're deficient in it. But if you get too much way, it can create all sorts of problems and you never want to take iron when you have an infection.

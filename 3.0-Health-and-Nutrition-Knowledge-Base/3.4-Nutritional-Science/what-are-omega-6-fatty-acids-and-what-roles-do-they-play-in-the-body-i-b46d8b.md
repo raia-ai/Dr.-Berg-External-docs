@@ -1,0 +1,3 @@
+# What are omega-6 fatty acids, and what roles do they play in the body, including their sources and potential health effects?
+
+Omega-6 fatty acids are found in various vegetable oils such as soy, corn, canola, cottonseed, peanut, safflower, and sunflower oils. These oils, often used in salad dressings, mayonnaise, and restaurant cooking, are commonly promoted as healthy alternatives to saturated fats.

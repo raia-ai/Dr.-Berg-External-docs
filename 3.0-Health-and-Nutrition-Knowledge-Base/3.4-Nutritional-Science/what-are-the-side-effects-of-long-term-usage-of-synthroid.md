@@ -1,0 +1,3 @@
+# What are the side effects of long term usage of Synthroid?
+
+A potential side effect of taking Synthroid long-term, especially if a person is post-menopausal, is an increased risk of bone loss. The thyroid produces more than one hormone, but people are typically treated with only one hormone. So, what about the other hormones? You need these hormones—they are important for a healthy body. A lack of these essential hormones can lead to various symptoms, like bone loss. You may want to talk to your doctor about Armour® Thyroid. Armour Thyroid comes from a natural source and contains more than one thyroid hormone.

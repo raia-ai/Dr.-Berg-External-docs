@@ -1,0 +1,3 @@
+# Is the 5:2 method of intermittent fasting effective?
+
+5:2 fasting means that for five days a week, you are eating regularly with no restrictions on what you eat. For the other two days, you lower your calories by 75%. Although it may be reffered to as fasting commonly, this 5:2 diet is not intermittent fasting because you are just lowering your calories instead of creating consistent windows of eating and not eating.In addition, this diet will not allow you to reach a full state of ketosis. It also has no requirements that the foods you do eat be healthy. For these reasons, the 5:2 diet is not recommended.https://hls-player.drberg.com/asset?path=migrated-assets/why-i-dont-recommend-the-52-method-of-intermittent-fasting-drberg

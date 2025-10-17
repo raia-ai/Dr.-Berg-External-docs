@@ -1,0 +1,7 @@
+# How to soften dry and wrinkled skin?
+
+Most moisturizers contain alcohol, which dries and dehydrates your skin. Your moisturizer also gets absorbed into your skin, then into your bloodstream and liver. There are many natural dry skin remedies that can help, such as vitamin E, coconut oil, and tallow, but the best remedy for dry skin is hyaluronic acid.
+
+Many of your cells make hyaluronic acid, which is also found in your skin and joints. Hyaluronic acid holds 1000 times its weight in water and can keep your skin looking youthful. It’s intimately involved in wound repair and can repair skin after a sunburn. As we age, our hyaluronic acid decreases. There are also health conditions like progeria that cause you to lose hyaluronic acid.
+
+Hyaluronic acid can be injected, used topically, or taken orally. When taken orally, 2.5% of hyaluronic acid is absorbed, which can be enough to replace what you lose as you age. To get rid of dry, wrinkled hands and skin, take 200 mg of hyaluronic acid daily. You can also use it topically. Look for hyaluronic acid without alcohol, wet your hands, and apply a couple of drops. Rub your hands together to apply. You can also do this to your face. Also, focus on internal health to get rid of dry skin. Try Healthy Keto® to keep your skin looking healthy.

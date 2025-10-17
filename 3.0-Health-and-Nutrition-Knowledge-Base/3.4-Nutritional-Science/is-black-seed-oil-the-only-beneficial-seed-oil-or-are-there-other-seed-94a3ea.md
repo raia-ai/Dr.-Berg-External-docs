@@ -1,0 +1,5 @@
+# Is black seed oil the only beneficial seed oil, or are there other seed oils with notable health benefits?
+
+You know, there are some other, other seed oils, black currant seed oil, borage oil, things like that. But typically the problem with seeds is we're not really meant to consume a lot of oil from seeds or seeds themselves. Seeds have gotten us into trouble.
+
+If you think about 50% at least to the US and UK diet is seed based. Corn is a seed, soy is a seed. And so you've got wheat as a seed. So you've got all these seeds. And of course they're highly processed.And then you've got all the cottonseed, canola oils. We create all this processed food. And then on top of that, these monocrops basically are fed to the animals that we eat. So we're getting a lot of seeds. So I would hold off from the seeds for a while. You know, black seed oil is an exception.

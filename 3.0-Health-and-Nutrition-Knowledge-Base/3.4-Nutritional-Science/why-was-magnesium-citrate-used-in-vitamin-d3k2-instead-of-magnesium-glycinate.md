@@ -1,0 +1,3 @@
+# Why was magnesium citrate used in Vitamin D3K2 instead of magnesium glycinate?
+
+We opted for magnesium citrate in our D3 & K2 vitamin formula due to capsule size limitations. Achieving the desired 25mg of magnesium requires less volume with magnesium citrate than with magnesium glycinate. Using magnesium glycinate would have made it impossible to fit all the necessary ingredients into a single capsule.

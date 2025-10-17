@@ -1,0 +1,3 @@
+# Do frozen vegetables have the same nutritional content as fresh vegetables?
+
+Slightly lower but there's still a good amount of nutrition in frozen vegetables. So it's definitely better than heating the vegetables too much. When you do freeze drying you retain. And then you take out the water and they do it under low pressures. You preserve almost everything the enzymes, the vitamins, other proteins, and even the microbes that are in that vegetable.

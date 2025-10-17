@@ -1,0 +1,3 @@
+# How many alcoholic drinks can take you out of ketosis?
+
+How many drinks it takes to kick you out of ketosis depends on the type and quantity of alcohol consumed, your metabolism, and your detoxification capacities.While some people may be more resilient to alcohol’s impact on fat-burning, others may be kicked out of ketosis after drinking one alcoholic beverage. https://hls-player.drberg.com/asset?path=migrated-assets/how-much-alcohol-will-stop-weight-loss-and-ketosis-drberg

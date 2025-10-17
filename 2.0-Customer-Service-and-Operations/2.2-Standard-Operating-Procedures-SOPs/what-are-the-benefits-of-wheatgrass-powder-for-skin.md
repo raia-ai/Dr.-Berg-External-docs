@@ -1,0 +1,3 @@
+# What are the benefits of Wheatgrass Powder for skin?
+
+Many people have use wheat for consumption to increase health and energy, however, there are other uses as well. Using wheatgrass juice powder for external skin problems, cuts, burns, etc. could potentially greatly help you.https://hls-player.drberg.com/asset?path=migrated-assets/benefits-and-uses-of-wheatgrass-juice-powder-for-skin-problems-drberg

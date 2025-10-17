@@ -1,0 +1,3 @@
+# What does the Stress and Recovery Analyzer measure?
+
+Capture key health metrics to assess your health, track your progress, and monitor how your body responds to your diet, sleep patterns, workout routines, and lifestyle choices.Heart Rate Variability (HRV) is measured by monitoring the time variations between consecutive heartbeats. These variations are influenced by various physiological functions, and evaluating HRV offers valuable insight into your well-being and stress levels.The Dr. Berg Stress and Recovery Analyzer captures twelve vital health metrics:Stress indexAutonomic balanceResting heart rate Heart rate variability index (vitality index)Recovery index Adaptation struggle Adaptation reserve Adaptation cycleOxygen saturationBiological ageAging speedHR index

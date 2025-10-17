@@ -1,0 +1,3 @@
+# Nutritional Yeast Flakes - Why doesn't the label list naturally occurring vitamins and minerals percentages?
+
+Nutritional yeast tablets are a supplement, while nutritional yeast flakes are considered a food product. Food labels typically only list the ingredient "Nutritional Yeast Flakes" without detailed nutritional information. While the nutritional profile of both products is likely similar, we don't have exact quantities for comparison.

@@ -1,0 +1,3 @@
+# What does Dr. Berg recommend for someone with egg intolerance?
+
+Dr. Berg suggests that egg intolerance or allergy may sometimes be linked to early vaccine exposure, which can introduce allergens like egg proteins or peanuts. If you have an egg intolerance, it’s advisable to avoid eggs initially and then gradually reintroduce them into your diet. Eggs are considered a highly nutritious food, so careful reintroduction may help you tolerate them better over time.

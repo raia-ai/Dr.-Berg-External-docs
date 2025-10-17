@@ -1,0 +1,3 @@
+# Is it possible to consume an excessive amount of omega-3 fatty acids?
+
+Achieving a balanced intake of omega-6 and omega-3 fatty acids is essential for optimal health. While both are necessary, modern diets often emphasize omega-6 sources, which can contribute to inflammation if consumed excessively. Omega-3 fatty acids, found in foods like fish and flaxseed, help counteract inflammation and promote overall well-being. It's crucial to reduce intake of processed omega-6 oils and prioritize natural sources of omega-3 to maintain a healthy fatty acid balance.

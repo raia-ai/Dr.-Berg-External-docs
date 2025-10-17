@@ -1,0 +1,3 @@
+# Could the consumption of nutritional yeast contribute to the development of constipation?
+
+I would recommend exploring other factors, as nutritional yeast is unlikely to cause constipation due to its minimal caloric content. It's worth examining other dietary changes you may have made. For some individuals, excessive salad or greens can lead to digestive issues, while for others, insufficient greens may be the problem. Consider reviewing any recent additions to your diet that could be contributing to the issue.

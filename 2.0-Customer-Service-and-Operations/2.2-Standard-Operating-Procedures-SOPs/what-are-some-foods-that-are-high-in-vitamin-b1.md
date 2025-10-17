@@ -1,0 +1,3 @@
+# What are some foods that are high in vitamin B1?
+
+The best source of vitamin B1 is nutritional yeast. Nutritional yeast is the best natural source of B vitamins. Avoid taking synthetic vitamin B supplements. The following are other sources of vitamin B1:1. Pork 6oz - 1.1mg (96% of RDA)2. Salmon 6oz - .6mg (48% of RDA)3. Flax 1oz - .5mg (39% of RDA)4. Sunflower feeds 1oz - .4mg (35% of RDA)5. Green peas 1 cup - .4mg (35% of RDA)6. Macadamia nuts 1oz - .3mg (30% of RDA)7. Acorn squash 1 cup - .3mg (30% of RDA) https://hls-player.drberg.com/asset?path=migrated-assets/top-foods-high-in-vitamin-b1

@@ -1,0 +1,3 @@
+# How should I get started with a ketogenic diet?
+
+To start the keto diet correctly, focus on shifting your body into ketosis, where it uses ketones instead of sugar for fuel. Cut out carbs and sugars, including grains, sweets, and most fruits. Limit eating to 1-2 meals a day to reduce insulin spikes and promote fat burning. Load up on low-carb vegetables, aiming for 7-10 cups daily. Consume moderate amounts of protein (3-8 oz per meal) from sources like meat, eggs, and cheese. Prioritize healthy fats like avocado and olive oil while avoiding unhealthy options like soy and corn oil. Consider incorporating intermittent fasting. https://www.youtube.com/embed/dR6TnC1RY_8

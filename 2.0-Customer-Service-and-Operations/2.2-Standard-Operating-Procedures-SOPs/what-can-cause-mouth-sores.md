@@ -1,0 +1,3 @@
+# What can cause mouth sores?
+
+Mouth Sores: Causes and RemediesTypes:1. Canker Sores: Inside the mouth; caused by nutrient deficiencies.2. Cold Sores: On or around the lips; caused by herpes simplex virus.Canker Sores- Cause: Deficiency in B12 and folate (B9).- Remedies: - Take nutritional yeast. - Avoid refined grains (bread, pasta, crackers, etc.). - For digestive issues: - Apple cider vinegar (1-2 tsp in water) before meals. - Betaine hydrochloride before meals. - Purified bile salts. - Healthy Keto® diet. - Intermittent fasting.Cold Sores- Cause: Herpes simplex virus, often triggered by stress.- Remedies: - Take lysine. - Use natural vitamin C complex. - Consume vitamin C-rich foods. - Take vitamin D3. - Use natural antibiotics.

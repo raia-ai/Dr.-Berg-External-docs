@@ -1,0 +1,3 @@
+# What's the biggest benefit of fasting?
+
+One of the best benefits of fasting is a process known as autophagy. Autophagy is a process where cells recycle damaged components and eliminate pathogenic microbes like mold, viruses, fungi, bacteria, and candida. This mechanism is considered the ultimate anti-aging strategy, as it involves lysosomes, the cell's mini-garbage disposals, which clear out waste and send the particles to the liver for fuel or the creation of new cell parts.
