@@ -6,7 +6,7 @@
 
 **GitBook Framework for AI Agent Vector Store Optimization**
 
----
+***
 
 ## Overview
 
@@ -22,7 +22,7 @@ This GitBook structure contains the complete knowledge base for Dr. Berg Nutriti
 **Version:** 1.1
 >>>>>>> 6261ab5f98015be263f5ee2b15ec62145020cc19
 
----
+***
 
 ## Structure
 
