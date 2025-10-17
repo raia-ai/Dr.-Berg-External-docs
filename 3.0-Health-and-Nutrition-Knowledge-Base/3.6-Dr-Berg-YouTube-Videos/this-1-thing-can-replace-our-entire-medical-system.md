@@ -1,0 +1,167 @@
+# This 1 Thing Can Replace Our Entire Medical System
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=gKviXbX8xGM](https://www.youtube.com/watch?v=gKviXbX8xGM)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=gKviXbX8xGM&t=0s)** — This one thing could literally replace our entire medical system.
+- **[00:05](https://www.youtube.com/watch?v=gKviXbX8xGM&t=5s)** — Now, I'm not talking about emergency care, things like that.
+- **[00:08](https://www.youtube.com/watch?v=gKviXbX8xGM&t=8s)** — I'm mainly talking about chronic disease.
+- **[00:10](https://www.youtube.com/watch?v=gKviXbX8xGM&t=10s)** — I really looked at this topic from many different angles.
+- **[00:14](https://www.youtube.com/watch?v=gKviXbX8xGM&t=14s)** — Just posing this question, what is the most powerful thing you can do for your health?
+- **[00:17](https://www.youtube.com/watch?v=gKviXbX8xGM&t=17s)** — Everyone can afford it. It will produce the most weight loss of anything that you do.
+- **[00:21](https://www.youtube.com/watch?v=gKviXbX8xGM&t=21s)** — It will fix a stubborn metabolism.
+- **[00:23](https://www.youtube.com/watch?v=gKviXbX8xGM&t=23s)** — And that's called the set point. So you might lose, let's say, 20 pounds, but then you...
+- **[00:27](https://www.youtube.com/watch?v=gKviXbX8xGM&t=27s)** — your body will not let you lose more than that.
+- **[00:29](https://www.youtube.com/watch?v=gKviXbX8xGM&t=29s)** — This particular thing will address that and fix that.
+- **[00:32](https://www.youtube.com/watch?v=gKviXbX8xGM&t=32s)** — This natural therapy has the ability to fix your brain, repair brain tissue.
+- **[00:38](https://www.youtube.com/watch?v=gKviXbX8xGM&t=38s)** — It actually helps regrow your brain cells.
+- **[00:40](https://www.youtube.com/watch?v=gKviXbX8xGM&t=40s)** — It increases your mood, your cognitive function.
+- **[00:43](https://www.youtube.com/watch?v=gKviXbX8xGM&t=43s)** — The effects of this therapy on your mitochondria are very similar to exercise.
+- **[00:48](https://www.youtube.com/watch?v=gKviXbX8xGM&t=48s)** — Can you guess what it is? If you guess fasting, you are correct.
+- **[00:52](https://www.youtube.com/watch?v=gKviXbX8xGM&t=52s)** — If you did fasting, your medical expenses will go way, way down.
+- **[00:56](https://www.youtube.com/watch?v=gKviXbX8xGM&t=56s)** — You're not starving your body. You are just controlling when you eat and when you're not eating.
+- **[01:02](https://www.youtube.com/watch?v=gKviXbX8xGM&t=62s)** — When I was first introduced to fasting, I really did not think anything about it.
+- **[01:05](https://www.youtube.com/watch?v=gKviXbX8xGM&t=65s)** — I thought it was like, what's that going to do?
+- **[01:07](https://www.youtube.com/watch?v=gKviXbX8xGM&t=67s)** — It's not changing the calories that you're eating.
+- **[01:10](https://www.youtube.com/watch?v=gKviXbX8xGM&t=70s)** — Until I started looking at it, especially from our history of how humans have developed.
+- **[01:16](https://www.youtube.com/watch?v=gKviXbX8xGM&t=76s)** — Because the root problem of over 80% of all diseases is insulin resistance.
+- **[01:20](https://www.youtube.com/watch?v=gKviXbX8xGM&t=80s)** — So all you really need to know at this point is that too much insulin creates a lot of problems for your body.
+- **[01:24](https://www.youtube.com/watch?v=gKviXbX8xGM&t=84s)** — So fasting fixes that problem.
+- **[01:27](https://www.youtube.com/watch?v=gKviXbX8xGM&t=87s)** — So you have genes right now in your body to fix almost everything.
+- **[01:32](https://www.youtube.com/watch?v=gKviXbX8xGM&t=92s)** — Okay, but the question is, how do you turn on those genes to fix things?
+- **[01:36](https://www.youtube.com/watch?v=gKviXbX8xGM&t=96s)** — Well, there are certain triggers. Things that you can control, lifestyle, food, not eating.
+- **[01:41](https://www.youtube.com/watch?v=gKviXbX8xGM&t=101s)** — It's the absence of eating that triggers a lot of these survival genes.
+- **[01:46](https://www.youtube.com/watch?v=gKviXbX8xGM&t=106s)** — So in this process of not eating, your body converts over into burning fat and ketones.
+- **[01:52](https://www.youtube.com/watch?v=gKviXbX8xGM&t=112s)** — So there's going to be a point where your body is now adapted to burning ketones.
+- **[01:57](https://www.youtube.com/watch?v=gKviXbX8xGM&t=117s)** — And that takes sometimes like three days.
+- **[01:59](https://www.youtube.com/watch?v=gKviXbX8xGM&t=119s)** — Now another question I get a lot is, how should someone fast if they're a woman versus a man?
+- **[02:04](https://www.youtube.com/watch?v=gKviXbX8xGM&t=124s)** — And there's a really good book I recommend. I'll put the link down below. It's entitled Fast Like a Girl.
+- **[02:08](https://www.youtube.com/watch?v=gKviXbX8xGM&t=128s)** — Now because a woman goes through this whole monthly cycle, you have to adjust the fasting schedule a little bit.
+- **[02:14](https://www.youtube.com/watch?v=gKviXbX8xGM&t=134s)** — So in Dr. Mindy's book, to keep this really simple, as soon as you have your period
+- **[02:18](https://www.youtube.com/watch?v=gKviXbX8xGM&t=138s)** — and the hormones are starting to build up between day one and day 10 is when you want to do some hardcore fasting.
+- **[02:25](https://www.youtube.com/watch?v=gKviXbX8xGM&t=145s)** — Because you have enough hormones to be able to afford to do fasting.
+- **[02:28](https://www.youtube.com/watch?v=gKviXbX8xGM&t=148s)** — And this is the time you want to do fasting, especially to lose weight.
+- **[02:32](https://www.youtube.com/watch?v=gKviXbX8xGM&t=152s)** — But as we get to day 20, okay, so now we're on day 20 all the way to the end of the month.
+- **[02:38](https://www.youtube.com/watch?v=gKviXbX8xGM&t=158s)** — That's when you don't want to fast. There's already too much stress on the body.
+- **[02:42](https://www.youtube.com/watch?v=gKviXbX8xGM&t=162s)** — You don't want to add fasting to alter those hormones.
+- **[02:45](https://www.youtube.com/watch?v=gKviXbX8xGM&t=165s)** — But then as soon as you have your period, the next 10 days, you're right back on track.
+- **[02:50](https://www.youtube.com/watch?v=gKviXbX8xGM&t=170s)** — That doesn't mean I recommend snacking. Maybe just three meals. I think that would be sufficient.
+- **[02:55](https://www.youtube.com/watch?v=gKviXbX8xGM&t=175s)** — So that's a real rough summary of her book. You can get a lot more details if you want to get it.
+- **[02:59](https://www.youtube.com/watch?v=gKviXbX8xGM&t=179s)** — I'll put the link down below.
+- **[03:00](https://www.youtube.com/watch?v=gKviXbX8xGM&t=180s)** — If we're dealing with hormones, these hormones are made out of cholesterol.
+- **[03:06](https://www.youtube.com/watch?v=gKviXbX8xGM&t=186s)** — Then that cholesterol is then turned into these steroid hormones.
+- **[03:10](https://www.youtube.com/watch?v=gKviXbX8xGM&t=190s)** — Out of all the hormones, progesterone is probably one of the most potent protectors of the brain.
+- **[03:19](https://www.youtube.com/watch?v=gKviXbX8xGM&t=199s)** — When progesterone goes too low, your brain is at risk.
+- **[03:23](https://www.youtube.com/watch?v=gKviXbX8xGM&t=203s)** — So the whole point on that is just to make sure you have enough of the raw material.
+- **[03:27](https://www.youtube.com/watch?v=gKviXbX8xGM&t=207s)** — And the raw material I'm talking about is cholesterol.
+- **[03:30](https://www.youtube.com/watch?v=gKviXbX8xGM&t=210s)** — There is a lot of cholesterol in egg yolks, in shellfish like shrimp.
+- **[03:36](https://www.youtube.com/watch?v=gKviXbX8xGM&t=216s)** — Liver has cholesterol. Fatty cheese has cholesterol.
+- **[03:39](https://www.youtube.com/watch?v=gKviXbX8xGM&t=219s)** — You also want to make sure that you really deal with the stress level.
+- **[03:42](https://www.youtube.com/watch?v=gKviXbX8xGM&t=222s)** — Because if the stress is really high during menopause,
+- **[03:44](https://www.youtube.com/watch?v=gKviXbX8xGM&t=224s)** — what will happen is your adrenals will start stealing some of the raw material
+- **[03:48](https://www.youtube.com/watch?v=gKviXbX8xGM&t=228s)** — and take them away from progesterone and other hormones.
+- **[03:52](https://www.youtube.com/watch?v=gKviXbX8xGM&t=232s)** — So doing things to reduce stress is super, super important.
+- **[03:55](https://www.youtube.com/watch?v=gKviXbX8xGM&t=235s)** — There's actually two cofactors that are really important that a lot of people are missing.
+- **[04:00](https://www.youtube.com/watch?v=gKviXbX8xGM&t=240s)** — And that would be magnesium and zinc.
+- **[04:04](https://www.youtube.com/watch?v=gKviXbX8xGM&t=244s)** — What you need to know about magnesium is number one, most people are deficient.
+- **[04:07](https://www.youtube.com/watch?v=gKviXbX8xGM&t=247s)** — Number two, it's almost impossible to test for it.
+- **[04:10](https://www.youtube.com/watch?v=gKviXbX8xGM&t=250s)** — You can't test for it in the blood because most of it is inside the cell.
+- **[04:14](https://www.youtube.com/watch?v=gKviXbX8xGM&t=254s)** — You have to do a very sophisticated test to measure it.
+- **[04:17](https://www.youtube.com/watch?v=gKviXbX8xGM&t=257s)** — And most, if not all, doctors do not test for magnesium.
+- **[04:21](https://www.youtube.com/watch?v=gKviXbX8xGM&t=261s)** — The one you want is magnesium glycinate before bed.
+- **[04:24](https://www.youtube.com/watch?v=gKviXbX8xGM&t=264s)** — And you want at least 400 milligrams.
+- **[04:27](https://www.youtube.com/watch?v=gKviXbX8xGM&t=267s)** — Now as far as zinc goes, you need about 50 milligrams of zinc.
+- **[04:32](https://www.youtube.com/watch?v=gKviXbX8xGM&t=272s)** — But if you had shellfish, you can easily get your zinc, especially oysters.
+- **[04:36](https://www.youtube.com/watch?v=gKviXbX8xGM&t=276s)** — Now a couple rules about fasting.
+- **[04:38](https://www.youtube.com/watch?v=gKviXbX8xGM&t=278s)** — The rule of thumb is don't eat if you're not hungry.
+- **[04:41](https://www.youtube.com/watch?v=gKviXbX8xGM&t=281s)** — Ride the wave. Go a little longer.
+- **[04:43](https://www.youtube.com/watch?v=gKviXbX8xGM&t=283s)** — Because if you were able to go 36 to even 72 hours of fasting,
+- **[04:49](https://www.youtube.com/watch?v=gKviXbX8xGM&t=289s)** — you literally are going to generate immune stem cells.
+- **[04:52](https://www.youtube.com/watch?v=gKviXbX8xGM&t=292s)** — That's huge. So number one, let your body tell you how long to fast.
+- **[04:57](https://www.youtube.com/watch?v=gKviXbX8xGM&t=297s)** — If you do fasting and you feel like crap, you need to eat.
+- **[05:00](https://www.youtube.com/watch?v=gKviXbX8xGM&t=300s)** — I would say everyone could do this intermittent fasting.
+- **[05:03](https://www.youtube.com/watch?v=gKviXbX8xGM&t=303s)** — But when we get into more prolonged fasting,
+- **[05:05](https://www.youtube.com/watch?v=gKviXbX8xGM&t=305s)** — allow your body to tell you if it's working.
+- **[05:08](https://www.youtube.com/watch?v=gKviXbX8xGM&t=308s)** — And also it really depends on what you're trying to solve.
+- **[05:11](https://www.youtube.com/watch?v=gKviXbX8xGM&t=311s)** — If you're trying to lose weight, of course you want to fast a lot longer.
+- **[05:14](https://www.youtube.com/watch?v=gKviXbX8xGM&t=314s)** — Now there's also this topic that you may have heard,
+- **[05:18](https://www.youtube.com/watch?v=gKviXbX8xGM&t=318s)** — when you do low carb, your cortisol is going to increase.
+- **[05:22](https://www.youtube.com/watch?v=gKviXbX8xGM&t=322s)** — There is no hardcore evidence that shows that cortisol is going to increase
+- **[05:25](https://www.youtube.com/watch?v=gKviXbX8xGM&t=325s)** — when you do fasting or on a low carb diet.
+- **[05:27](https://www.youtube.com/watch?v=gKviXbX8xGM&t=327s)** — Because that study was done on rats.
+- **[05:30](https://www.youtube.com/watch?v=gKviXbX8xGM&t=330s)** — And yeah, okay, so if something works on rats, it may work on humans.
+- **[05:34](https://www.youtube.com/watch?v=gKviXbX8xGM&t=334s)** — But that is in the area of opinion. It's not based on facts.
+- **[05:37](https://www.youtube.com/watch?v=gKviXbX8xGM&t=337s)** — I have over 8,000 success stories on my website.
+- **[05:41](https://www.youtube.com/watch?v=gKviXbX8xGM&t=341s)** — From people doing this, getting off medication,
+- **[05:44](https://www.youtube.com/watch?v=gKviXbX8xGM&t=344s)** — to losing a ton of weight, to sleeping better,
+- **[05:46](https://www.youtube.com/watch?v=gKviXbX8xGM&t=346s)** — to getting rid of inflammation.
+- **[05:48](https://www.youtube.com/watch?v=gKviXbX8xGM&t=348s)** — So how do you explain all that?
+- **[05:49](https://www.youtube.com/watch?v=gKviXbX8xGM&t=349s)** — Also, I've talked to a lot of people who have done low carb and intermittent fasting for many years.
+- **[05:53](https://www.youtube.com/watch?v=gKviXbX8xGM&t=353s)** — I don't know of anyone who told me all of a sudden they started getting stressed out
+- **[05:58](https://www.youtube.com/watch?v=gKviXbX8xGM&t=358s)** — or they're having stress problems at all.
+- **[06:00](https://www.youtube.com/watch?v=gKviXbX8xGM&t=360s)** — Also, when you do fasting, you're making your cells more sensitive to insulin.
+- **[06:06](https://www.youtube.com/watch?v=gKviXbX8xGM&t=366s)** — And that alone is going to offset the raising of cortisol.
+- **[06:09](https://www.youtube.com/watch?v=gKviXbX8xGM&t=369s)** — Because insulin now is working. It's more efficient.
+- **[06:12](https://www.youtube.com/watch?v=gKviXbX8xGM&t=372s)** — So there's two types of fasting I want to talk about.
+- **[06:14](https://www.youtube.com/watch?v=gKviXbX8xGM&t=374s)** — You have water fasting. So you're not eating food.
+- **[06:18](https://www.youtube.com/watch?v=gKviXbX8xGM&t=378s)** — Then you have something called a dry fast.
+- **[06:20](https://www.youtube.com/watch?v=gKviXbX8xGM&t=380s)** — Where you're not eating any food and you're not drinking any water.
+- **[06:24](https://www.youtube.com/watch?v=gKviXbX8xGM&t=384s)** — Now, I looked into the dehydration genes.
+- **[06:27](https://www.youtube.com/watch?v=gKviXbX8xGM&t=387s)** — So when you dehydrate yourself, okay, to a certain degree,
+- **[06:30](https://www.youtube.com/watch?v=gKviXbX8xGM&t=390s)** — you have a series of genes that kick in or are expressed.
+- **[06:36](https://www.youtube.com/watch?v=gKviXbX8xGM&t=396s)** — And I started looking at those genes.
+- **[06:38](https://www.youtube.com/watch?v=gKviXbX8xGM&t=398s)** — And a lot of the functions have to do with hydration and keeping your body hydrated
+- **[06:42](https://www.youtube.com/watch?v=gKviXbX8xGM&t=402s)** — and not letting too much fluid go out.
+- **[06:44](https://www.youtube.com/watch?v=gKviXbX8xGM&t=404s)** — But one is enhanced weight loss.
+- **[06:49](https://www.youtube.com/watch?v=gKviXbX8xGM&t=409s)** — This might be hard to believe, but your fat can be converted to water.
+- **[06:54](https://www.youtube.com/watch?v=gKviXbX8xGM&t=414s)** — If you take one pound of fat and you burn it with oxygen,
+- **[06:58](https://www.youtube.com/watch?v=gKviXbX8xGM&t=418s)** — it'll turn into a little bit more than one pound of water.
+- **[07:01](https://www.youtube.com/watch?v=gKviXbX8xGM&t=421s)** — So it's not that fat is saturated with water.
+- **[07:04](https://www.youtube.com/watch?v=gKviXbX8xGM&t=424s)** — When you burn that fat, it turns into water.
+- **[07:07](https://www.youtube.com/watch?v=gKviXbX8xGM&t=427s)** — And this is really bizarre. Look it up. It's totally true.
+- **[07:10](https://www.youtube.com/watch?v=gKviXbX8xGM&t=430s)** — The point is we're not trying to dehydrate you.
+- **[07:12](https://www.youtube.com/watch?v=gKviXbX8xGM&t=432s)** — We're just trying to control when you feed the body water.
+- **[07:16](https://www.youtube.com/watch?v=gKviXbX8xGM&t=436s)** — There's more antioxidants to develop in the brain.
+- **[07:19](https://www.youtube.com/watch?v=gKviXbX8xGM&t=439s)** — You get enhanced autophagy.
+- **[07:21](https://www.youtube.com/watch?v=gKviXbX8xGM&t=441s)** — So you get a deeper cleaning of the cells.
+- **[07:24](https://www.youtube.com/watch?v=gKviXbX8xGM&t=444s)** — You get more detoxification from the liver.
+- **[07:26](https://www.youtube.com/watch?v=gKviXbX8xGM&t=446s)** — As far as what I'm doing presently.
+- **[07:29](https://www.youtube.com/watch?v=gKviXbX8xGM&t=449s)** — And I will switch it up occasionally.
+- **[07:31](https://www.youtube.com/watch?v=gKviXbX8xGM&t=451s)** — But I used to fast from dinner all the way and just skip breakfast
+- **[07:35](https://www.youtube.com/watch?v=gKviXbX8xGM&t=455s)** — and have the first meal, let's say a late lunch at two, maybe three.
+- **[07:40](https://www.youtube.com/watch?v=gKviXbX8xGM&t=460s)** — And then also have a dinner.
+- **[07:42](https://www.youtube.com/watch?v=gKviXbX8xGM&t=462s)** — Now what I'm doing is I'm actually consuming a breakfast in the morning.
+- **[07:46](https://www.youtube.com/watch?v=gKviXbX8xGM&t=466s)** — Sometimes it's at 930. Sometimes it's at 10. Sometimes 11.
+- **[07:50](https://www.youtube.com/watch?v=gKviXbX8xGM&t=470s)** — And then I'll also have a lunch at one.
+- **[07:53](https://www.youtube.com/watch?v=gKviXbX8xGM&t=473s)** — Sometimes my second meal is at two.
+- **[07:55](https://www.youtube.com/watch?v=gKviXbX8xGM&t=475s)** — But what I've done is I'm feeding my body more when I need more energy,
+- **[07:59](https://www.youtube.com/watch?v=gKviXbX8xGM&t=479s)** — which is in the first part of the day versus later at night.
+- **[08:03](https://www.youtube.com/watch?v=gKviXbX8xGM&t=483s)** — I don't need all that energy.
+- **[08:04](https://www.youtube.com/watch?v=gKviXbX8xGM&t=484s)** — I don't want to go to bed with a big meal on my stomach.
+- **[08:07](https://www.youtube.com/watch?v=gKviXbX8xGM&t=487s)** — Now, if you do fasting and you notice your hair is falling out
+- **[08:12](https://www.youtube.com/watch?v=gKviXbX8xGM&t=492s)** — or you're losing your cycle, then you need to look at what you're eating more closely.
+- **[08:18](https://www.youtube.com/watch?v=gKviXbX8xGM&t=498s)** — Chances are you're not getting enough protein.
+- **[08:20](https://www.youtube.com/watch?v=gKviXbX8xGM&t=500s)** — I'm talking about the highest quality protein that you can get.
+- **[08:23](https://www.youtube.com/watch?v=gKviXbX8xGM&t=503s)** — And that would be grass-fed red meat.
+- **[08:25](https://www.youtube.com/watch?v=gKviXbX8xGM&t=505s)** — I would start to beef up that, no pun intended,
+- **[08:29](https://www.youtube.com/watch?v=gKviXbX8xGM&t=509s)** — to the point where your body can get those amino acids.
+- **[08:31](https://www.youtube.com/watch?v=gKviXbX8xGM&t=511s)** — And plus with the red meat comes all the B vitamins, the trace minerals,
+- **[08:36](https://www.youtube.com/watch?v=gKviXbX8xGM&t=516s)** — everything you need for hair growth.
+- **[08:38](https://www.youtube.com/watch?v=gKviXbX8xGM&t=518s)** — If you're not getting enough sea salt when you're doing fasting,
+- **[08:41](https://www.youtube.com/watch?v=gKviXbX8xGM&t=521s)** — you're not going to be able to sleep as well.
+- **[08:43](https://www.youtube.com/watch?v=gKviXbX8xGM&t=523s)** — So don't forget about that.
+- **[08:44](https://www.youtube.com/watch?v=gKviXbX8xGM&t=524s)** — Most people need about a level teaspoon of sea salt every single day.
+- **[08:48](https://www.youtube.com/watch?v=gKviXbX8xGM&t=528s)** — Sleep is really, really important too.
+- **[08:51](https://www.youtube.com/watch?v=gKviXbX8xGM&t=531s)** — If you don't feel like you're getting enough sleep, you're going to be hungrier.
+- **[08:54](https://www.youtube.com/watch?v=gKviXbX8xGM&t=534s)** — And for some people that just can't sleep when they're doing fasting,
+- **[08:58](https://www.youtube.com/watch?v=gKviXbX8xGM&t=538s)** — at that point, I do recommend taking melatonin.
+- **[09:01](https://www.youtube.com/watch?v=gKviXbX8xGM&t=541s)** — Maybe you work up to five milligrams and eventually up to 10 milligrams
+- **[09:05](https://www.youtube.com/watch?v=gKviXbX8xGM&t=545s)** — and you take that before bed.
+- **[09:07](https://www.youtube.com/watch?v=gKviXbX8xGM&t=547s)** — All right. So now that you know a little bit more about fasting,
+- **[09:10](https://www.youtube.com/watch?v=gKviXbX8xGM&t=550s)** — if you want to know what to eat, you should watch this video right here.
+- **[09:13](https://www.youtube.com/watch?v=gKviXbX8xGM&t=553s)** — Check it out.

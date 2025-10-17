@@ -1,0 +1,94 @@
+# The SHOCKING #1 Cause of High Blood Pressure
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=a7wgLehFAbc](https://www.youtube.com/watch?v=a7wgLehFAbc)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=a7wgLehFAbc&t=0s)** — High blood pressure, hypertension is not a disease. It's a symptom.
+- **[00:04](https://www.youtube.com/watch?v=a7wgLehFAbc&t=4s)** — 90% of hypertension is a known cause.
+- **[00:08](https://www.youtube.com/watch?v=a7wgLehFAbc&t=8s)** — Well, today I'm going to tell you what the cause is.
+- **[00:10](https://www.youtube.com/watch?v=a7wgLehFAbc&t=10s)** — When you start telling people that 90% of hypertension is unknown,
+- **[00:13](https://www.youtube.com/watch?v=a7wgLehFAbc&t=13s)** — you make the drug companies rich because you turn the person into an ATM for certain medications.
+- **[00:18](https://www.youtube.com/watch?v=a7wgLehFAbc&t=18s)** — It's very profitable if you don't let people know what the primary cause is.
+- **[00:22](https://www.youtube.com/watch?v=a7wgLehFAbc&t=22s)** — Let me show you what the primary cause is.
+- **[00:24](https://www.youtube.com/watch?v=a7wgLehFAbc&t=24s)** — Okay, so here we have an artery.
+- **[00:25](https://www.youtube.com/watch?v=a7wgLehFAbc&t=25s)** — You have a certain layer, it's called an endothelial layer of cells.
+- **[00:30](https://www.youtube.com/watch?v=a7wgLehFAbc&t=30s)** — That cell layer has these little tiny receptors for insulin.
+- **[00:35](https://www.youtube.com/watch?v=a7wgLehFAbc&t=35s)** — And insulin triggers something that causes the artery to relax.
+- **[00:41](https://www.youtube.com/watch?v=a7wgLehFAbc&t=41s)** — When that receptor becomes damaged, you get high blood pressure.
+- **[00:45](https://www.youtube.com/watch?v=a7wgLehFAbc&t=45s)** — But the problem is, if you fix insulin resistance, sometimes it doesn't lower the blood pressure.
+- **[00:51](https://www.youtube.com/watch?v=a7wgLehFAbc&t=51s)** — The question is, why? Because when you damage that receptor, the receptor won't let insulin in anymore.
+- **[00:55](https://www.youtube.com/watch?v=a7wgLehFAbc&t=55s)** — Now it's really hard to regulate and relax the blood vessels.
+- **[00:59](https://www.youtube.com/watch?v=a7wgLehFAbc&t=59s)** — Also, insulin causes too much calcium to go inside the cells.
+- **[01:04](https://www.youtube.com/watch?v=a7wgLehFAbc&t=64s)** — And this is why they use calcium channel blockers.
+- **[01:07](https://www.youtube.com/watch?v=a7wgLehFAbc&t=67s)** — The cause is insulin resistance. That's ignored.
+- **[01:10](https://www.youtube.com/watch?v=a7wgLehFAbc&t=70s)** — Because like I said before, 90% of hypertension is unknown cause.
+- **[01:15](https://www.youtube.com/watch?v=a7wgLehFAbc&t=75s)** — That's very interesting. But let me just give you a little bit more data.
+- **[01:18](https://www.youtube.com/watch?v=a7wgLehFAbc&t=78s)** — There is normally supposed to be a little protective shield around that endothelium, that layer.
+- **[01:24](https://www.youtube.com/watch?v=a7wgLehFAbc&t=84s)** — It's kind of like something on your frying pan that is a non-stick surface.
+- **[01:28](https://www.youtube.com/watch?v=a7wgLehFAbc&t=88s)** — And when that substance becomes damaged, then we get damage directly to cells.
+- **[01:34](https://www.youtube.com/watch?v=a7wgLehFAbc&t=94s)** — And then you start having a cascade of issues where you get holes into the area.
+- **[01:38](https://www.youtube.com/watch?v=a7wgLehFAbc&t=98s)** — You get inflammation, calcium buildup, excess clotting.
+- **[01:42](https://www.youtube.com/watch?v=a7wgLehFAbc&t=102s)** — What's that little protective shield? The glycocalyx.
+- **[01:45](https://www.youtube.com/watch?v=a7wgLehFAbc&t=105s)** — And that glycocalyx is super vulnerable to getting damaged from too much glucose or fructose.
+- **[01:51](https://www.youtube.com/watch?v=a7wgLehFAbc&t=111s)** — And it's kind of weird that a sugar actually destroys sugar, but it does.
+- **[01:54](https://www.youtube.com/watch?v=a7wgLehFAbc&t=114s)** — So when the sugar is too high or there's too much starch, you start getting this rusting out of that layer.
+- **[02:00](https://www.youtube.com/watch?v=a7wgLehFAbc&t=120s)** — It's like acid rain. It goes in there. It dissolves it very quickly.
+- **[02:04](https://www.youtube.com/watch?v=a7wgLehFAbc&t=124s)** — And without it, you get a lot of damage inside that artery, especially hypertension.
+- **[02:08](https://www.youtube.com/watch?v=a7wgLehFAbc&t=128s)** — And I'm going to talk about that. But I first want to talk about some other things.
+- **[02:12](https://www.youtube.com/watch?v=a7wgLehFAbc&t=132s)** — Because insulin resistance also creates serious deficiencies of other nutrients that if you don't fix those,
+- **[02:19](https://www.youtube.com/watch?v=a7wgLehFAbc&t=139s)** — it's going to take a long time to get your blood pressure lowered.
+- **[02:22](https://www.youtube.com/watch?v=a7wgLehFAbc&t=142s)** — So I'm going to recommend a combination of two different things to fix your hypertension very, very fast.
+- **[02:28](https://www.youtube.com/watch?v=a7wgLehFAbc&t=148s)** — Going on a low carb diet and doing intermittent fasting.
+- **[02:31](https://www.youtube.com/watch?v=a7wgLehFAbc&t=151s)** — And I'm going to also put the link down below of how to do that correctly.
+- **[02:34](https://www.youtube.com/watch?v=a7wgLehFAbc&t=154s)** — At the same time, we want to get the blood pressure down very, very quickly.
+- **[02:38](https://www.youtube.com/watch?v=a7wgLehFAbc&t=158s)** — So there's several things to add to the low carb diet.
+- **[02:42](https://www.youtube.com/watch?v=a7wgLehFAbc&t=162s)** — Number one is vitamin D.
+- **[02:44](https://www.youtube.com/watch?v=a7wgLehFAbc&t=164s)** — But you must take at least 10 to 20, sometimes 30,000 I use of vitamin D3 every single day to reestablish this.
+- **[02:52](https://www.youtube.com/watch?v=a7wgLehFAbc&t=172s)** — Second thing is magnesium. Magnesium glycinate is the one I recommend.
+- **[02:58](https://www.youtube.com/watch?v=a7wgLehFAbc&t=178s)** — Magnesium helps take the calcium out of the place where it shouldn't be.
+- **[03:03](https://www.youtube.com/watch?v=a7wgLehFAbc&t=183s)** — And help to balance out the calcium to magnesium ratios.
+- **[03:08](https://www.youtube.com/watch?v=a7wgLehFAbc&t=188s)** — Because what you need to know is calcium causes contraction.
+- **[03:11](https://www.youtube.com/watch?v=a7wgLehFAbc&t=191s)** — Magnesium causes relaxation.
+- **[03:13](https://www.youtube.com/watch?v=a7wgLehFAbc&t=193s)** — Plus magnesium is going to help vitamin D to work.
+- **[03:17](https://www.youtube.com/watch?v=a7wgLehFAbc&t=197s)** — In fact, vitamin D won't work without magnesium.
+- **[03:20](https://www.youtube.com/watch?v=a7wgLehFAbc&t=200s)** — And magnesium won't work without vitamin D.
+- **[03:22](https://www.youtube.com/watch?v=a7wgLehFAbc&t=202s)** — They're both really, really important, especially with hypertension.
+- **[03:26](https://www.youtube.com/watch?v=a7wgLehFAbc&t=206s)** — Plus magnesium reduces cortisol and adrenaline.
+- **[03:31](https://www.youtube.com/watch?v=a7wgLehFAbc&t=211s)** — Magnesium also has anti-inflammatory properties.
+- **[03:34](https://www.youtube.com/watch?v=a7wgLehFAbc&t=214s)** — And magnesium helps reestablish that little layer, that protective glycocalyx.
+- **[03:39](https://www.youtube.com/watch?v=a7wgLehFAbc&t=219s)** — The next nutrient that is important is potassium.
+- **[03:42](https://www.youtube.com/watch?v=a7wgLehFAbc&t=222s)** — And I would recommend taking a good amount of potassium.
+- **[03:45](https://www.youtube.com/watch?v=a7wgLehFAbc&t=225s)** — You can get potassium supplements in a thousand milligrams per serving size.
+- **[03:49](https://www.youtube.com/watch?v=a7wgLehFAbc&t=229s)** — But what potassium does is it directly helps to fix that glycocalyx as well.
+- **[03:56](https://www.youtube.com/watch?v=a7wgLehFAbc&t=236s)** — And potassium reduces the sodium.
+- **[03:58](https://www.youtube.com/watch?v=a7wgLehFAbc&t=238s)** — And potassium directly lowers blood pressure.
+- **[04:00](https://www.youtube.com/watch?v=a7wgLehFAbc&t=240s)** — Because it helps to relax the smooth muscle.
+- **[04:03](https://www.youtube.com/watch?v=a7wgLehFAbc&t=243s)** — And then the last thing you need to really get the blood pressure down is to increase your sulfur.
+- **[04:08](https://www.youtube.com/watch?v=a7wgLehFAbc&t=248s)** — Sulfur is going to help reestablish this protective sugar-coating glycocalyx.
+- **[04:13](https://www.youtube.com/watch?v=a7wgLehFAbc&t=253s)** — But I wouldn't take it in a supplement. I would get it from food.
+- **[04:15](https://www.youtube.com/watch?v=a7wgLehFAbc&t=255s)** — One of the best sources of sulfur is grass-fed red meat.
+- **[04:19](https://www.youtube.com/watch?v=a7wgLehFAbc&t=259s)** — Eggs also are loaded with sulfur.
+- **[04:21](https://www.youtube.com/watch?v=a7wgLehFAbc&t=261s)** — But it's pretty wild that some people will tell you that,
+- **[04:24](https://www.youtube.com/watch?v=a7wgLehFAbc&t=264s)** — Oh, you don't want to have eggs or red meat for blood pressure because it has cholesterol and blah, blah, blah.
+- **[04:31](https://www.youtube.com/watch?v=a7wgLehFAbc&t=271s)** — When in fact, the red meat and eggs will totally turn this thing around.
+- **[04:34](https://www.youtube.com/watch?v=a7wgLehFAbc&t=274s)** — So to fix insulin resistance, we want to avoid too much carbohydrate.
+- **[04:38](https://www.youtube.com/watch?v=a7wgLehFAbc&t=278s)** — We want to avoid, of course, sugar starch.
+- **[04:40](https://www.youtube.com/watch?v=a7wgLehFAbc&t=280s)** — We want to avoid seed oils because that can create inflammation.
+- **[04:43](https://www.youtube.com/watch?v=a7wgLehFAbc&t=283s)** — Also, make sure when you're doing this, you do not have like the hidden carbohydrates.
+- **[04:49](https://www.youtube.com/watch?v=a7wgLehFAbc&t=289s)** — So in other words, I would really keep a food log and monitor your carbohydrates.
+- **[04:53](https://www.youtube.com/watch?v=a7wgLehFAbc&t=293s)** — You want to keep them really, really low without cheating for a period of time.
+- **[04:58](https://www.youtube.com/watch?v=a7wgLehFAbc&t=298s)** — Sometimes it takes some weeks and then you're going to start to see it come down.
+- **[05:01](https://www.youtube.com/watch?v=a7wgLehFAbc&t=301s)** — I would highly recommend getting a home blood pressure kit so you can test yourself throughout the day and monitor this.
+- **[05:08](https://www.youtube.com/watch?v=a7wgLehFAbc&t=308s)** — And on a rare occasion, you'll see maybe the bottom numbers start coming down,
+- **[05:12](https://www.youtube.com/watch?v=a7wgLehFAbc&t=312s)** — but the top number might not come down.
+- **[05:14](https://www.youtube.com/watch?v=a7wgLehFAbc&t=314s)** — The top number is primarily a problem with the sympathetic nervous system.
+- **[05:18](https://www.youtube.com/watch?v=a7wgLehFAbc&t=318s)** — So sometimes you need to focus more on your stress by getting enough sleep, doing long walks,
+- **[05:24](https://www.youtube.com/watch?v=a7wgLehFAbc&t=324s)** — sometimes to take ashwagandha or maybe even more magnesium before bed.
+- **[05:28](https://www.youtube.com/watch?v=a7wgLehFAbc&t=328s)** — I've just given you a really powerful solution for hypertension.
+- **[05:33](https://www.youtube.com/watch?v=a7wgLehFAbc&t=333s)** — You have to try it. Go ahead and then comment down below in the comments.
+- **[05:37](https://www.youtube.com/watch?v=a7wgLehFAbc&t=337s)** — And thanks for watching.

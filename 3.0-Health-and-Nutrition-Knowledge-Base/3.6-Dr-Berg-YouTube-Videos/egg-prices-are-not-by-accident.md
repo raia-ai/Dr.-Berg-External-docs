@@ -1,0 +1,149 @@
+# Egg Prices Are NOT by Accident
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=XyX98bnDaow](https://www.youtube.com/watch?v=XyX98bnDaow)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=XyX98bnDaow&t=0s)** — What is going on now with bird flu is very close to an exact replay of what happened with COVID.
+- **[00:06](https://www.youtube.com/watch?v=XyX98bnDaow&t=6s)** — Egg prices are not something that is random. It's something else. And you have to follow the money.
+- **[00:12](https://www.youtube.com/watch?v=XyX98bnDaow&t=12s)** — Today, we're going to talk about what's really behind the scarcity of eggs, the price. I'm
+- **[00:18](https://www.youtube.com/watch?v=XyX98bnDaow&t=18s)** — interviewing Clayton Baker, MD, Doctor of Internal Medicine for over 25 years. Doc,
+- **[00:23](https://www.youtube.com/watch?v=XyX98bnDaow&t=23s)** — it's a pleasure to meet you. Now you have some amazing insights to this bird flu, which is a
+- **[00:29](https://www.youtube.com/watch?v=XyX98bnDaow&t=29s)** — deja vu of a playbook that I think just happened recently. I wanted to bring you on because maybe
+- **[00:35](https://www.youtube.com/watch?v=XyX98bnDaow&t=35s)** — you can kind of give us the simple version of what potentially could be going on. As far as
+- **[00:42](https://www.youtube.com/watch?v=XyX98bnDaow&t=42s)** — could this be something that is accidental or maybe manufactured? Yes. Well, thanks for having
+- **[00:49](https://www.youtube.com/watch?v=XyX98bnDaow&t=49s)** — me very much. I appreciate the opportunity to be here and to speak. And thanks for taking time
+- **[00:54](https://www.youtube.com/watch?v=XyX98bnDaow&t=54s)** — to read my article. If we just use basic pattern recognition skills, we can see that
+- **[01:00](https://www.youtube.com/watch?v=XyX98bnDaow&t=60s)** — what is going on now with bird flu is very close to an exact replay of what happened with
+- **[01:05](https://www.youtube.com/watch?v=XyX98bnDaow&t=65s)** — COVID. What we see is a several step process by which people intentionally are creating fear
+- **[01:12](https://www.youtube.com/watch?v=XyX98bnDaow&t=72s)** — and creating a pandemic or attempting to create a pandemic in order to obtain some kind of
+- **[01:20](https://www.youtube.com/watch?v=XyX98bnDaow&t=80s)** — control over us. This is clearly what happened with COVID as even the CIA has admitted now
+- **[01:27](https://www.youtube.com/watch?v=XyX98bnDaow&t=87s)** — that the virus came out of the lab in Wuhan, that it was an engineered virus. Around 2012 or
+- **[01:34](https://www.youtube.com/watch?v=XyX98bnDaow&t=94s)** — somewhere about thereabouts was found in a cave of bats in China and was brought to the
+- **[01:39](https://www.youtube.com/watch?v=XyX98bnDaow&t=99s)** — lab and was manipulated for several years to essentially weaponize it. Late in 2019, that
+- **[01:45](https://www.youtube.com/watch?v=XyX98bnDaow&t=105s)** — virus was released. Whether it was intentional or unintentional remains unclear, but it
+- **[01:50](https://www.youtube.com/watch?v=XyX98bnDaow&t=110s)** — came out of the lab. They allowed the World Military Games, which is an Olympic type event,
+- **[01:55](https://www.youtube.com/watch?v=XyX98bnDaow&t=115s)** — to take place in Wuhan, China, of all places. Brought all kinds of people from all over the
+- **[02:01](https://www.youtube.com/watch?v=XyX98bnDaow&t=121s)** — world, allowed it to spread, and then by early 2020 it was declared to be this pandemic.
+- **[02:09](https://www.youtube.com/watch?v=XyX98bnDaow&t=129s)** — We had all of these civil rights violations locking us down, not allowing us to earn a
+- **[02:15](https://www.youtube.com/watch?v=XyX98bnDaow&t=135s)** — name of protecting us from this virus. They have a countermeasure and the countermeasure
+- **[02:21](https://www.youtube.com/watch?v=XyX98bnDaow&t=141s)** — is to develop these vaccines. They could compel us, they could kind of coerce us into taking
+- **[02:26](https://www.youtube.com/watch?v=XyX98bnDaow&t=146s)** — these highly profitable and turns out quite toxic vaccines. For what reason? Because they
+- **[02:32](https://www.youtube.com/watch?v=XyX98bnDaow&t=152s)** — would make a lot of money and because they would exert control over us to continue to
+- **[02:38](https://www.youtube.com/watch?v=XyX98bnDaow&t=158s)** — take these vaccines in the future. So now let's fast forward to what's happening right
+- **[02:42](https://www.youtube.com/watch?v=XyX98bnDaow&t=162s)** — now with the bird flu. There are multiple labs that have taken a previously naturally occurring
+- **[02:50](https://www.youtube.com/watch?v=XyX98bnDaow&t=170s)** — H5N1 bird flu. They've been manipulating it in the lab doing gain of function, which means
+- **[02:55](https://www.youtube.com/watch?v=XyX98bnDaow&t=175s)** — trying to make it more transmissible and more virulent. And in fact, they're very aggressively
+- **[03:00](https://www.youtube.com/watch?v=XyX98bnDaow&t=180s)** — trying to get it to jump species, which is there's no good reason to do this. Two of the
+- **[03:05](https://www.youtube.com/watch?v=XyX98bnDaow&t=185s)** — prominent labs in the United States that are doing this are the Southeast Poultry Research
+- **[03:09](https://www.youtube.com/watch?v=XyX98bnDaow&t=189s)** — Laboratory, which is owned and operated by our own USDA is doing this crazy research in Athens,
+- **[03:15](https://www.youtube.com/watch?v=XyX98bnDaow&t=195s)** — Georgia. And it's almost certain that this is the location by which the current circulating
+- **[03:21](https://www.youtube.com/watch?v=XyX98bnDaow&t=201s)** — plate, as they call it, of this virus leaked out of. Now, whether it leaked out intentionally
+- **[03:27](https://www.youtube.com/watch?v=XyX98bnDaow&t=207s)** — or unintentionally, I don't know, but we're pretty confident that's where it came from.
+- **[03:31](https://www.youtube.com/watch?v=XyX98bnDaow&t=211s)** — And Peter McCulloch and Nick Hulsher and some other people have done some incredible work to
+- **[03:35](https://www.youtube.com/watch?v=XyX98bnDaow&t=215s)** — trace this down. They've published it and no one's even bothered to try and refute it. Of
+- **[03:42](https://www.youtube.com/watch?v=XyX98bnDaow&t=222s)** — course, our FDA is now claiming that they're doing all they can to contain this, when in fact,
+- **[03:46](https://www.youtube.com/watch?v=XyX98bnDaow&t=226s)** — they almost certainly leaked the virus out. I don't know whether it was intentional or not.
+- **[03:51](https://www.youtube.com/watch?v=XyX98bnDaow&t=231s)** — The other lab, and there's multiple labs that do this type of gain of function research on
+- **[03:56](https://www.youtube.com/watch?v=XyX98bnDaow&t=236s)** — bird flu that's really implicated in this, is at the University of Wisconsin Veterinary
+- **[04:01](https://www.youtube.com/watch?v=XyX98bnDaow&t=241s)** — School. There's a guy, a Japanese national by the name of Yoshihiro Kawaoka. He's been there for
+- **[04:06](https://www.youtube.com/watch?v=XyX98bnDaow&t=246s)** — many years, funded by all kinds of sources. He's funded by NIH. He's funded by Gates Foundation.
+- **[04:12](https://www.youtube.com/watch?v=XyX98bnDaow&t=252s)** — There's all kinds of just really ill-advised stuff. President Obama, back in 2014, put a
+- **[04:18](https://www.youtube.com/watch?v=XyX98bnDaow&t=258s)** — temporary ban on gain of function research in the United States. Some of the people that blew
+- **[04:22](https://www.youtube.com/watch?v=XyX98bnDaow&t=262s)** — the whistle on, you wouldn't believe. Paul Offit, who's one of the big apologists for vaccines,
+- **[04:26](https://www.youtube.com/watch?v=XyX98bnDaow&t=266s)** — was one of the people who was so alarmed by what this guy Kawaoka was doing that even he blew the
+- **[04:31](https://www.youtube.com/watch?v=XyX98bnDaow&t=271s)** — whistle on him. Anthony Fauci found a way around this largely by outsourcing the stuff to China
+- **[04:36](https://www.youtube.com/watch?v=XyX98bnDaow&t=276s)** — for the coronavirus work, and to some extent just ignoring Obama's ban. But that's how bad
+- **[04:42](https://www.youtube.com/watch?v=XyX98bnDaow&t=282s)** — these gain of function people are. Now you've got these leaked lab-manipulated viruses that
+- **[04:47](https://www.youtube.com/watch?v=XyX98bnDaow&t=287s)** — are out there. And fortunately, what we're seeing in the population is not as bad as
+- **[04:54](https://www.youtube.com/watch?v=XyX98bnDaow&t=294s)** — they're advertising. Birds that are getting sick, occasional cows that are getting the
+- **[04:59](https://www.youtube.com/watch?v=XyX98bnDaow&t=299s)** — virus as well, although the cows don't get very sick. I'm not aware of any. There may be
+- **[05:04](https://www.youtube.com/watch?v=XyX98bnDaow&t=304s)** — some, but I'm not aware of any cow deaths. And 67 human beings in North America in the last
+- **[05:10](https://www.youtube.com/watch?v=XyX98bnDaow&t=310s)** — couple of years have gotten this. And for the overwhelming majority of them, it's been
+- **[05:14](https://www.youtube.com/watch?v=XyX98bnDaow&t=314s)** — conjunctivitis. It's been pink-eyed. There was one report of a person who died in Louisiana
+- **[05:21](https://www.youtube.com/watch?v=XyX98bnDaow&t=321s)** — with the bird flu. They would not go so far as to say that the person died of the bird flu,
+- **[05:27](https://www.youtube.com/watch?v=XyX98bnDaow&t=327s)** — although some of the media outlets claimed that. But that has not been stated. They are
+- **[05:32](https://www.youtube.com/watch?v=XyX98bnDaow&t=332s)** — encouraging the farmers to do willy-nilly PCR testing on their flocks. If they test positive,
+- **[05:38](https://www.youtube.com/watch?v=XyX98bnDaow&t=338s)** — what they're doing is mass slaughtering the entire flock. If so much as one bird,
+- **[05:43](https://www.youtube.com/watch?v=XyX98bnDaow&t=343s)** — test positive for the illness. A PCR test, which has a lot of false positives, they have
+- **[05:47](https://www.youtube.com/watch?v=XyX98bnDaow&t=347s)** — one positive. They will kill the entire flock. Some of these farms have millions of chickens,
+- **[05:53](https://www.youtube.com/watch?v=XyX98bnDaow&t=353s)** — correct? Correct. So they can kill hundreds of thousands, maybe millions of birds at once
+- **[05:58](https://www.youtube.com/watch?v=XyX98bnDaow&t=358s)** — because of one or two positive PCR tests. That's why this is important for listeners to
+- **[06:05](https://www.youtube.com/watch?v=XyX98bnDaow&t=365s)** — know. That's why we have a shortage. The shortage is not because the birds are dying of
+- **[06:09](https://www.youtube.com/watch?v=XyX98bnDaow&t=369s)** — the bird flu. The shortage is because they're being mass slaughtered. If there's even one or
+- **[06:14](https://www.youtube.com/watch?v=XyX98bnDaow&t=374s)** — two positive tests. Have you heard anything about this happening in smaller backyard farms,
+- **[06:23](https://www.youtube.com/watch?v=XyX98bnDaow&t=383s)** — people having chickens in their backyards? Is that occurring in that environment at all?
+- **[06:27](https://www.youtube.com/watch?v=XyX98bnDaow&t=387s)** — Or is it just mainly the industrial size chicken farms? It's an excellent question. I
+- **[06:31](https://www.youtube.com/watch?v=XyX98bnDaow&t=391s)** — don't have a definitive answer. But what I would say is that supposedly this individual
+- **[06:36](https://www.youtube.com/watch?v=XyX98bnDaow&t=396s)** — that got extremely sick in Louisiana caught it from their backyard chicken farm. However,
+- **[06:43](https://www.youtube.com/watch?v=XyX98bnDaow&t=403s)** — what's causing the price of eggs to go up is this ridiculous policy of slaughtering whole
+- **[06:49](https://www.youtube.com/watch?v=XyX98bnDaow&t=409s)** — flocks when you have one or a few positive tests. And of course, just to show you how
+- **[06:55](https://www.youtube.com/watch?v=XyX98bnDaow&t=415s)** — dishonest the whole process is, they call it culling. Well, you can look up the definition
+- **[07:00](https://www.youtube.com/watch?v=XyX98bnDaow&t=420s)** — of culling in the dictionary. It has nothing to do with mass slaughter. Mass slaughter is the
+- **[07:04](https://www.youtube.com/watch?v=XyX98bnDaow&t=424s)** — opposite of culling. That's how dishonest this process is. And according to those sources I've
+- **[07:11](https://www.youtube.com/watch?v=XyX98bnDaow&t=431s)** — heard from, we've spent our taxpayer dollars over $1.25 billion to fund this mass slaughter of
+- **[07:19](https://www.youtube.com/watch?v=XyX98bnDaow&t=439s)** — these animals. So we are paying with our own tax dollars to kill these animals, to drive up
+- **[07:25](https://www.youtube.com/watch?v=XyX98bnDaow&t=445s)** — food prices, to make a shortage of eggs. And this is driving this whole thing, not the flu
+- **[07:32](https://www.youtube.com/watch?v=XyX98bnDaow&t=452s)** — itself. Basically, the farmers get paid for that loss from the taxpayers? Correct. So the
+- **[07:39](https://www.youtube.com/watch?v=XyX98bnDaow&t=459s)** — farmers have a perverse incentive. And I don't blame the farmers because the farmers are
+- **[07:43](https://www.youtube.com/watch?v=XyX98bnDaow&t=463s)** — caught between a rock and a hard place. They've got the government coming in and telling them,
+- **[07:48](https://www.youtube.com/watch?v=XyX98bnDaow&t=468s)** — we need to test your birds. But don't worry if they test positive, we'll pay to kill them
+- **[07:53](https://www.youtube.com/watch?v=XyX98bnDaow&t=473s)** — and we'll pay you at least market price, maybe more, in order to solve the problem.
+- **[07:58](https://www.youtube.com/watch?v=XyX98bnDaow&t=478s)** — What it's doing is artificially creating a shortage. It's artificially creating fear. It's
+- **[08:09](https://www.youtube.com/watch?v=XyX98bnDaow&t=489s)** — physically or metaphorically until we accept the human vaccines, what they're doing instead is
+- **[08:15](https://www.youtube.com/watch?v=XyX98bnDaow&t=495s)** — they're destroying a important element of our food supply, unless we allow them to mass
+- **[08:20](https://www.youtube.com/watch?v=XyX98bnDaow&t=500s)** — vaccinate all these birds. So that's really the agenda is they want to mass vaccinate now
+- **[08:25](https://www.youtube.com/watch?v=XyX98bnDaow&t=505s)** — entire farms. That's really what they want to do. There's no other way around it because
+- **[08:28](https://www.youtube.com/watch?v=XyX98bnDaow&t=508s)** — right before Trump took office, what did they do? They gave a conditional approval to
+- **[08:36](https://www.youtube.com/watch?v=XyX98bnDaow&t=516s)** — Zoetis, which is a very large animal vaccine company. A couple days before Trump was
+- **[08:42](https://www.youtube.com/watch?v=XyX98bnDaow&t=522s)** — inaugurated, the Biden administration gave a $590 million grant to our old friends,
+- **[08:49](https://www.youtube.com/watch?v=XyX98bnDaow&t=529s)** — Moderna, to start developing mRNA-based technologies for bird flu.
+- **[08:55](https://www.youtube.com/watch?v=XyX98bnDaow&t=535s)** — So again, what does it come down to? We come down to it just like with COVID,
+- **[08:59](https://www.youtube.com/watch?v=XyX98bnDaow&t=539s)** — a big payoff for Moderna to force us all to accept mRNA vaccines.
+- **[09:04](https://www.youtube.com/watch?v=XyX98bnDaow&t=544s)** — What do we really need to do to stop this? What are some things that need to happen?
+- **[09:09](https://www.youtube.com/watch?v=XyX98bnDaow&t=549s)** — You need to acknowledge what's going on. This is not a bunch of well-meaning scientists
+- **[09:15](https://www.youtube.com/watch?v=XyX98bnDaow&t=555s)** — trying to stamp out disease. This is a criminal enterprise. This is basically a
+- **[09:20](https://www.youtube.com/watch?v=XyX98bnDaow&t=560s)** — protection racket. Nice little farm you got there. It'd be a shame, if anything,
+- **[09:25](https://www.youtube.com/watch?v=XyX98bnDaow&t=565s)** — where to happen to it. Don't worry, we'll protect it. And then we pay you off to do
+- **[09:30](https://www.youtube.com/watch?v=XyX98bnDaow&t=570s)** — we want with it. If Paul Offit could figure it out in 2012 and Barack Obama could figure
+- **[09:35](https://www.youtube.com/watch?v=XyX98bnDaow&t=575s)** — out in 2014, why on earth after all this we've been put through in COVID are we not
+- **[09:41](https://www.youtube.com/watch?v=XyX98bnDaow&t=581s)** — realizing it right now? This gain of function research has to stop. I've said in other places,
+- **[09:48](https://www.youtube.com/watch?v=XyX98bnDaow&t=588s)** — you don't save Tokyo by creating Godzilla. And this is what they were doing. They're
+- **[09:53](https://www.youtube.com/watch?v=XyX98bnDaow&t=593s)** — saying we're going to create Godzilla so we can create a vaccine against Godzilla.
+- **[09:57](https://www.youtube.com/watch?v=XyX98bnDaow&t=597s)** — What on earth are we doing here? Unfortunately, you can't speak freely about certain topics,
+- **[10:02](https://www.youtube.com/watch?v=XyX98bnDaow&t=602s)** — but I think things are going to change. Primary target needs to be shutting down these
+- **[10:07](https://www.youtube.com/watch?v=XyX98bnDaow&t=607s)** — gain of function labs immediately because it's like, why do we need those? It's like it's,
+- **[10:12](https://www.youtube.com/watch?v=XyX98bnDaow&t=612s)** — you're producing weapons that are against humanity. It is completely criminal and insane
+- **[10:17](https://www.youtube.com/watch?v=XyX98bnDaow&t=617s)** — to the nth degree. So many people are embedded in this to some extent or another. And I
+- **[10:22](https://www.youtube.com/watch?v=XyX98bnDaow&t=622s)** — think some people that are low to mid level don't realize exactly why they're doing what
+- **[10:27](https://www.youtube.com/watch?v=XyX98bnDaow&t=627s)** — they're doing. They believe that what they're being told to do is appropriate. I'll tell you
+- **[10:32](https://www.youtube.com/watch?v=XyX98bnDaow&t=632s)** — just a funny story. One of the people who is a placeholder at HHS, or rather the CDC right
+- **[10:39](https://www.youtube.com/watch?v=XyX98bnDaow&t=639s)** — now, he was the former state health commissioner in Maine during COVID. So very much in line
+- **[10:44](https://www.youtube.com/watch?v=XyX98bnDaow&t=644s)** — with the lockdowns and all that kind of stuff. One of the things that's stated on the CDC
+- **[10:49](https://www.youtube.com/watch?v=XyX98bnDaow&t=649s)** — website is that he was involved back earlier in his career with bird flu mitigation in
+- **[10:55](https://www.youtube.com/watch?v=XyX98bnDaow&t=655s)** — Cambodia. Now, of course, Cambodia is a relatively poor country in Southeast Asia where supposedly
+- **[11:00](https://www.youtube.com/watch?v=XyX98bnDaow&t=660s)** — these viruses originate. The current recommendations in Cambodia, where about 95% of chickens are
+- **[11:07](https://www.youtube.com/watch?v=XyX98bnDaow&t=667s)** — owned by family farms, you know, maybe 50 to 100 chickens maximum, is if your bird gets sick,
+- **[11:15](https://www.youtube.com/watch?v=XyX98bnDaow&t=675s)** — you separate the bird from the rest of the flock, preferably you sacrifice that animal.
+- **[11:22](https://www.youtube.com/watch?v=XyX98bnDaow&t=682s)** — Don't eat it. Wash your hands. Common sense. One solution too is to have a lot more small farms
+- **[11:29](https://www.youtube.com/watch?v=XyX98bnDaow&t=689s)** — and start buying eggs from smaller farms. Your local farmers markets. Find a local farmer
+- **[11:34](https://www.youtube.com/watch?v=XyX98bnDaow&t=694s)** — because that way we keep things not so centralized where all of our eggs are in one basket,
+- **[11:41](https://www.youtube.com/watch?v=XyX98bnDaow&t=701s)** — so to speak. Yes, I agree. I'll tell you though one thing is that this is interesting. I
+- **[11:50](https://www.youtube.com/watch?v=XyX98bnDaow&t=710s)** — UK is just an absolute mess in so many different ways, but UK is trying to force people, I don't
+- **[11:56](https://www.youtube.com/watch?v=XyX98bnDaow&t=716s)** — know exactly where it's at right now, but to force people to register any home poultry that
+- **[12:01](https://www.youtube.com/watch?v=XyX98bnDaow&t=721s)** — they have. And the National Association for Veterinary Medicine, which is highly beholden to
+- **[12:09](https://www.youtube.com/watch?v=XyX98bnDaow&t=729s)** — pharma, has put out a release recently that, you know, small family poultry holdings may be
+- **[12:17](https://www.youtube.com/watch?v=XyX98bnDaow&t=737s)** — risk to public health. So don't think that they're not going to come after your backyard
+- **[12:22](https://www.youtube.com/watch?v=XyX98bnDaow&t=742s)** — chickens. You can't run and hide from this. We have to take action. We have to make sure
+- **[12:26](https://www.youtube.com/watch?v=XyX98bnDaow&t=746s)** — that these people are stopped. I really appreciate you doing the work consolidating
+- **[12:30](https://www.youtube.com/watch?v=XyX98bnDaow&t=750s)** — all this information and making it easy to understand. And for those of you watching,
+- **[12:34](https://www.youtube.com/watch?v=XyX98bnDaow&t=754s)** — spread this video out to your friends and family because we need to get the word out.
+- **[12:39](https://www.youtube.com/watch?v=XyX98bnDaow&t=759s)** — So we don't go into this mass agreement that this is what we want. We want to change.
+- **[12:45](https://www.youtube.com/watch?v=XyX98bnDaow&t=765s)** — I'm really adamant about making sure this data goes right into the new administration so they
+- **[12:50](https://www.youtube.com/watch?v=XyX98bnDaow&t=770s)** — can do something about it. Thank you so much, Dr. Baker. I really appreciate you coming on and
+- **[12:54](https://www.youtube.com/watch?v=XyX98bnDaow&t=774s)** — we'll stay in touch and we'll collaborate very soon. Very good. Thanks for having me. I
+- **[12:59](https://www.youtube.com/watch?v=XyX98bnDaow&t=779s)** — appreciate it. Absolutely.

@@ -1,0 +1,108 @@
+# Why Men Today Have HALF the Testosterone of Their Grandfathers
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=Tqwvm5RsHRM](https://www.youtube.com/watch?v=Tqwvm5RsHRM)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=0s)** — There are six main signs that you have low testosterone. Men today have over 50%
+- **[00:06](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=6s)** — less testosterone than they had several decades ago. And the question is why? What the heck is
+- **[00:13](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=13s)** — going on? It's not even just low testosterone. It's low sperm count. It's low fertility. We're
+- **[00:18](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=18s)** — going to get into the causes of this and causes that you probably have never heard before.
+- **[00:23](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=23s)** — Then I'm going to get into the solutions. Let's first start with all the different signs.
+- **[00:27](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=27s)** — Number one is breast tissue. Man boobs. What the heck is going on with extra breast tissue in men?
+- **[00:34](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=34s)** — Well, it's an increase in estrogen as you are decreasing your testosterone. It's basically a
+- **[00:40](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=40s)** — feminization of a man because the ratios of estrogen are just way too much. Number two,
+- **[00:46](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=46s)** — shrinking testicles. I know the name for this is hypogonadism. The testicles are getting
+- **[00:51](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=51s)** — smaller and smaller and of course the testosterone is also getting lower. Shrinking muscles as
+- **[00:56](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=56s)** — testosterone is intimately involved with making muscle. And if you don't have enough,
+- **[01:00](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=60s)** — it's going to be very difficult to develop muscle. Number three, reduced semen production. Now,
+- **[01:06](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=66s)** — semen is not sperm. Semen is an extra fluid that helps to deliver sperm. Number four, decreased
+- **[01:13](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=73s)** — body hair. Specifically the beard, the chest, the legs, and even on top of your head. The
+- **[01:27](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=87s)** — is getting hot flashes or night sweats. When I was in practice, I would have men come in
+- **[01:32](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=92s)** — with that symptom. And one time I even had a doctor who specializes in menopause come in
+- **[01:40](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=100s)** — with his main symptom being hot flashes. And he didn't want to take the medication that
+- **[01:45](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=105s)** — he gives women, which is hormone replacement therapy. Unfortunately, a lot of men go for
+- **[01:49](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=109s)** — Viagra. The problem is there's some slight minor complications, side effects like heart
+- **[01:55](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=115s)** — attacks, and even a side effect of prolonged erection. Number six is excess belly fat
+- **[02:02](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=122s)** — because you have insulin resistance. Testosterone does have an influence over insulin. It worsens
+- **[02:09](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=129s)** — insulin resistance, which means your body has to compensate by increasing more insulin,
+- **[02:14](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=134s)** — the fat making hormone. And so now you're storing more fat than you should. And this
+- **[02:19](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=139s)** — ends up as excess belly fat. This is probably why a lot of young males, when they're 18 or 19
+- **[02:24](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=144s)** — or 20, do not have belly fat because they're at their peak hormonally with testosterone
+- **[02:30](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=150s)** — and other hormones that are related to keeping your stomach flat. Okay, so those are all the
+- **[02:35](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=155s)** — signs of low testosterone. Now let's get into some interesting causes. And I think a lot of
+- **[02:40](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=160s)** — people know those causes and they probably also know that junk food and too much sugar
+- **[02:44](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=164s)** — will lower estrogen. And they probably also know that carbohydrates and sugar also decrease
+- **[02:48](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=168s)** — testosterone. So I'm not going to cover those. I want to cover some other things that
+- **[02:52](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=172s)** — need to put on your radar so you really understand. The real big cause of lowered
+- **[02:57](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=177s)** — testosterone presently is endocrine disruptors. What's an endocrine disruptor? Anything in the
+- **[03:04](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=184s)** — environment, chemical-wise, that can mimic estrogen. Pesticides, insecticides, herbicides,
+- **[03:11](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=191s)** — fungicides. You also have plastics. Microplastics accumulate in your body. One of
+- **[03:16](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=196s)** — the biggest primary sources of plastic that we're getting right now is in our water supply.
+- **[03:20](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=200s)** — I don't know if you've heard about Forever Chemicals, but they accumulate in your body
+- **[03:24](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=204s)** — and they just don't break down. It takes like a thousand years for these chemicals to break down
+- **[03:28](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=208s)** — and you can test these in your water supply. And if you actually have city water,
+- **[03:32](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=212s)** — you have them in your water. Another big cause of lowered testosterone, a lack of sleep.
+- **[03:39](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=219s)** — If you're getting under seven hours of sleep, I'll guarantee your testosterone is probably
+- **[03:44](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=224s)** — Because when you don't sleep enough, your cortisol goes up. And cortisol, which is a
+- **[03:51](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=231s)** — stress hormone, just kills testosterone. The next point I want to bring up is just stress
+- **[03:56](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=236s)** — in general. If you're under chronic stress, you're going to have low testosterone. Another
+- **[04:00](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=240s)** — hidden source of decreased testosterone is wi-fi and electromagnetic fields from things
+- **[04:08](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=248s)** — like this, especially if you're putting these in your pocket. Keep this away from your body,
+- **[04:13](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=253s)** — put it on speaker phone, but don't keep it close anywhere in your pockets or even next touching your
+- **[04:19](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=259s)** — head. Next cause is phytoestrogens. Soy products, soy milk, soy protein isolates, which is
+- **[04:27](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=267s)** — probably one of the most common protein in protein powders as well as those protein bars.
+- **[04:34](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=274s)** — That would be also in the vegetarian meats. In practice, I met a guy who was consuming
+- **[04:38](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=278s)** — about a gallon of soy milk a day. He started developing breast tissue and get this with
+- **[04:45](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=285s)** — lactation. I am not kidding. The next cause of low T is low zinc. Zinc is so important for
+- **[04:53](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=293s)** — testosterone. In order for you to make this steroid hormone testosterone, it's dependent on
+- **[04:58](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=298s)** — zinc for the conversion. And what is it converting? It's converting cholesterol
+- **[05:04](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=304s)** — to testosterone with the help of zinc. Cholesterol is also needed as the raw material.
+- **[05:09](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=309s)** — So if you're on a cholesterol blocking drug, aka statins, that could be the reason why you
+- **[05:16](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=316s)** — have low testosterone. And then we get to the last cause of low T, too much iron. What's
+- **[05:21](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=321s)** — interesting about iron is that our body has no mechanism of getting rid of iron. And so
+- **[05:25](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=325s)** — what happens is this iron accumulates in your organs and it starts to rust out the
+- **[05:30](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=330s)** — If you're anemic, you don't have low iron. You have dysfunctional iron. Not only do you
+- **[05:36](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=336s)** — not have enough iron to feed the red blood cells, and that's why you're tired, but you also have
+- **[05:41](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=341s)** — an excess of iron inside the cells because it's all locked up. Because you're deficient in
+- **[05:48](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=348s)** — copper. Copper is involved in certain enzymes to help protect the cells from excess iron.
+- **[05:55](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=355s)** — A deficiency of copper is really at the bottom of this problem with excess iron. Now I'm going
+- **[06:00](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=360s)** — to get into the solutions. The last one is the most important one. Number one, zinc.
+- **[06:07](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=367s)** — Number one most important trace mineral to increasing testosterone. Now the RDAs for zinc
+- **[06:13](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=373s)** — are between 8 and 11 milligrams. That is just not enough. You're going to probably need up to
+- **[06:18](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=378s)** — maybe 50 milligrams every single day. The problem is if you're going to be taking zinc by
+- **[06:23](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=383s)** — itself without being in a base of trace minerals, you're going to end up over time creating a
+- **[06:29](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=389s)** — copper deficiency. And then your iron is going to go up and that can affect your testosterone.
+- **[06:34](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=394s)** — You can get a lot of zinc in red meat, oysters, liver, and shellfish. Next new treat that you
+- **[06:39](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=399s)** — need is more magnesium. Magnesium is also another helper mineral to help you convert
+- **[06:46](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=406s)** — cholesterol into the steroid testosterone. And a lot of people take the wrong magnesium. You
+- **[06:52](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=412s)** — 400 milligrams per day, but probably a little bit more. Maybe 600 or even 800 milligrams per day.
+- **[06:58](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=418s)** — And then we get vitamin D. Vitamin D directly helps you increase testosterone. The big point
+- **[07:03](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=423s)** — about vitamin D is most people are taking way too little vitamin D. You're going to need as
+- **[07:08](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=428s)** — a maintenance dosage at least 10,000 I use of vitamin D every single day to help you
+- **[07:15](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=435s)** — increase testosterone and to help you fix insulin resistance, fix certain things in
+- **[07:21](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=441s)** — your liver. Vitamin D is going to be very, very important. Next thing exercise is going to be
+- **[07:26](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=446s)** — vitally important. You're going to find if you do heavy weight training or resistance
+- **[07:30](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=450s)** — exercise training or even high intensity interval training parallel with enough rest,
+- **[07:35](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=455s)** — you're going to find that's a potent stimulus of testosterone. Next thing get a water filter
+- **[07:40](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=460s)** — that helps you filter out forever chemicals. There's three that I know about. I will put
+- **[07:46](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=466s)** — links down below. Now the last most important solution and you're going to like this one
+- **[07:52](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=472s)** — called Elruderi. Elruderi is a special microbe that's only in about 4% of the population.
+- **[07:59](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=479s)** — 96% of the population doesn't have it anymore because of past antibiotics. This Elruderi can
+- **[08:06](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=486s)** — be cultured and made into kind of like a yogurt type mixture which is in very, very
+- **[08:16](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=496s)** — and you would consume this every single day. There's an interesting study on rats. They fed
+- **[08:21](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=501s)** — these rats Elruderi in their water and the group that got Elruderi had significant increase
+- **[08:28](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=508s)** — in the growth of their testicles even though they were older mice. They have not done this
+- **[08:35](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=515s)** — study in humans but I've been talking to a lot of people that are taking this microbe
+- **[08:39](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=519s)** — and they're noticing a great increase spike in testosterone because if you increase the size
+- **[08:46](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=526s)** — of the testicle you will increase testosterone. But not only that it increases something called
+- **[08:51](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=531s)** — oxytocin. Probably the most powerful hormone to counter cortisol. You're going to sleep a lot
+- **[08:57](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=537s)** — better. You're going to have vivid dreams. More erections during the night which is an
+- **[09:03](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=543s)** — indication of higher testosterone. And so it does all of this plus there's been reports that
+- **[09:08](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=548s)** — increasing stem cells for muscle tissue especially as you age. And I think the next
+- **[09:16](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=556s)** — most important video for you to watch is the one I did on iron. So I put that up right here.
+- **[09:21](https://www.youtube.com/watch?v=Tqwvm5RsHRM&t=561s)** — Check it out.

@@ -1,0 +1,110 @@
+# The 10 Dangerous Foods RFK Jr. Just BANNED
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=oiVFIRyXhIw](https://www.youtube.com/watch?v=oiVFIRyXhIw)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=0s)** — The 10 dangerous foods, RFK, is in the process of banning.
+- **[00:03](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=3s)** — These things that we're going to talk about don't even remotely come close to being food.
+- **[00:07](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=7s)** — The amount of money, big corporations, big pharma, big food, the chemical companies,
+- **[00:12](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=12s)** — the amount of pushback that he's getting internally and externally is off the charts.
+- **[00:18](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=18s)** — Today we're going to talk about all the good things that he's doing, starting with number
+- **[00:21](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=21s)** — one, getting rid of the food dyes. There's absolutely no benefit to having these toxic
+- **[00:26](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=26s)** — colorings in our foods. What's really interesting about the link of cancer is there's this thing
+- **[00:31](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=31s)** — called the Delaney Clause. This was something that was passed that prohibits food ingredients
+- **[00:38](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=38s)** — found to cause cancer in either humans or animals to not be put in our food supply.
+- **[00:43](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=43s)** — Of course, in 1996, there was another thing that was passed called the Food Quality
+- **[00:48](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=48s)** — Protection Act, allowing these chemicals to be put back into the food supply.
+- **[00:52](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=52s)** — Thus, the many different things in our food supply that do cause cancer.
+- **[00:56](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=56s)** — Moving on to number two, the SNAP program. This is the food stamp program. RFK is actively
+- **[01:02](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=62s)** — and aggressively working on getting rid of the junk from that program. In other words,
+- **[01:07](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=67s)** — not allowing you to use food stamps to buy soda with high-fructose corn syrup. There's a
+- **[01:12](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=72s)** — lot of pushback on this, including the American Heart Association, funded by the junk food
+- **[01:17](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=77s)** — industry and Big Pharma. Just so happens, their messaging aligns with those two very closely.
+- **[01:24](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=84s)** — In a recent debate involving this bill that they were supposed to be approving to not include
+- **[01:29](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=89s)** — junk foods in the SNAP program, guess who showed up? A representative from the American
+- **[01:34](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=94s)** — Heart Association pushing back on that. You have to realize that the taxpayers pay for the
+- **[01:39](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=99s)** — SNAP program. What is wrong with this picture? Well, you are paying for this problem three
+- **[01:44](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=104s)** — times. You are paying for the raw material to be sold very cheaply. And then you are actually
+- **[01:49](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=109s)** — paying a second time, paying people to buy those exact products. And when they get a
+- **[01:53](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=113s)** — chronic disease, you pay a third time funding the Medicaid program. So I totally back up
+- **[01:59](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=119s)** — RFK for getting the junk out of the SNAP program. Number three, titanium dioxide.
+- **[02:04](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=124s)** — They put in food to make the food look more pure or healthier in some way. In France,
+- **[02:10](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=130s)** — they banned it because they found it caused DNA damage. It has the ability to get into the brain.
+- **[02:16](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=136s)** — It is also considered carcinogen. That is an ingredient that RFK is working on getting out
+- **[02:22](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=142s)** — of our food supply. Number four, brominated vegetable oil. You have to realize it has
+- **[02:28](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=148s)** — nothing to do with actual vegetables. It is actually a flame retardant. Use it in soft
+- **[02:33](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=153s)** — drinks. That is right, soda. It is considered safe. It is also banned in Europe, Japan,
+- **[02:38](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=158s)** — and India. But of course, it is allowed in the U.S. Number five, potassium bromate. RFK is also
+- **[02:45](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=165s)** — trying to get rid of this, especially with children's lunches. It allows the dough to be
+- **[02:50](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=170s)** — fluffy and has the right texture. It is also a possible carcinogen to humans. Also, as another
+- **[02:56](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=176s)** — side note, it has been banned in 30 countries, except the U.S. Some people think that RFK has
+- **[03:03](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=183s)** — the ability in HHS to just press a ban button and ban it like that. No. And I am even shocked
+- **[03:09](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=189s)** — how much he is getting done because he is up against a lot of resistance. Number six,
+- **[03:16](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=196s)** — high fructose corn syrup. Most people know this is really bad. RFK will definitely lead to
+- **[03:22](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=202s)** — liver damage, fatty liver, type 2 diabetes, heart disease. I know a lot of activists have
+- **[03:27](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=207s)** — tried to get this banned or at least limited within the children's school system. With not
+- **[03:35](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=215s)** — too much luck, high fructose corn syrup is one out of 4,000 different products that they extract
+- **[03:42](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=222s)** — from corn. It has been highly changed from the original corn. It is genetically modified.
+- **[03:48](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=228s)** — And we subsidize it, which means you as a taxpayer pay for a lot of it. Number seven,
+- **[03:53](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=233s)** — seed oils. An average person consumes 25 to 30 percent of all their calories being these seed
+- **[04:00](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=240s)** — oils. These seed oils incorporate themselves into our membranes around our cells, around our
+- **[04:06](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=246s)** — brain, around our tissues. They go in but they don't come out very easily. If you stop
+- **[04:10](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=250s)** — eating them today, it is going to take over a year to get them out of the system. They
+- **[04:15](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=255s)** — keep the body inflamed and they create all sorts of serious toxic side effects. Number eight,
+- **[04:22](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=262s)** — ultra processed foods. If we go deeper into this ultra processed food, we are really only
+- **[04:26](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=266s)** — talking mainly about three different things. Synthetic sugar, synthetic starch, and seed oils.
+- **[04:32](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=272s)** — All three of these ingredients are subsidized. That means you are paying for most of it. The
+- **[04:36](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=276s)** — intention of RMK is to remove most of this ultra processed food from the children's lunches,
+- **[04:43](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=283s)** — hospitals, from the senior assisted living homes. As in Arizona, they are working towards
+- **[04:48](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=288s)** — getting rid of the ultra processed food calories from the school system by year
+- **[04:53](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=293s)** — two thousand and twenty six, which is exciting. Before we get into number nine, I need to share
+- **[04:58](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=298s)** — with you a very powerful free app that I created right here called Dr. Berg junk food
+- **[05:04](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=304s)** — meter that allows you to quickly scan for these three ingredients in your pantry,
+- **[05:09](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=309s)** — refrigerator, or even at the grocery store. You can start really finding out how much of
+- **[05:13](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=313s)** — these three things are in your food. All you have to do is download it. It's free. Pull up
+- **[05:18](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=318s)** — food, hover over the barcode and start scanning. And it quickly scans and shows you how much
+- **[05:24](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=324s)** — starch, seed oil, and sugar. You can see in this one, there's 19 grams of sugar in this yogurt.
+- **[05:29](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=329s)** — Crazy amounts. And there's some starch as well. Let's pick another food. Pop tart.
+- **[05:33](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=333s)** — Holy mackerel. Look at you have starch, 39 grams, got some seed oils in there,
+- **[05:38](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=338s)** — and you got sugar in there. You can see the junk food score at the top is a 10,
+- **[05:43](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=343s)** — which means it's really, really bad. It tells you what kind of ingredients that we're reading.
+- **[05:49](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=349s)** — Let's do another food. Hot dog. This one has starch. So there's hidden starch. What kind of
+- **[05:54](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=354s)** — starch? They're putting corn syrup in there and modified food starch. Not too healthy.
+- **[05:59](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=359s)** — At the end of this video, I put a link down below for you to download the free app.
+- **[06:03](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=363s)** — Check it out. Use it to improve your health. Number nine, artificial sweeteners. The
+- **[06:08](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=368s)** — difference between artificial sweeteners and sugar alcohols. With sugar alcohols,
+- **[06:13](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=373s)** — those are made by fermenting actual natural ingredients. Artificial sweeteners use chemicals
+- **[06:20](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=380s)** — like petroleum. They create a lot more damage like altering your gut microbes. When you consume
+- **[06:27](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=387s)** — these artificial sweeteners, it is very addicting. Once you start, you can't stop,
+- **[06:31](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=391s)** — but it can cause cancer. Number 10, this is another thing that RFK is working on,
+- **[06:36](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=396s)** — which I'm really excited about. Getting rid of this loophole. Gross. Generally recognized
+- **[06:42](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=402s)** — as safe. This FDA rule that was passed allows industry to do their own testing to regulate
+- **[06:49](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=409s)** — whether it's safe or not. What do you think the odds of a company to do safety studies
+- **[06:54](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=414s)** — on their own products are going to say, oh, no, it's not safe. We can't put it out.
+- **[07:00](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=420s)** — Well, I'm going to tell you right now, if you leave it up to the industry to determine
+- **[07:02](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=422s)** — if it's safe or not, it's always going to be safe. With no independent third party, credible
+- **[07:08](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=428s)** — safety studies without even telling the FDA. I mean, think about it. Trans fats were considered
+- **[07:14](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=434s)** — to be safe. Trans fats, the stuff that causes heart disease, that was considered to be safe
+- **[07:19](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=439s)** — in the media, in the news. What you're hearing now is... There's no real evidence to show that
+- **[07:25](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=445s)** — junk food and chemicals are that bad as long as it's done in moderation. Well, have you ever
+- **[07:29](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=449s)** — tried to eat junk food in balance or moderation? The chemicals in there make it super addicting.
+- **[07:35](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=455s)** — You can't just have one. The American Heart Association was pushing for,
+- **[07:40](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=460s)** — we don't need more regulation. We should just educate people. In order to educate people,
+- **[07:45](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=465s)** — you have to have the correct information to educate them on. With all the bias and conflicts
+- **[07:50](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=470s)** — of interest, what are you going to educate them on? That junk food is okay? On top of the
+- **[07:55](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=475s)** — billion dollar marketing budgets that these companies have, putting out in the media to
+- **[07:59](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=479s)** — counter this education and don't have ultra processed foods in the dietary food guidelines.
+- **[08:04](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=484s)** — Because that pushes it into the hospitals, the assisted living programs, the school system,
+- **[08:10](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=490s)** — the military, etc. Last point about this topic, about the arguments that they use. Well,
+- **[08:16](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=496s)** — everything is processed. No, that's not true. They're similar, but they're not the same.
+- **[08:21](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=501s)** — There's degree of processing. And when we're talking about ultra process, just think about
+- **[08:27](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=507s)** — the word ultra. Ultra means extreme, way above minimal processing. I just got done talking
+- **[08:35](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=515s)** — about a lot of bad foods. I want to shift gears and talk about the top foods that you
+- **[08:42](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=522s)** — should be eating right now, that should be on your plate, that are nutrient dense, that are
+- **[08:46](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=526s)** — whole, that will make you super, super healthy. Please watch that video right now. I put the
+- **[08:51](https://www.youtube.com/watch?v=oiVFIRyXhIw&t=531s)** — link in the description. That's right, click it right here.

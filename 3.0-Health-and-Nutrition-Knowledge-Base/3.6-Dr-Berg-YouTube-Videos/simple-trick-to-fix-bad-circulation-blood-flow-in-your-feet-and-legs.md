@@ -1,0 +1,119 @@
+# Simple Trick to Fix Bad Circulation & Blood Flow in Your Feet and Legs
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=1TruE9w7PO4](https://www.youtube.com/watch?v=1TruE9w7PO4)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=1TruE9w7PO4&t=0s)** — I was taught that the heart is the primary pump for all the circulation.
+- **[00:04](https://www.youtube.com/watch?v=1TruE9w7PO4&t=4s)** — But there's other data to show that that's not quite true.
+- **[00:07](https://www.youtube.com/watch?v=1TruE9w7PO4&t=7s)** — I'm going to show you how to improve the blood flow through your legs and your ankles and your feet.
+- **[00:11](https://www.youtube.com/watch?v=1TruE9w7PO4&t=11s)** — But there's many different problems that occur when you have poor circulation.
+- **[00:14](https://www.youtube.com/watch?v=1TruE9w7PO4&t=14s)** — A demon swelling, painful feet as well, cramps in the feet and the calves.
+- **[00:18](https://www.youtube.com/watch?v=1TruE9w7PO4&t=18s)** — I'm going to cover all of these and then relate them to a really simple solution.
+- **[00:22](https://www.youtube.com/watch?v=1TruE9w7PO4&t=22s)** — I'm also going to be covering several important exercises.
+- **[00:25](https://www.youtube.com/watch?v=1TruE9w7PO4&t=25s)** — This information is based on a book called Understanding the Heart by Stephen Hussey.
+- **[00:30](https://www.youtube.com/watch?v=1TruE9w7PO4&t=30s)** — In one part of the book he talked about trees.
+- **[00:32](https://www.youtube.com/watch?v=1TruE9w7PO4&t=32s)** — How do trees pump this water from the roots all the way up to the leaves?
+- **[00:37](https://www.youtube.com/watch?v=1TruE9w7PO4&t=37s)** — They don't have hearts.
+- **[00:38](https://www.youtube.com/watch?v=1TruE9w7PO4&t=38s)** — What he has found through a lot of scientific research is that the heart spins the blood.
+- **[00:43](https://www.youtube.com/watch?v=1TruE9w7PO4&t=43s)** — And when you put water through a vortex, even underneath the earth you have moving water.
+- **[00:47](https://www.youtube.com/watch?v=1TruE9w7PO4&t=47s)** — Water always should move. It shouldn't be sitting there.
+- **[00:50](https://www.youtube.com/watch?v=1TruE9w7PO4&t=50s)** — Really the theory of this is the heart is acting as a mechanism to create structured water.
+- **[00:54](https://www.youtube.com/watch?v=1TruE9w7PO4&t=54s)** — To allow it to kind of go through the body.
+- **[00:58](https://www.youtube.com/watch?v=1TruE9w7PO4&t=58s)** — Now we do know the heart is very very electrical.
+- **[01:00](https://www.youtube.com/watch?v=1TruE9w7PO4&t=60s)** — I mean just think about what an EKG does, right?
+- **[01:02](https://www.youtube.com/watch?v=1TruE9w7PO4&t=62s)** — You're measuring the electrical part of the heart.
+- **[01:04](https://www.youtube.com/watch?v=1TruE9w7PO4&t=64s)** — Part of the solution that he did is he started increasing more structured water throughout his circulatory system.
+- **[01:10](https://www.youtube.com/watch?v=1TruE9w7PO4&t=70s)** — And so this leads us to increase structured water in your blood.
+- **[01:15](https://www.youtube.com/watch?v=1TruE9w7PO4&t=75s)** — The best way to do that is to get more exposure from infrared.
+- **[01:20](https://www.youtube.com/watch?v=1TruE9w7PO4&t=80s)** — Over 50% of the sun's energy is infrared.
+- **[01:24](https://www.youtube.com/watch?v=1TruE9w7PO4&t=84s)** — Infrared is just one little piece of the spectrum of light.
+- **[01:28](https://www.youtube.com/watch?v=1TruE9w7PO4&t=88s)** — Which apparently has a lot of healing.
+- **[01:30](https://www.youtube.com/watch?v=1TruE9w7PO4&t=90s)** — I mean a lot of people are using infrared for all sorts of things.
+- **[01:33](https://www.youtube.com/watch?v=1TruE9w7PO4&t=93s)** — But you can also make it to create more structured water in your circulation.
+- **[01:37](https://www.youtube.com/watch?v=1TruE9w7PO4&t=97s)** — More exposure to the sun is one important tip.
+- **[01:41](https://www.youtube.com/watch?v=1TruE9w7PO4&t=101s)** — To improve the circulation in your legs and improve your heart function.
+- **[01:44](https://www.youtube.com/watch?v=1TruE9w7PO4&t=104s)** — You can get an infrared device.
+- **[01:46](https://www.youtube.com/watch?v=1TruE9w7PO4&t=106s)** — There is infrared saunas.
+- **[01:48](https://www.youtube.com/watch?v=1TruE9w7PO4&t=108s)** — You can even sit in front of a campfire or your fireplace.
+- **[01:51](https://www.youtube.com/watch?v=1TruE9w7PO4&t=111s)** — You're going to get a good amount of infrared from that.
+- **[01:53](https://www.youtube.com/watch?v=1TruE9w7PO4&t=113s)** — Infrared also is a wonderful thing for your arteries.
+- **[01:57](https://www.youtube.com/watch?v=1TruE9w7PO4&t=117s)** — Especially to increase something called nitric oxide.
+- **[02:00](https://www.youtube.com/watch?v=1TruE9w7PO4&t=120s)** — Which helps with blood pressure.
+- **[02:01](https://www.youtube.com/watch?v=1TruE9w7PO4&t=121s)** — And then you also have the vitamin D from the UV.
+- **[02:05](https://www.youtube.com/watch?v=1TruE9w7PO4&t=125s)** — That automatically increases nitric oxide.
+- **[02:07](https://www.youtube.com/watch?v=1TruE9w7PO4&t=127s)** — Let's say you have swelling in your feet.
+- **[02:09](https://www.youtube.com/watch?v=1TruE9w7PO4&t=129s)** — Potassium is one of the best natural diuretics to get rid of excess fluid.
+- **[02:13](https://www.youtube.com/watch?v=1TruE9w7PO4&t=133s)** — You have to take maybe 1 to 2000 milligrams per day.
+- **[02:16](https://www.youtube.com/watch?v=1TruE9w7PO4&t=136s)** — The combination of getting rid of all the sugar and the starch.
+- **[02:19](https://www.youtube.com/watch?v=1TruE9w7PO4&t=139s)** — That's the bread, pasta, cereal, crackers, biscuits, waffles, pancakes, etc.
+- **[02:24](https://www.youtube.com/watch?v=1TruE9w7PO4&t=144s)** — Getting rid of those will get rid of a lot of fluid in your lower extremities.
+- **[02:30](https://www.youtube.com/watch?v=1TruE9w7PO4&t=150s)** — And the other thing about that is that when you consume a lot of sugar.
+- **[02:34](https://www.youtube.com/watch?v=1TruE9w7PO4&t=154s)** — You will deplete vitamin B1.
+- **[02:36](https://www.youtube.com/watch?v=1TruE9w7PO4&t=156s)** — Sometimes the pain in your toes or the bottom of your feet is related to that.
+- **[02:40](https://www.youtube.com/watch?v=1TruE9w7PO4&t=160s)** — And so you need to take something called benfotamine to restore it.
+- **[02:43](https://www.youtube.com/watch?v=1TruE9w7PO4&t=163s)** — In addition to your limiting your carbohydrates.
+- **[02:47](https://www.youtube.com/watch?v=1TruE9w7PO4&t=167s)** — Let's say for example you have cramps.
+- **[02:49](https://www.youtube.com/watch?v=1TruE9w7PO4&t=169s)** — Sometimes people think that the cramps really are poor circulation. They're not.
+- **[02:53](https://www.youtube.com/watch?v=1TruE9w7PO4&t=173s)** — Cramping in your calves or your feet is merely a magnesium deficiency.
+- **[02:58](https://www.youtube.com/watch?v=1TruE9w7PO4&t=178s)** — The thing about magnesium is that it's really hard to test for it because
+- **[03:03](https://www.youtube.com/watch?v=1TruE9w7PO4&t=183s)** — you only have 1% of your body magnesium in your blood.
+- **[03:06](https://www.youtube.com/watch?v=1TruE9w7PO4&t=186s)** — 99% is in the cells.
+- **[03:08](https://www.youtube.com/watch?v=1TruE9w7PO4&t=188s)** — It's a really important mineral involved with blood pressure,
+- **[03:13](https://www.youtube.com/watch?v=1TruE9w7PO4&t=193s)** — making energy and especially muscle because it works with calcium.
+- **[03:18](https://www.youtube.com/watch?v=1TruE9w7PO4&t=198s)** — It controls calcium. In fact one of the medications for blood pressure is called a calcium channel blocker.
+- **[03:25](https://www.youtube.com/watch?v=1TruE9w7PO4&t=205s)** — Well guess what magnesium is? It's a natural calcium channel blocker.
+- **[03:28](https://www.youtube.com/watch?v=1TruE9w7PO4&t=208s)** — Why don't they just use magnesium? Because you can't patent it.
+- **[03:31](https://www.youtube.com/watch?v=1TruE9w7PO4&t=211s)** — Magnesium is really important for blood pressure, but it's also essential to get rid of cramps.
+- **[03:36](https://www.youtube.com/watch?v=1TruE9w7PO4&t=216s)** — But sometimes you have to take enough over a long period of time.
+- **[03:39](https://www.youtube.com/watch?v=1TruE9w7PO4&t=219s)** — I recommend taking about 800 milligrams per day in the evening for some weeks
+- **[03:46](https://www.youtube.com/watch?v=1TruE9w7PO4&t=226s)** — until you get rid of your cramps and you can reduce it down to 400 milligrams per day.
+- **[03:50](https://www.youtube.com/watch?v=1TruE9w7PO4&t=230s)** — You want to take magnesium glycinate because that's the one that is the best absorbed and it doesn't cause diarrhea.
+- **[03:56](https://www.youtube.com/watch?v=1TruE9w7PO4&t=236s)** — Another mistake, compression stockings.
+- **[03:58](https://www.youtube.com/watch?v=1TruE9w7PO4&t=238s)** — If you already have problems with your arteries being constricted and you use these compression stockings,
+- **[04:04](https://www.youtube.com/watch?v=1TruE9w7PO4&t=244s)** — you're basically constricting blood flow. Not the best thing to do.
+- **[04:08](https://www.youtube.com/watch?v=1TruE9w7PO4&t=248s)** — Now let's talk about varicose veins. There's a really good remedy for that.
+- **[04:12](https://www.youtube.com/watch?v=1TruE9w7PO4&t=252s)** — Diasmen. And it can help with varicose veins.
+- **[04:14](https://www.youtube.com/watch?v=1TruE9w7PO4&t=254s)** — Another little mistake that I think people make when they have circulation problems
+- **[04:19](https://www.youtube.com/watch?v=1TruE9w7PO4&t=259s)** — is they start doing high intensity type exercise.
+- **[04:22](https://www.youtube.com/watch?v=1TruE9w7PO4&t=262s)** — If you have a problem with the lower part of your body, whether it's edema, varicose veins,
+- **[04:28](https://www.youtube.com/watch?v=1TruE9w7PO4&t=268s)** — you want to go light on the exercise. You do not want to do any high intense anything.
+- **[04:33](https://www.youtube.com/watch?v=1TruE9w7PO4&t=273s)** — Okay, you don't really want to do sprints just because there's a chance it could get worse.
+- **[04:37](https://www.youtube.com/watch?v=1TruE9w7PO4&t=277s)** — Walking would be the best thing. Let's go into the exercises.
+- **[04:40](https://www.youtube.com/watch?v=1TruE9w7PO4&t=280s)** — In this first exercise, we're going to combine elevating our legs with an ankle pump.
+- **[04:46](https://www.youtube.com/watch?v=1TruE9w7PO4&t=286s)** — So you will be lying on your back with your feet up on your wall
+- **[04:51](https://www.youtube.com/watch?v=1TruE9w7PO4&t=291s)** — while you move one foot at a time back and forth.
+- **[04:54](https://www.youtube.com/watch?v=1TruE9w7PO4&t=294s)** — And you're pumping the fluid from your lower extremity back to the heart.
+- **[05:00](https://www.youtube.com/watch?v=1TruE9w7PO4&t=300s)** — The combination of elevation and the pumping motion is great to push fluid
+- **[05:06](https://www.youtube.com/watch?v=1TruE9w7PO4&t=306s)** — from the lower extremity back up to where it needs to go.
+- **[05:09](https://www.youtube.com/watch?v=1TruE9w7PO4&t=309s)** — That's one exercise. The next one I'm going to show you is an ankle pump while you're sitting.
+- **[05:13](https://www.youtube.com/watch?v=1TruE9w7PO4&t=313s)** — Now, let's say you're sitting in your chair through the day.
+- **[05:16](https://www.youtube.com/watch?v=1TruE9w7PO4&t=316s)** — You can literally just do this ankle pumping underneath your desk.
+- **[05:20](https://www.youtube.com/watch?v=1TruE9w7PO4&t=320s)** — This next exercise is really, really good because it involves activating more of the muscles
+- **[05:26](https://www.youtube.com/watch?v=1TruE9w7PO4&t=326s)** — in your calf and in your shin at the same time.
+- **[05:29](https://www.youtube.com/watch?v=1TruE9w7PO4&t=329s)** — And this is called heel to toe rocking. In this first one, you're going to be holding something,
+- **[05:34](https://www.youtube.com/watch?v=1TruE9w7PO4&t=334s)** — whether it's a wall or something to stabilize yourself so you don't fall down.
+- **[05:38](https://www.youtube.com/watch?v=1TruE9w7PO4&t=338s)** — And you're basically going to go through this motion where you're rocking back
+- **[05:42](https://www.youtube.com/watch?v=1TruE9w7PO4&t=342s)** — and you're going to go up on your toes back and forth.
+- **[05:45](https://www.youtube.com/watch?v=1TruE9w7PO4&t=345s)** — You're going to do this about 10 times.
+- **[05:47](https://www.youtube.com/watch?v=1TruE9w7PO4&t=347s)** — And you can do that a few times through the day.
+- **[05:48](https://www.youtube.com/watch?v=1TruE9w7PO4&t=348s)** — But this is one of the best exercises if you want to push fluid
+- **[05:52](https://www.youtube.com/watch?v=1TruE9w7PO4&t=352s)** — from the lower part of the body up to the heart.
+- **[05:55](https://www.youtube.com/watch?v=1TruE9w7PO4&t=355s)** — And then after you get good enough, you can do this without any support
+- **[05:58](https://www.youtube.com/watch?v=1TruE9w7PO4&t=358s)** — and basically stand there and do this rocking motion to allow your body to adapt
+- **[06:03](https://www.youtube.com/watch?v=1TruE9w7PO4&t=363s)** — so you're not having to depend on holding something.
+- **[06:06](https://www.youtube.com/watch?v=1TruE9w7PO4&t=366s)** — I would recommend just doing it 10 times.
+- **[06:08](https://www.youtube.com/watch?v=1TruE9w7PO4&t=368s)** — Okay, and then do that several times during the day.
+- **[06:10](https://www.youtube.com/watch?v=1TruE9w7PO4&t=370s)** — Recovered circulation, edema, swelling, pain.
+- **[06:14](https://www.youtube.com/watch?v=1TruE9w7PO4&t=374s)** — What about cold feet? What can you do for cold feet?
+- **[06:16](https://www.youtube.com/watch?v=1TruE9w7PO4&t=376s)** — That is normally an iodine deficiency because the thyroid is low.
+- **[06:21](https://www.youtube.com/watch?v=1TruE9w7PO4&t=381s)** — C-calp is one of the best sources of iodine.
+- **[06:22](https://www.youtube.com/watch?v=1TruE9w7PO4&t=382s)** — You can take that. That will help strengthen your thyroid
+- **[06:25](https://www.youtube.com/watch?v=1TruE9w7PO4&t=385s)** — so you can actually have warmer feet.
+- **[06:27](https://www.youtube.com/watch?v=1TruE9w7PO4&t=387s)** — So I gave you a lot of things to do today.
+- **[06:29](https://www.youtube.com/watch?v=1TruE9w7PO4&t=389s)** — Go ahead and apply some of them.
+- **[06:31](https://www.youtube.com/watch?v=1TruE9w7PO4&t=391s)** — And then please come back and comment down below on how it worked for you.

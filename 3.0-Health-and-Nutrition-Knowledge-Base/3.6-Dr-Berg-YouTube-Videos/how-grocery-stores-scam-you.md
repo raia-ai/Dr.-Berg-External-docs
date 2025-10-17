@@ -1,0 +1,123 @@
+# How Grocery Stores SCAM YOU!!
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=MuVMHPuXWAQ](https://www.youtube.com/watch?v=MuVMHPuXWAQ)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=0s)** — I want to show you something. You see this book right here? This is an endocrinology book.
+- **[00:04](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=4s)** — On page 84, we have this body type right here. And you can see this round face. I used to have this.
+- **[00:11](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=11s)** — I mean, my face was round, it was swollen, I had puffiness underneath my eyes. I had no idea it was
+- **[00:16](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=16s)** — not normal until I got rid of it. And I'm like, oh my gosh, that wasn't normal. So today I'm
+- **[00:21](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=21s)** — going to show you exactly what this is and how to get rid of it pretty simply. But this
+- **[00:26](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=26s)** — particular picture is in the chapter on a condition called Cushing's syndrome. And one of the symptoms
+- **[00:34](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=34s)** — is moon face. Now Cushing's syndrome is basically high levels of cortisol. And cortisol is a stress
+- **[00:40](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=40s)** — hormone. Now with cortisol, you have your body's production of cortisol. And if it's too high
+- **[00:45](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=45s)** — over a long period of time, that could be the problem. Or you're taking a medication that's a
+- **[00:49](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=49s)** — synthetic version of cortisol. It's called prednisone. And in fact, if you've ever seen
+- **[00:53](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=53s)** — picture of Jerry Lewis, when he took prednisone, his face just swoll up like that. And what's also
+- **[00:58](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=58s)** — interesting is I had prednisone every single year for probably 10 years straight, starting
+- **[01:04](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=64s)** — in my 20s and my 30s from getting this darn poison ivy every year. So whether that contributed
+- **[01:09](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=69s)** — to it or something else, I'm not exactly 100% sure. But I do want to share what I know on
+- **[01:13](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=73s)** — this topic. Now what's interesting about cortisol is cortisol has the power to redistribute
+- **[01:18](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=78s)** — where the fat goes in the body. It starts going around the face and in this part right here
+- **[01:24](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=84s)** — called the midsection. So belly fat. Sometimes over time, if you start getting that buffalo
+- **[01:29](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=89s)** — hump on the back there, and also red cheeks, thinner legs, weak muscles in the legs,
+- **[01:35](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=95s)** — especially the thigh muscle, you start losing the glutamous maximus, the butt muscle right
+- **[01:40](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=100s)** — here. Other things that happen is your cholesterol and your lipids start going higher.
+- **[01:44](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=104s)** — You start losing potassium and retaining sodium. So there goes your blood pressure. It's going
+- **[01:50](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=110s)** — to go straight up. What's also interesting is your vitamin D level goes down. The immune
+- **[01:53](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=113s)** — system usually suffers and they've even tested cortisol levels. And when people get emotionally
+- **[01:58](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=118s)** — upset, the cortisol goes straight up and vertical. So if someone is always or chronically
+- **[02:04](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=124s)** — emotionally upset, they're going to have high levels of cortisol. This next part is very
+- **[02:08](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=128s)** — interesting because the cortisol itself is not causing the face to look like a moon face.
+- **[02:15](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=135s)** — It's indirectly doing it. That hormone starts to break down your own proteins,
+- **[02:20](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=140s)** — starting with your thigh muscles and your butt muscle. And it turns that into glucose or
+- **[02:26](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=146s)** — sugar. And that's coming from a protein. And so your body is making new sugar, not out of
+- **[02:33](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=153s)** — the dietary sugar. I mean, this does not just happen in women. It happens in men,
+- **[02:37](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=157s)** — you can see the adrenal glands are basically flooding the midsection with cortisol. And
+- **[02:44](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=164s)** — then that turns into sugar and then fat. So insulin is a fat storing hormone. And the
+- **[02:49](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=169s)** — presence of just a little bit too much insulin, you're not going to be able to lose fat.
+- **[02:54](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=174s)** — And you go to the doctor and they might say, well, you just need to lose weight,
+- **[02:57](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=177s)** — right? Lose weight, go on a diet. But stress can activate insulin. People have high
+- **[03:03](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=183s)** — levels of insulin. They get something called metabolic syndrome. What is that? That is a
+- **[03:07](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=187s)** — combination of high cholesterol, hypertension, and high blood glucose. All of that comes from
+- **[03:15](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=195s)** — too much insulin. Overexercising. Now I had this lady come to my office once and I had to do a
+- **[03:19](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=199s)** — little exercise and her pulse rate went up to 150. Okay. And then I had her come back the
+- **[03:24](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=204s)** — next day. The pulse rate was still at 150. I was like, what the heck? Her recovery was
+- **[03:30](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=210s)** — terrible. And that was a situation because typically in a healthy body, you'll raise the
+- **[03:36](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=216s)** — pulse rate and it comes down. So if someone like that with poor recovery would continue to
+- **[03:42](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=222s)** — exercise every day, it would just create a tremendous amount of stress and cortisol in
+- **[03:48](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=228s)** — the body. But also lack of sleep will raise your cortisol. Think about this. When you don't
+- **[03:52](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=232s)** — sleep, you're hungry. Your appetite goes up. But boy, when you get a good night's rest,
+- **[03:57](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=237s)** — oh my gosh, you're not hungry as much. Cravings go away. You're doing great. And
+- **[04:01](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=241s)** — you have something like surgery and trauma and being in pain can also increase cortisol. Not to
+- **[04:08](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=248s)** — mention alcohol and even certain medications. All right. So those are the triggers. But now
+- **[04:12](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=252s)** — what about insulin? What increases insulin? Carbohydrates. This is a really big confusion
+- **[04:16](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=256s)** — with carbohydrates because when you do keto, okay, ketogenic diet, this is basically you're
+- **[04:22](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=262s)** — getting your body to burn fat. They will tell you to reduce your carbs below 50 grams.
+- **[04:28](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=268s)** — There's a lot of confusion what a carb is. A carb makes up several things. One is fiber. Fiber
+- **[04:34](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=274s)** — is a carbohydrate. Sugar is a carbohydrate. But if we take something like this, right, this is a
+- **[04:40](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=280s)** — Pop-Tart, okay. And we look at the total carbs. We have 78 carbs and then we have 42
+- **[04:49](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=289s)** — sugars. Okay, so a sugar is a carb. And if we deduct the fiber and the sugar from the carb,
+- **[04:55](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=295s)** — it leaves us with 34 additional grams of something. What is that something? A lot of people don't
+- **[05:03](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=303s)** — know what that is. Well, that something is starch. Usually when you're talking about
+- **[05:08](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=308s)** — junk food, you're talking about something like this starch, cornstarch. This is why it's so
+- **[05:13](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=313s)** — important to read the ingredients, okay, not just this other thing right here, but the
+- **[05:17](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=317s)** — ingredients to see what you're eating. But there's some other things that can increase
+- **[05:22](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=322s)** — insulin that you need to know about. Frequent eating. If you're snacking a lot, you're raising
+- **[05:28](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=328s)** — insulin. But what if it's not carbohydrates? Doesn't matter. If you're eating, you're going
+- **[05:32](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=332s)** — to raise insulin to a certain degree. And so the frequency of eating is a killer. Seed oils,
+- **[05:39](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=339s)** — soy, corn, canola, cottonseed, safflower, sunflower seed, those can actually really mess up
+- **[05:46](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=346s)** — your insulin as well. These next few are very interesting. Nutrient deficiencies, like a
+- **[05:51](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=351s)** — B1 deficiency, magnesium deficiency, and a vitamin D deficiency can all indirectly start
+- **[05:58](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=358s)** — elevating insulin because those are the key nutrients that allow insulin to work. And when
+- **[06:03](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=363s)** — you're deficient, you have more problems with that hormone. And of course, the last one is
+- **[06:08](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=368s)** — medications, especially by taking insulin. They used to do what's called insulin shock
+- **[06:13](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=373s)** — therapy. Wow, insulin shock therapy. What is that? They would inject people with tremendous
+- **[06:17](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=377s)** — of insulin, put them in a coma, wake them up a few weeks later as their therapy for mental
+- **[06:23](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=383s)** — illness, and they would wake up fat. Incredible. They used to do that. Okay, so what do we do to
+- **[06:28](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=388s)** — to get the face back to normal? Okay, because it's not that your bones are round like that.
+- **[06:34](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=394s)** — Your face has layers of fat on it. So the first thing to do is to start eating less
+- **[06:40](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=400s)** — frequently by cutting out the snacks between the meals. That alone will be huge. Okay,
+- **[06:46](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=406s)** — then what you need to do is do intermittent fasting, which is you're going to start reducing
+- **[06:51](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=411s)** — the number of meals. I would recommend starting out with two meals a day. And when you wake up
+- **[06:55](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=415s)** — in the morning, try to go as long as you can before you eat the first meal. Okay, and then
+- **[06:59](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=419s)** — maybe it's like 11 o'clock or even 12. Have your first meal and then have your dinner. Now
+- **[07:05](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=425s)** — you're at two meals a day. That's going to be huge because you're going to allow your body
+- **[07:08](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=428s)** — to fast. And when you're fasting, you're forcing your body to reduce insulin and use
+- **[07:15](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=435s)** — your own fat as fuel. Because what we want to do is we want to force our body to use up the
+- **[07:20](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=440s)** — fat around our face, which will come off first before the belly. So it's not going to take long
+- **[07:26](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=446s)** — to reshape the face. If you ever look at a diabetic that's just filled with sugar in their
+- **[07:29](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=449s)** — blood, they're just waterlogged, especially in their lower legs. So when you do this,
+- **[07:33](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=453s)** — you're going to lose a lot of water weight initially. Probably 11 pounds of water weight in
+- **[07:37](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=457s)** — the first week or two. And then your weight loss is going to be down and you're going to
+- **[07:40](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=460s)** — think, oh my gosh, I'm not losing weight anymore. No, no, you have to get rid of the
+- **[07:44](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=464s)** — water first and then you'll start burning more fat, which is a lot less. You can't burn 11
+- **[07:48](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=468s)** — pounds of fat per week. The most it's going to be two pounds. But for most people, it might be
+- **[07:54](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=474s)** — one pound a week. So that's intermittent fasting. And then number two, you want to
+- **[07:58](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=478s)** — start changing the diet. You want to start cutting down the carbs, very specifically,
+- **[08:03](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=483s)** — sugar and starches. If you want a little card cutout that you can put in your wallet
+- **[08:08](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=488s)** — to show you what to avoid, I'll put the link down below. Okay, you just print it out,
+- **[08:13](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=493s)** — cut it out, put it in your wallet and now you can see what you should avoid. Number three,
+- **[08:18](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=498s)** — increase your protein. Your body needs a certain amount of protein to really fix all these
+- **[08:24](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=504s)** — issues. Plant source protein powders and all that stuff. It doesn't really work. You need
+- **[08:28](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=508s)** — like a high quality meat protein. And the highest quality meat that you could possibly eat
+- **[08:34](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=514s)** — is grass fed. It can be beef, it could be lamb, it could be goat, but grass fed is what
+- **[08:40](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=520s)** — you want to do. Number four, stress. Okay, long walks every day. Your exercise program should be
+- **[08:46](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=526s)** — not too frequent if you're doing higher intensity. I would do also things like physical work because
+- **[08:52](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=532s)** — you're taking your mind off something versus walking on a treadmill reading your cell phone.
+- **[08:56](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=536s)** — I really think the cell phone stresses people out more than anything. So you have to take
+- **[09:00](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=540s)** — part of the day and just put it to the side. Go for your walk without any cell phone,
+- **[09:04](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=544s)** — anything because these cell phones give off EMF waves, electromagnetic fields, and that can raise
+- **[09:11](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=551s)** — cortisol. And then the last thing, and this is really important, is try to get some extra
+- **[09:15](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=555s)** — sleep. Even if you wake up in the middle of the night, go back to bed and try to sleep
+- **[09:21](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=561s)** — in a little bit. That'll be so, so important. I used to really push it and think I can get
+- **[09:26](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=566s)** — away with it. I'd get up at four. Now I sleep in more, so I'm trying to get like eight
+- **[09:31](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=571s)** — hours of sleep. I should have done that a long time ago. I highly recommend it. I know people
+- **[09:36](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=576s)** — have to get a lot of stuff done, but the sleep will allow you to focus and it keeps you a lot
+- **[09:42](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=582s)** — healthier. So lastly, click the link down below to get that little card so you can cut it
+- **[09:46](https://www.youtube.com/watch?v=MuVMHPuXWAQ&t=586s)** — out and keep it in your wallet and it'll make things really easy.

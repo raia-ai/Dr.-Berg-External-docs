@@ -1,0 +1,189 @@
+# Do NOT Make These Mistakes (Especially After 50)
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=eJeTsPEiXRA](https://www.youtube.com/watch?v=eJeTsPEiXRA)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=0s)** — Today I want to discuss the real common mistakes that people make that end up keeping them very unhealthy.
+- **[00:07](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=7s)** — This information becomes very important as you age, especially over 50, but if you're younger, take notes.
+- **[00:12](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=12s)** — And you're definitely not going to find this information if you just ask your average doctor.
+- **[00:16](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=16s)** — They're not expert in nutrition. They just don't get the training.
+- **[00:20](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=20s)** — Whatever they recommend, go in the opposite direction. It's about giving you a label for a certain condition that's very descriptive and then matching that with a medication.
+- **[00:29](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=29s)** — I'm a lot more interested in getting to the root cause.
+- **[00:32](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=32s)** — Number one, you want to really make sure that the source of your information that you get is based on someone who has a lot of experience and results in the problem you're trying to solve.
+- **[00:40](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=40s)** — Number two, be very careful about accepting a diagnosis that just doesn't seem right.
+- **[00:44](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=44s)** — Number three, make sure that the solution or the treatment that you get doesn't create more problems than your current symptoms, aka side effects.
+- **[00:53](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=53s)** — And that relates to this next point.
+- **[00:55](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=55s)** — If you expose yourself to too much stress, it kind of gets stuck into your mind and you're trying to go to bed and you can't sleep and you're worrying and you're in this constant state of fear.
+- **[01:03](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=63s)** — Unfortunately, nowadays it's almost impossible to avoid it because it's everywhere.
+- **[01:07](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=67s)** — The next thing I want to talk about before I get into nutrition is your environment.
+- **[01:11](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=71s)** — I didn't realize at first how important your environment was until I had this great opportunity to move out of the city into the farm.
+- **[01:19](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=79s)** — I'm going to tell you, having that space is such a therapy.
+- **[01:23](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=83s)** — It's going into nature. It's so important to do this on a regular basis.
+- **[01:26](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=86s)** — And the next thing is regular, consistent exercise.
+- **[01:30](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=90s)** — And what exercise does is it kind of flushes out the cortisol and the adrenaline that builds up just from being on this planet.
+- **[01:39](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=99s)** — If you exercise more on a wave versus a sustained high pulse rate exercise, it's healthier.
+- **[01:46](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=106s)** — Next point, what are the most important nutrients that you should be getting on a regular basis?
+- **[01:53](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=113s)** — The most important one is vitamin D.
+- **[01:56](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=116s)** — Think about your genetics. You have like 20,000 to 25,000 different genes.
+- **[02:02](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=122s)** — Did you know that vitamin D influences 10% of those genes?
+- **[02:05](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=125s)** — To create a therapeutic effect for vitamin D, you need to use 10,000, 20,000, 30,000, 50,000 or more of vitamin D3
+- **[02:15](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=135s)** — to really create an effect.
+- **[02:18](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=138s)** — There's a medical doctor who specializes in autoimmune diseases.
+- **[02:22](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=142s)** — This medical doctor gets results.
+- **[02:24](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=144s)** — He has over 900 videos on testimonials before and after that you can see just using high doses of vitamin D3.
+- **[02:33](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=153s)** — There's certain doctors that are using high doses of vitamin D3 to remodel certain parts of the eye and repair really difficult things like glaucoma.
+- **[02:43](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=163s)** — There's other doctors using high doses of vitamin D3 to shrink fibroids.
+- **[02:48](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=168s)** — So vitamin D is super super important for your health and of course getting more sun too and we just don't go outside enough.
+- **[02:53](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=173s)** — The second most important nutrient is magnesium.
+- **[02:56](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=176s)** — It's very rare that anyone gets enough magnesium.
+- **[02:59](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=179s)** — Magnesium is involved in thousands of different things in the body.
+- **[03:04](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=184s)** — Every different type of heart disease usually has a magnesium deficiency.
+- **[03:08](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=188s)** — But magnesium goes way beyond the heart.
+- **[03:09](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=189s)** — If you don't have enough magnesium, you can't make energy.
+- **[03:12](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=192s)** — So vitamin D, magnesium and number three is zinc.
+- **[03:15](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=195s)** — Zinc is a trace mineral. Zinc is very very important and a lot of people are deficient in zinc.
+- **[03:19](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=199s)** — And they all really depend on each other.
+- **[03:21](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=201s)** — In other words, you could be taking a lot of vitamin D3 and be very deficient in magnesium and zinc and vitamin D won't work.
+- **[03:27](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=207s)** — So you kind of need all three of those.
+- **[03:29](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=209s)** — And then the flip side, what are the two nutrients that you have to be careful of taking because they become very toxic?
+- **[03:35](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=215s)** — Number one, calcium.
+- **[03:36](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=216s)** — As we age, calcium tends to plug everything up.
+- **[03:40](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=220s)** — And guess what? Magnesium is the regulator of that.
+- **[03:42](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=222s)** — And so if you don't take magnesium enough on a regular basis, you're going to put yourself at risk for heart disease.
+- **[03:47](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=227s)** — Why? Because you don't have the controlling factor of calcium and it gets into the soft tissues.
+- **[03:53](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=233s)** — And then the other nutrient that's even more deadly than too much calcium is too much iron.
+- **[03:58](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=238s)** — We have an extreme difficulty in getting rid of iron.
+- **[04:02](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=242s)** — At the very most per day, we only get rid of 0.5 to 1 milligram of iron.
+- **[04:09](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=249s)** — Yet the RDA for iron is 8 milligrams.
+- **[04:13](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=253s)** — And if you're women of childbearing age, it's like 18 milligrams.
+- **[04:19](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=259s)** — We're taking in way too much iron.
+- **[04:21](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=261s)** — If you have too much iron, you're going to rust out your organs.
+- **[04:24](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=264s)** — You want to start looking at labels, start avoiding certain things to make sure you don't overload yourself with iron.
+- **[04:29](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=269s)** — Even if you have a genetic problem with iron, which is the person really is not deficient in iron.
+- **[04:34](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=274s)** — They just have an accumulation of iron in the wrong place.
+- **[04:37](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=277s)** — Iron is very, very toxic and I never recommend taking it in a supplement.
+- **[04:41](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=281s)** — Next mistake is to avoid salt.
+- **[04:43](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=283s)** — There's a difference between sea salt and table salt.
+- **[04:46](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=286s)** — I always recommend sea salt because sea salt has 84 minerals.
+- **[04:50](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=290s)** — If someone is salt sensitive, in reality, they're just deficient in potassium.
+- **[04:55](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=295s)** — Because potassium and sodium work together.
+- **[04:58](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=298s)** — And we need a considerable amount of sodium and you get that from sea salt.
+- **[05:01](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=301s)** — And when you're deficient in salt, your cortisol goes up.
+- **[05:04](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=304s)** — This can affect your sleeping. This can make you stressed.
+- **[05:07](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=307s)** — It's a very important electrolyte.
+- **[05:09](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=309s)** — The RDAs for potassium, you need 4,700 milligrams.
+- **[05:13](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=313s)** — That's also really important for generating energy for your nerves and your muscles every single day.
+- **[05:18](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=318s)** — I don't think anyone gets that.
+- **[05:19](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=319s)** — Next point, someone recently asked a question.
+- **[05:21](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=321s)** — What should I be doing as I go through menopause?
+- **[05:25](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=325s)** — And I said, well, make sure you're consuming enough cholesterol foods.
+- **[05:29](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=329s)** — You're like, what? Are you kidding?
+- **[05:31](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=331s)** — Doctor's trying to lower my cholesterol.
+- **[05:32](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=332s)** — Well, what happens when we age is we start having a decrease in hormones, testosterone.
+- **[05:37](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=337s)** — estrogen, things like that.
+- **[05:39](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=339s)** — And all of those hormones are built out of cholesterol.
+- **[05:43](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=343s)** — When you start to cut down your cholesterol,
+- **[05:45](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=345s)** — or you take certain medications that cut down your cholesterol,
+- **[05:48](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=348s)** — you really cut down those hormones that are already tanked and very, very low.
+- **[05:53](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=353s)** — So having sufficient amounts of the raw material cholesterol in your diet is very,
+- **[05:56](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=356s)** — very important, especially as you age.
+- **[05:58](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=358s)** — We need cholesterol for our brain, bile salts to help digest fats.
+- **[06:01](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=361s)** — Most importantly, we need cholesterol to make hormones.
+- **[06:04](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=364s)** — Where do we get cholesterol?
+- **[06:05](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=365s)** — Butter, eggs, dairy, shellfish.
+- **[06:08](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=368s)** — And just as a side note, just think about this.
+- **[06:10](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=370s)** — Diabetes is too much sugar in your blood.
+- **[06:13](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=373s)** — Wouldn't it make logical sense to start cutting down sugar and carbohydrates?
+- **[06:17](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=377s)** — In fact, what they focus more on is making sure you have
+- **[06:21](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=381s)** — some glucose tablets in your pocket or candy in your pocket if your blood
+- **[06:25](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=385s)** — sugars become too low because the medication is pushing it too low.
+- **[06:28](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=388s)** — Why not just take less medication if you come off the carbs?
+- **[06:32](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=392s)** — This whole thing is insane.
+- **[06:33](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=393s)** — But it's not just about cutting down the sugar carbohydrates.
+- **[06:37](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=397s)** — It's cutting down this other carbohydrate called starch.
+- **[06:41](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=401s)** — Most of the starch that people are eating is not really listed as starch on the labels.
+- **[06:46](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=406s)** — It's listed as these other words, modified food,
+- **[06:50](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=410s)** — starch, but then you get into the wheat flour.
+- **[06:53](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=413s)** — All of that is starch.
+- **[06:54](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=414s)** — Next point. In your diet, you have proteins,
+- **[06:57](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=417s)** — carbohydrates, and fats.
+- **[06:59](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=419s)** — Which one would be the most important to focus on as far as to create health?
+- **[07:05](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=425s)** — Proteins are the most important. Why?
+- **[07:08](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=428s)** — Because most of your body is protein. Not just muscle, connective tissue,
+- **[07:12](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=432s)** — but your immune system, antibodies, white blood cells, and a person,
+- **[07:16](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=436s)** — an insect, an animal will continue to eat until their protein requirements are satisfied.
+- **[07:22](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=442s)** — So just take a look at junk food, right?
+- **[07:24](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=444s)** — There's not a lot of protein in junk food.
+- **[07:26](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=446s)** — The cereal boxes, the crackers, the cookies.
+- **[07:29](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=449s)** — Look at the protein. It's just like missing.
+- **[07:31](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=451s)** — What food would give you the most healing?
+- **[07:33](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=453s)** — Right off the bat, grass-fed beef, grass-fed lamb.
+- **[07:37](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=457s)** — That's the most nutrient-dense food to heal the gut,
+- **[07:40](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=460s)** — to give you trace minerals, to give you B vitamins,
+- **[07:42](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=462s)** — but also to give you the highest quality protein.
+- **[07:44](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=464s)** — Think about it. As we age, especially over 50, we start losing our muscle.
+- **[07:49](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=469s)** — You need to keep your protein at a higher level with each meal.
+- **[07:53](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=473s)** — You can also get a super concentrated amount of these nutrients from organ meats.
+- **[07:58](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=478s)** — I wish I liked liver. I don't like it. I'm not going to eat it.
+- **[08:01](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=481s)** — However, there's another liver that I love.
+- **[08:04](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=484s)** — In fact, sometimes I crave it and it's really delicious.
+- **[08:07](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=487s)** — It's cod liver. And the reason I'm bringing up this cod liver is because
+- **[08:10](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=490s)** — it's one of the best sources. I consume it probably twice a week.
+- **[08:13](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=493s)** — All right. Next point is very, very important.
+- **[08:16](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=496s)** — The frequency of eating. Let's say you're consuming 2,500 calories per day
+- **[08:22](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=502s)** — and you were to consume them just twice a day versus six times a day.
+- **[08:26](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=506s)** — All those extra meals creates more of a problem for you because every time you eat,
+- **[08:31](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=511s)** — you stimulate insulin. Producing too much insulin is probably the single biggest problem
+- **[08:35](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=515s)** — right now behind so many chronic illnesses, not just diabetes, but a fatty liver,
+- **[08:41](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=521s)** — high blood pressure. We talked about reducing the carbohydrates.
+- **[08:44](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=524s)** — Now we're talking about reducing snacking, grazing at night. It's just not good.
+- **[08:48](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=528s)** — If you could just take your snacks, if it's nuts or whatever,
+- **[08:51](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=531s)** — just push them to the meal and just had two meals a day, I think that would be awesome
+- **[08:56](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=536s)** — because then you can actually do intermittent fasting and you can create a lot of improvements
+- **[09:00](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=540s)** — with that because it's going to reduce your insulin.
+- **[09:03](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=543s)** — Next point you should know about autoimmune diseases.
+- **[09:05](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=545s)** — It's where your immune system is attacking itself. It's the number one problem out there.
+- **[09:11](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=551s)** — I think it's a combination of a couple things. Number one, the person has low vitamin D,
+- **[09:16](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=556s)** — but I don't think it's the only cause. And it has to do with microbes, viruses,
+- **[09:21](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=561s)** — and other pathogens that are constantly trying to invade our body and create all these problems.
+- **[09:26](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=566s)** — And one of the strategies that they do is they downgrade your vitamin D receptor.
+- **[09:30](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=570s)** — Now, normal amounts of vitamin D don't do anything for you because the
+- **[09:34](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=574s)** — microbe is really smart. There's something else that occurs just before this infection.
+- **[09:41](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=581s)** — Because in practice, I ran into this. These people almost always had a stress event right
+- **[09:48](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=588s)** — before they developed this autoimmune disease. Loss of a loved one, loss of a job, loss of
+- **[09:54](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=594s)** — something. What happens when a person goes through a severe shock? What happens to the
+- **[09:59](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=599s)** — immune system? It becomes suppressed with high levels of cortisol. Things can happen to
+- **[10:03](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=603s)** — the immune system. And if you're already low in vitamin D3, you can have this shift in the
+- **[10:08](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=608s)** — system where this immune system starts inappropriately attacking its own tissue and
+- **[10:12](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=612s)** — develops an autoimmune disease. Not only that, prednisone, which is a synthetic type of cortisol,
+- **[10:18](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=618s)** — will shut down the immune system too. This is why they use it for autoimmune diseases,
+- **[10:22](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=622s)** — anything like rashes on the skin. The greatest single thing you can do for stress
+- **[10:27](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=627s)** — is exercise and do things to change the environment that you're in. It's not exposing
+- **[10:32](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=632s)** — yourself to so much insanity. Now the last thing, and I think one of the most important
+- **[10:37](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=637s)** — things you need to know about in relationship to your health is the recognition that your
+- **[10:43](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=643s)** — microbiome in your gut actually is an organ. People think it's like some extra thing that's
+- **[10:48](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=648s)** — really not part of us. It is part of us. It's way more than our own cells. And it's
+- **[10:53](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=653s)** — called the gut microbiome. And the significance or impact that those microbes create on your
+- **[10:59](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=659s)** — health is huge. Why the heck would we ever want to even take an antibiotic and kill them
+- **[11:05](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=665s)** — is beyond me. What you have to realize is when you take an antibiotic, you will never have the
+- **[11:10](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=670s)** — same microbes ever again. Allow these microbes never grow back. It's a lie that they told you
+- **[11:16](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=676s)** — that, oh yeah, you're just going to actually decrease the number of microbes and they're
+- **[11:20](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=680s)** — just going to come back to normal just like before. No, that's a lie. The importance of
+- **[11:24](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=684s)** — supporting the gut microbes as an organ is vital. For what? Immune protection, the
+- **[11:30](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=690s)** — neurotransmitters that are created, your mood, your cognitive function is influenced by
+- **[11:34](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=694s)** — microbes. There are certain vitamins that are made by these microbes. A lot of your digestion
+- **[11:38](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=698s)** — is related to microbes. Your ability to get rid of cancer is related to these microbes. Your
+- **[11:44](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=704s)** — ability to sleep good is related to these microbes. The list goes on and on and on.
+- **[11:48](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=708s)** — That's why it's so important to on a regular basis consume fermented foods. Sauerkraut,
+- **[11:54](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=714s)** — kimchi, yogurt, and taking a very good probiotic would be very, very smart. I covered
+- **[12:00](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=720s)** — a lot of stuff in this video. I think all of it's super important, especially if you're over 50,
+- **[12:05](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=725s)** — but I would apply a lot of this information before you're 50. Start creating your health
+- **[12:09](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=729s)** — right now because health has to be created. It doesn't just automatically happen. But I've
+- **[12:15](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=735s)** — given you the key ingredients for creating health. And I think the next most relevant
+- **[12:19](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=739s)** — video for you to watch would be on the best foods to eat to create health. And for that,
+- **[12:25](https://www.youtube.com/watch?v=eJeTsPEiXRA&t=745s)** — I put this video up right here. Check it out.

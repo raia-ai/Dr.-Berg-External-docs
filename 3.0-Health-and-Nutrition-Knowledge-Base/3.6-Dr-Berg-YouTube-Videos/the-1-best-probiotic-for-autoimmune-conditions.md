@@ -1,0 +1,117 @@
+# The #1 Best Probiotic for Autoimmune Conditions
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=s0jIXMc3PS0](https://www.youtube.com/watch?v=s0jIXMc3PS0)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=0s)** — Today let's talk about the number one best probiotic for autoimmune conditions.
+- **[00:05](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=5s)** — So the question is, what is an autoimmune condition?
+- **[00:07](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=7s)** — It's a condition where your own immune system is attacking its own tissues.
+- **[00:11](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=11s)** — What's really happening with the immune system is we have two parts of the immune system that are out of balance.
+- **[00:16](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=16s)** — We have either a very low amount of this thing called regulatory T cells,
+- **[00:21](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=21s)** — and then at the same time we have high amounts of these other two immune cells.
+- **[00:26](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=26s)** — All you really need to know to make this really simple is that these Treg cells prevent autoimmune diseases.
+- **[00:32](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=32s)** — So it's all about calming down the inflammation.
+- **[00:35](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=35s)** — After your immune system has done its job, the Treg cells turn it off.
+- **[00:40](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=40s)** — So the Treg cells are all about appropriate response.
+- **[00:45](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=45s)** — But the problem is in the flip side it can sometimes get out of control and attack the wrong thing.
+- **[00:51](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=51s)** — The best way to understand this is to look at a thermostat.
+- **[00:54](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=54s)** — Autoimmune diseases are running too hot. There's too much inflammation.
+- **[00:59](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=59s)** — The question is, how do we take an autoimmune disease and bring it to an optimal level?
+- **[01:05](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=65s)** — It just so happens that there is a natural way to do this.
+- **[01:09](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=69s)** — But I think it's important to understand the root problem of all autoimmune diseases.
+- **[01:14](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=74s)** — One thing you really need to know is that when there's inflammation in the gut,
+- **[01:19](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=79s)** — sometimes you don't initially feel it.
+- **[01:21](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=81s)** — But inflammation blocks the function of vitamin D3.
+- **[01:26](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=86s)** — Vitamin D3 cannot work in the presence of inflammation.
+- **[01:31](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=91s)** — Vitamin D influences over 2,500 genes.
+- **[01:35](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=95s)** — It's involved in every part of the immune system.
+- **[01:37](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=97s)** — So if the Treg cells do not get enough vitamin D, then they can't work.
+- **[01:43](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=103s)** — They can't grow. They can't function. They're going to be dysfunctional.
+- **[01:46](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=106s)** — Many people, including a lot of doctors, don't realize that we have such a mass problem with low vitamin D.
+- **[01:53](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=113s)** — There is a condition called vitamin D resistance.
+- **[01:56](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=116s)** — Vitamin D resistance is at the cell level, right at the receptors for vitamin D3.
+- **[02:01](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=121s)** — You can actually test someone's vitamin D in the blood, and it can be perfectly normal.
+- **[02:05](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=125s)** — But if they have vitamin D resistance, despite having a normal blood level, they're going to be extremely deficient.
+- **[02:11](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=131s)** — And many people don't realize that the great majority of the population is vitamin D resistant.
+- **[02:17](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=137s)** — In your blood, what they're testing when they're testing for vitamin D is the inactive version.
+- **[02:22](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=142s)** — They're not testing for what's happening at the cell level.
+- **[02:25](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=145s)** — But the vitamin D you need for the immune system is more like 8,000 to 10,000 just to maintain it.
+- **[02:32](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=152s)** — And not only that, you need it on a daily basis.
+- **[02:35](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=155s)** — Rarely is anyone getting that amount, unless they're out getting a lot of sun
+- **[02:40](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=160s)** — or taking a supplement.
+- **[02:42](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=162s)** — So if you compound an inflammatory gut problem with low vitamin D,
+- **[02:48](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=168s)** — it's a perfect storm for developing an autoimmune disease.
+- **[02:52](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=172s)** — And on top of that, you have doctors, or you might have things on the news or online that say that vitamin D, you got to be careful.
+- **[03:00](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=180s)** — You don't want to become toxic. Just so you know, it's extremely rare.
+- **[03:03](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=183s)** — And you would have to take hundreds of thousands of international units every single day for months before you develop any toxicity.
+- **[03:10](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=190s)** — So when we're talking about 10,000 IUs, we're not even in the ballpark for even talking about toxicity.
+- **[03:17](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=197s)** — And the reason I'm even bringing that up is to penetrate through that vitamin D resistance that so many people have to create a therapeutic effect.
+- **[03:25](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=205s)** — You're going to have to use levels that are much higher than 10,000 IUs.
+- **[03:30](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=210s)** — You're probably going to have to go up 20, 30, 40, 50,000 international units every single day to penetrate that resistance to create an effect on the Treg cells.
+- **[03:42](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=222s)** — So that's number one. Number two, missing microbes.
+- **[03:45](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=225s)** — You have thousands of different species of microbes in your gut, and they do a lot more than you might think.
+- **[03:51](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=231s)** — And there's two specific microbes that are involved in helping you prevent autoimmune diseases
+- **[03:58](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=238s)** — in that they greatly affect the Treg cells as well as suppressing these other inflammatory immune cells over here.
+- **[04:07](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=247s)** — And the first one is called B. infantis, or it might be pronounced infantis, I'm not sure, that helped develop our nervous system.
+- **[04:16](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=256s)** — This microbe is highly sensitive to antibiotics, to steroids, to junk foods, to a lot of things in the environment.
+- **[04:25](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=265s)** — And so what I'm saying is about 70% of the population is just missing this microbe right here.
+- **[04:31](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=271s)** — And this microbe is very important in helping you support this Treg cell.
+- **[04:37](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=277s)** — Elruderi is another really key microbe.
+- **[04:40](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=280s)** — And unfortunately, it too is very sensitive to broad spectrum antibiotics.
+- **[04:46](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=286s)** — 97% of the population is missing this microbe too.
+- **[04:49](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=289s)** — The other thing that's really cool about this Elruderi is it helps to increase this hormone called oxytocin,
+- **[04:56](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=296s)** — which is probably one of the most potent anti-stress hormones ever.
+- **[05:02](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=302s)** — Now, why is that important? We can keep our immune system healthy.
+- **[05:05](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=305s)** — You have to realize when we're going through stress, we have high levels of cortisol.
+- **[05:10](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=310s)** — Cortisol suppresses the immune system.
+- **[05:12](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=312s)** — Normally, you should have like 35 billion white blood cells. These are the soldiers that do all the work.
+- **[05:17](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=317s)** — And when you're exposed to cortisol, this suppresses the entire immune system.
+- **[05:23](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=323s)** — Just think about what is the treatment to autoimmune disease?
+- **[05:26](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=326s)** — Prednisone. What is prednisone?
+- **[05:29](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=329s)** — It's a steroid. It's a synthetic version of cortisol.
+- **[05:32](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=332s)** — It shuts down the entire immune system.
+- **[05:35](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=335s)** — We also shut down the healing part of the immune system.
+- **[05:40](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=340s)** — This is why people that have had too many steroid shots basically destroy their joints.
+- **[05:46](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=346s)** — It acts as an antibiotic.
+- **[05:47](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=347s)** — So vitamin D is not an immune suppressant that shuts the whole thing down.
+- **[05:52](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=352s)** — Only the parts that are overactive.
+- **[05:55](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=355s)** — So this microbe helps to kind of cool things down.
+- **[05:58](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=358s)** — But this has a bigger effect over the entire immune system.
+- **[06:01](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=361s)** — And I don't recommend just taking these in a pill.
+- **[06:04](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=364s)** — I recommend cultivating these with a dairy product to increase these.
+- **[06:10](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=370s)** — And that's going to help re-seed the small intestine, start healing the small intestine,
+- **[06:14](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=374s)** — and then start to build up the T reg cells.
+- **[06:17](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=377s)** — So number one, vitamin D is essential.
+- **[06:19](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=379s)** — Number two, you reestablish the microbes that are usually missing.
+- **[06:23](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=383s)** — And number three, selenium.
+- **[06:26](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=386s)** — Now, what does selenium do?
+- **[06:27](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=387s)** — Well, that's a trace mineral. You only need it in small amounts.
+- **[06:30](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=390s)** — I would recommend like 200 micrograms, not milligrams.
+- **[06:34](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=394s)** — But selenium has a very unique function for the immune system.
+- **[06:37](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=397s)** — If you're low in selenium, you're going to have higher amounts of these two inflammatory cells.
+- **[06:43](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=403s)** — And remember, in autoimmune, they're already too high.
+- **[06:45](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=405s)** — So we have to lower this.
+- **[06:47](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=407s)** — So selenium is going to help lower these two cells right here.
+- **[06:50](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=410s)** — Also selenium is going to help lower the antibodies.
+- **[06:53](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=413s)** — And I'm talking about the... it's called autoantibodies, which are involved in this self-attack.
+- **[06:58](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=418s)** — Your own immune system is attacking itself.
+- **[07:01](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=421s)** — Selenium can help turn that down.
+- **[07:03](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=423s)** — You can also take it as a supplement.
+- **[07:05](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=425s)** — And the last point I'm going to bring up about this is prolonged fasting.
+- **[07:09](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=429s)** — When you do prolonged fasting, you can greatly increase the Treg cells.
+- **[07:14](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=434s)** — And there's a lot of people that are getting rid of inflammation by doing periodic prolonged fasting.
+- **[07:20](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=440s)** — I'm talking about like three days at a time.
+- **[07:23](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=443s)** — You're not eating anything.
+- **[07:24](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=444s)** — You're drinking water, but you're not eating anything.
+- **[07:26](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=446s)** — You can greatly improve your immune system to the point where you can create new stem cells to build up your immune system.
+- **[07:34](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=454s)** — So these three things right here are the most important things
+- **[07:38](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=458s)** — to help shift this very hot immune system problem, bring it back to an optimum temperature.
+- **[07:46](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=466s)** — So you can put this autoimmune disease back in remission.
+- **[07:49](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=469s)** — Now, since I spend a little more time on this vitamin D, if you have not seen this video on vitamin D,
+- **[07:54](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=474s)** — it's probably a good idea to check it out.
+- **[07:56](https://www.youtube.com/watch?v=s0jIXMc3PS0&t=476s)** — And I put that up right here.

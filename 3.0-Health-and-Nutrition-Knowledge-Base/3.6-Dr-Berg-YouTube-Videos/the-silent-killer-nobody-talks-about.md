@@ -1,0 +1,111 @@
+# The SILENT KILLER Nobody Talks About
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=IQC5mxxgEF4](https://www.youtube.com/watch?v=IQC5mxxgEF4)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=0s)** — How not sleeping is actually killing you slowly. Out of all the things you can do to create health,
+- **[00:06](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=6s)** — sleep is near the top of the list. Let's say you're not getting at least six hours of sleep
+- **[00:12](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=12s)** — consistently. Your risk of premature death increases by 30%. Cancer risk increases by 40%.
+- **[00:19](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=19s)** — Increased risk of diabetes by 50%. Increasing your risk of dementia problems like Alzheimer's.
+- **[00:26](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=26s)** — There's a huge percentage of Alzheimer's patients that just don't sleep. And also just getting one
+- **[00:31](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=31s)** — hour or four hours of sleep will literally shut down your immune system by 70%. Why do we really
+- **[00:38](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=38s)** — need sleep? One of the reasons is that sleep is the best way to clean your brain. There's a
+- **[00:44](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=44s)** — certain effect that sleep does to your brain. It acts like a dishwasher. It's cleaning the
+- **[00:49](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=49s)** — brain of damaged proteins. In sleep, you're actually cleaning those proteins out of the
+- **[00:54](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=54s)** — brain. But only if you're actually getting real sleep. When you take a sleep medication,
+- **[00:59](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=59s)** — it might create some type of sedation, but you're not getting the quality of sleep.
+- **[01:03](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=63s)** — The other thing that's really important to know is what alcohol does to your sleep. This is
+- **[01:08](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=68s)** — why when people drink alcohol just a little bit, they snore more. They have more sleep
+- **[01:12](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=72s)** — apnea. They're tossing and turning more. One of the main purposes of sleeping is cleaning
+- **[01:17](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=77s)** — out the brain. The second one is repairing and restoration of the entire body, including your
+- **[01:22](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=82s)** — system. This is why when we don't get enough sleep, our immune system just shuts down.
+- **[01:27](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=87s)** — And then things start happening in a negative way. Our brain becomes more vulnerable to
+- **[01:32](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=92s)** — infections. Let's first start with the REM sleep. REM sleep happens in several stages, more
+- **[01:38](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=98s)** — in the second half of sleep. The brain activity is very similar to when you're awake. You have
+- **[01:44](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=104s)** — muscle paralysis, but you can have very vivid dreams that you remember. This part of the
+- **[01:52](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=112s)** — certain parts of the brain involve in creativity, memories, problem solving activities. This is why
+- **[01:59](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=119s)** — a lot of discoveries are related to this stage of sleeping because people will get these great
+- **[02:06](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=126s)** — ideas from a dream. REM sleep is also involved in improving more social interactions with
+- **[02:12](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=132s)** — people, more emotional stability, a better mood through the day, and having more empathy with
+- **[02:19](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=139s)** — Now let's get into the other phase of sleep called the non-REM sleep. This is the deep sleep.
+- **[02:26](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=146s)** — Most of the repair happens in this delta wave sleep. There's a cleaning up of unnecessary
+- **[02:31](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=151s)** — connections in the brain in this phase. It's very similar to when you're working in the
+- **[02:36](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=156s)** — garden with your tomato plants where you're trimming them down because they're just growing
+- **[02:40](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=160s)** — too much and you need to trim them up so other things can grow better. The problem is,
+- **[02:45](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=165s)** — with age, the deep delta wave sleep becomes diminished to the point where you reach 60 years
+- **[02:52](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=172s)** — old. You have like 90% less of this non-REM delta wave sleep. When you're 18, you don't
+- **[02:59](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=179s)** — have a problem with this. You probably sleep like a rock and everything is fine.
+- **[03:02](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=182s)** — In this delta wave sleep, you have fat burning, you have cell regeneration,
+- **[03:06](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=186s)** — repair going on, and this is where your body can fight infection the most too.
+- **[03:10](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=190s)** — There are certain things that will just kill the delta wave sleep. Alcohol is at the top of the
+- **[03:16](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=196s)** — list. Now let's get into what to do to really optimize your sleep. I've had years of waking up
+- **[03:22](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=202s)** — feeling so tired I couldn't even think mentally. It was like a helmet over my head.
+- **[03:28](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=208s)** — And of course, I did everything wrong. Eating a lot of Ben and Jerry's and trying to
+- **[03:31](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=211s)** — induce a deeper sleep. It never really worked. I tried alcohol. That didn't work. It actually
+- **[03:36](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=216s)** — made me worse. Never drive if you have not slept. Over 100,000 accidents occur every
+- **[03:43](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=223s)** — single year in the United States because they're not sleeping and they're drowsy through the day.
+- **[03:49](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=229s)** — And some of these are fatal car accidents. Let's go through the list of things that you
+- **[03:54](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=234s)** — can do to improve your sleep. Avoiding alcohol. Instead, use kombucha tea. It
+- **[03:58](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=238s)** — gives a similar effect. It'll make you feel calm. It'll give you the same texture as
+- **[04:03](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=243s)** — Regular aerobic exercise. Whether it's going to be on the treadmill or going for long walks,
+- **[04:07](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=247s)** — you're going to reduce a lot of stress. In the wintertime when it's really cold and I
+- **[04:11](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=251s)** — don't go outside much, I don't sleep as well. Next thing is to avoid eating too late at night
+- **[04:16](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=256s)** — and definitely eating large meals at night where you just go to bed when you're stuffed.
+- **[04:19](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=259s)** — That'll keep you up. If you're doing intermittent fasting, take two of those meals
+- **[04:23](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=263s)** — and have them more on the early part of the day. That way you will sleep better.
+- **[04:27](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=267s)** — Eating late at night. I don't need all that energy right before bed. And especially if
+- **[04:32](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=272s)** — you're eating too much protein, that can keep you up. I remember growing up and we did a lot of
+- **[04:36](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=276s)** — snacking and I used to work at a theater and I was the person who made the popcorn. I would
+- **[04:40](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=280s)** — bring home a garbage bag full of popcorn on a regular basis and we would all just eat mindless.
+- **[04:46](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=286s)** — It's very important to have your room be slightly cooler. I like to use a sheet,
+- **[04:51](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=291s)** — not a blanket when I sleep. I like to crack the window open. Also, it has to be dark.
+- **[04:56](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=296s)** — The other thing about sleep is making sure you don't do too much caffeine,
+- **[05:01](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=301s)** — tea, coffee, and chocolate. I just have one small cup of coffee in the morning. When I do
+- **[05:07](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=307s)** — more than that, it does affect my sleep because it takes a period of time for your liver to get
+- **[05:12](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=312s)** — rid of this caffeine. If you have too much, it can prevent that delta wave sleep. Too much
+- **[05:17](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=317s)** — blue light from the cell phone or your computer. You can get these blue blockers
+- **[05:23](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=323s)** — wear them if you're watching TV. Try to at least a couple hours before bed,
+- **[05:28](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=328s)** — turn off the lights, kind of keep it dim so it's not so bright, especially the blue lights.
+- **[05:33](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=333s)** — You don't want that. If you just filter the blue light, you'll retain more melatonin.
+- **[05:38](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=338s)** — Melatonin helps induce the sleepiness. Getting enough sun during the day can definitely help
+- **[05:43](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=343s)** — you sleep at night for various reasons. Of course, the vitamin D. 50% of the sun is
+- **[05:49](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=349s)** — an infrared. An infrared can increase melatonin in all of your cells and also any other type of
+- **[05:55](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=355s)** — orange or yellow flame, whether a a bonfire, a fireplace, candles. You can get more infrared.
+- **[06:01](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=361s)** — The other thing is when you go to bed, let's say for example, that at 8 30, you're like
+- **[06:06](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=366s)** — really tired. Just go to bed. Don't go to bed by the clock. Go to bed when you're tired.
+- **[06:11](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=371s)** — Because if you push through that tiredness and all of a sudden you wake up, now it's
+- **[06:17](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=377s)** — going to take you longer to go to bed because everything works on a wave. And sometimes these
+- **[06:22](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=382s)** — waves are 90 minute cycles. The other thing is the movies that you watch before bed. If I'm
+- **[06:27](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=387s)** — watching anything action, it's going to take a long time to go to bed. I'm not tired. I would
+- **[06:32](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=392s)** — watch even a Hallmark movie because it just literally puts me to sleep. I know some people
+- **[06:36](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=396s)** — in different social situations around family and things and holidays, there's always going
+- **[06:40](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=400s)** — to be some snacks involved. You're going to have blood sugar issues. You probably would be
+- **[06:45](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=405s)** — off doing some type of berries or fruit, then popcorn, starch, things like that. Even like
+- **[06:52](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=412s)** — when you do nuts before bed, you're going to feel a lot of bloating around your gallbladder.
+- **[06:57](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=417s)** — And that can definitely keep you up. As far as nutrients go, the three most important
+- **[07:02](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=422s)** — magnesium, vitamin D, and zinc. Magnesium is involved in the contraction and relaxation of
+- **[07:08](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=428s)** — muscles. Your muscles will be less tense. Magnesium is necessary for producing energy.
+- **[07:14](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=434s)** — You need energy to actually go to sleep. Some people are too tired to go to sleep. The type
+- **[07:18](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=438s)** — of magnesium you want is magnesium glycinate. The time to take that would be in the evenings.
+- **[07:23](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=443s)** — It actually can help you increase melatonin. Then we get to vitamin D. Vitamin D is needed
+- **[07:29](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=449s)** — to decrease inflammation in the body, especially in your lower back. It also helps
+- **[07:34](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=454s)** — you make melatonin. Vitamin D will increase the duration of sleep. What about zinc? Zinc is
+- **[07:44](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=464s)** — important. It will help you increase your oxygen and serotonin. All these key neurotransmitters
+- **[07:46](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=466s)** — and improve your overall repair of the body. But there's one more thing that I'm going to
+- **[07:52](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=472s)** — highly suggest that you do. Introduce a probiotic in the form of something that you
+- **[07:58](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=478s)** — can culture and make called El-Ru-Toray. Making it yourself with a yogurt maker. El-Ru-Toray
+- **[08:04](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=484s)** — is absent in 96% of the population. And it is the microbe that can help increase your
+- **[08:11](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=491s)** — oxygen and serotonin. This is why it's so important in sleep. If you're not consuming
+- **[08:18](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=498s)** — enough salt, you may find your sleep is going to be off. You need sodium to help you sleep.
+- **[08:24](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=504s)** — Try to have a little more salt during the day or even maybe in the later part of the day.
+- **[08:29](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=509s)** — Take a fourth of a teaspoon of salt, mix in some water, drink it down and just see if
+- **[08:34](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=514s)** — you don't sleep better. The bottom line is if you want to live longer, but not just live
+- **[08:37](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=517s)** — longer, live a quality of life, focus on sleep. I just gave you a road map on all the things that
+- **[08:44](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=524s)** — you can do right now to fix your sleep. And if you wanted to see that video related to
+- **[08:48](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=528s)** — building up that microbe that can help you sleep El-Ru-Toray, you should watch it. It's
+- **[08:52](https://www.youtube.com/watch?v=IQC5mxxgEF4&t=532s)** — right here.

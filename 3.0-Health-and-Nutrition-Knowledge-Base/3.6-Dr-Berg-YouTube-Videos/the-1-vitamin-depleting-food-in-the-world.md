@@ -1,0 +1,133 @@
+# The #1 Vitamin Depleting Food in the World
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=Uw21AZN7Ulc](https://www.youtube.com/watch?v=Uw21AZN7Ulc)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=0s)** — Today we are going to discuss the number one vitamin depleting food in the world.
+- **[00:04](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=4s)** — Can you guess what it is?
+- **[00:06](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=6s)** — If you answered Refined Starches, you will be correct.
+- **[00:10](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=10s)** — Because the answer is actually not sugar.
+- **[00:12](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=12s)** — If we look at how much a sugar depletes you of certain nutrients,
+- **[00:16](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=16s)** — a starch will deplete you way more than a sugar.
+- **[00:19](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=19s)** — We are talking about Refined Rice Flour, Tapioca Flour, Corn Flour,
+- **[00:24](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=24s)** — Modified Corn Starch, Molto Dextrin, and Modified Food Starch.
+- **[00:28](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=28s)** — In order to process or metabolize or break down a Refined Starch and turn it into energy,
+- **[00:38](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=38s)** — it requires certain nutrients.
+- **[00:40](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=40s)** — One of the big nutrients that is needed to metabolize starches is Vitamin B1, Thiamine.
+- **[00:46](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=46s)** — Another question that you might have is why is a starch worse than a sugar as far as
+- **[00:52](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=52s)** — depleting nutrients?
+- **[00:53](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=53s)** — A person consumes much less sugar than starch in their given diet.
+- **[00:57](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=57s)** — An average person consumes about 150 pounds of sugar per year.
+- **[01:03](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=63s)** — An average person consumes almost 300 pounds of starch per year.
+- **[01:08](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=68s)** — On the glycemic index, Refined Starches are much, much higher than sugar.
+- **[01:14](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=74s)** — What is the glycemic index?
+- **[01:15](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=75s)** — It's a measurement or a scale of how fast a food or a carbohydrate
+- **[01:20](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=80s)** — can turn into glucose or raise your blood sugar.
+- **[01:24](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=84s)** — We compare sugar to starches. Sugar is about 74. Maltodextrin is like 180.
+- **[01:32](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=92s)** — And those Refined Starches jack up your blood sugar way faster.
+- **[01:35](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=95s)** — One of the really important nutrients that's needed is Vitamin B1, Thiamine.
+- **[01:40](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=100s)** — A couple things you need to know about Thiamine. We don't store a lot of it.
+- **[01:43](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=103s)** — I mean, like in an entire body, we might store 30 milligrams.
+- **[01:47](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=107s)** — The RDAs for B1, which were established like 80 or 100 years ago,
+- **[01:52](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=112s)** — have never been changed.
+- **[01:52](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=112s)** — It's like between 1 and 1.2 milligrams.
+- **[01:57](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=117s)** — Do you realize how tiny that is?
+- **[01:58](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=118s)** — From my viewpoint, that is like way, way, way too low.
+- **[02:02](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=122s)** — Doctors never check for a Vitamin B1 deficiency.
+- **[02:04](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=124s)** — What are the symptoms of the B1 deficiency?
+- **[02:06](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=126s)** — Beyond fatigue is problems with your GI system, your digestion.
+- **[02:12](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=132s)** — You might get slow digestion, bloating, maybe a little constipation,
+- **[02:17](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=137s)** — feeling nauseous, because so many parts of the digestion need B1.
+- **[02:21](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=141s)** — You're also not going to make enough stomach acid.
+- **[02:23](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=143s)** — Can't release the bile coming out from the liver.
+- **[02:26](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=146s)** — Just going to get a lack of digestion.
+- **[02:29](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=149s)** — Another common symptom with a B1 deficiency is stress, nervous tension,
+- **[02:35](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=155s)** — solving problems, especially when you're trying to get to sleep.
+- **[02:38](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=158s)** — This is why a B1 deficiency creates insomnia.
+- **[02:42](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=162s)** — You're just not going to sleep that good.
+- **[02:43](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=163s)** — As this deficiency gets worse, you're going to notice a personality changes.
+- **[02:49](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=169s)** — Mood swings more frequently.
+- **[02:50](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=170s)** — If you're in a relationship with someone and they just like
+- **[02:54](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=174s)** — fly off the handle with no reason and they're extremely moody,
+- **[02:57](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=177s)** — suspect a vitamin B1 deficiency.
+- **[02:59](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=179s)** — How many children have that?
+- **[03:01](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=181s)** — Purely because they're eating too many refined starches.
+- **[03:03](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=183s)** — They need a lot of B1.
+- **[03:04](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=184s)** — Women that are pregnant are more susceptible to a B1 deficiency.
+- **[03:08](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=188s)** — One of the big symptoms that they get right off the bat is feeling nauseous.
+- **[03:13](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=193s)** — If you yourself are pregnant or you know someone who's pregnant and they get nauseous,
+- **[03:17](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=197s)** — make sure they take more B1.
+- **[03:18](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=198s)** — Because also that infant needs B1 too, especially in the early years.
+- **[03:22](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=202s)** — Infants, they can have what's called a horse cry.
+- **[03:25](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=205s)** — When they're trying to cry but no voice comes out.
+- **[03:28](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=208s)** — Muscle twitches.
+- **[03:29](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=209s)** — Can't get enough air. Your breathing is going to be off.
+- **[03:32](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=212s)** — I wonder how many people with sleep apnea just have a vitamin B1 deficiency.
+- **[03:36](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=216s)** — All the starch that comes in the body that breaks down on the glucose,
+- **[03:39](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=219s)** — it can't be used as energy.
+- **[03:41](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=221s)** — So then it's converted to lactic acid, which shuts down the oxygen.
+- **[03:47](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=227s)** — It makes the body more acidic, which is going to affect the breathing.
+- **[03:51](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=231s)** — And it might be even hyperventilating to try to push out more CO2 to balance this acidity.
+- **[03:57](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=237s)** — This could be one of the reasons why people can't sleep.
+- **[03:59](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=239s)** — And also in the muscles, they're going to get restless leg syndrome.
+- **[04:03](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=243s)** — Another thing like diabetics.
+- **[04:05](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=245s)** — I would say nearly 100% of all diabetics are deficient in B1 because they have
+- **[04:09](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=249s)** — high sugar in the blood constantly demanding a lot of B1.
+- **[04:12](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=252s)** — The form that I recommend is something called benthotamine.
+- **[04:15](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=255s)** — It's a very specialized type of B1.
+- **[04:17](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=257s)** — If someone is really, really deficient in B1, they literally can be psychotic.
+- **[04:22](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=262s)** — They can also have another symptom called confabulation, which I had to look that up.
+- **[04:27](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=267s)** — That means a production of memories, which are false,
+- **[04:31](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=271s)** — all from a severe vitamin B1 deficiency.
+- **[04:33](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=273s)** — Other things will exaggerate a B1 deficiency.
+- **[04:37](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=277s)** — Alcohol, tea, coffee, raw fish, as in sushi.
+- **[04:40](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=280s)** — Having certain digestive inflammatory issues with your gut where you can't absorb certain things.
+- **[04:46](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=286s)** — Taking metformin can create a deficiency.
+- **[04:48](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=288s)** — Exercising a lot increases the demand for vitamin B1.
+- **[04:52](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=292s)** — Think about how many athletes are using maltodextrin as an energy source, but without B1.
+- **[04:59](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=299s)** — And on top of that, they're exercising like crazy.
+- **[05:02](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=302s)** — What are some foods high in B1?
+- **[05:04](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=304s)** — Whole foods. You can get B1 in meat.
+- **[05:07](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=307s)** — In fact, the meat that has the highest source of B1 is actually pork.
+- **[05:10](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=310s)** — Meat, liver has B1. Eggs have B1. Sunflower seeds have B1.
+- **[05:16](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=316s)** — Sometimes you hear that refined grains are a good source of B vitamins.
+- **[05:20](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=320s)** — That's only because they're adding them in there through the fortification process.
+- **[05:23](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=323s)** — I definitely don't recommend taking a synthetic B1 product.
+- **[05:26](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=326s)** — I recommend taking a natural B1.
+- **[05:28](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=328s)** — The name of the natural B1 is called allithiamine.
+- **[05:31](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=331s)** — And it's from garlic. It fixes a lot of nerve issues.
+- **[05:34](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=334s)** — It's a much better bioavailable source of B1.
+- **[05:38](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=338s)** — I have a lot of it in B1, but I need to get to the next nutrient that's commonly deficient
+- **[05:44](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=344s)** — when you consume these starches. And that is magnesium.
+- **[05:48](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=348s)** — Magnesium is another co-factor involved in this whole process going from starches to energy.
+- **[05:56](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=356s)** — What's really interesting about magnesium is it's needed to allow for B1 to work.
+- **[06:02](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=362s)** — If you don't have enough magnesium, guess what?
+- **[06:05](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=365s)** — B1 can't work either. In fact, your vitamin D won't work.
+- **[06:08](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=368s)** — The other thing that magnesium does is it helps control calcium.
+- **[06:12](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=372s)** — Calcium typically causes contraction of the muscle.
+- **[06:15](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=375s)** — If there's not enough magnesium, you're going to get more contraction of the muscle.
+- **[06:19](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=379s)** — What do you call that? A Charlie Horse muscle spasm.
+- **[06:22](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=382s)** — Which usually occurs in the early morning because that's when you have the lowest
+- **[06:27](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=387s)** — point of magnesium. Magnesium is important in
+- **[06:29](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=389s)** — regulating calcium because if there's too much calcium in the wrong place,
+- **[06:34](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=394s)** — you can get a lot of problems.
+- **[06:36](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=396s)** — Calcium that builds up in the arteries, kidney stones.
+- **[06:39](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=399s)** — Magnesium is so important with all that. Without magnesium, you tend to have higher
+- **[06:43](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=403s)** — blood pressure, palpitations, just a lot of problems with the heart.
+- **[06:47](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=407s)** — Just think about the medication is called a calcium channel blocker.
+- **[06:52](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=412s)** — They're just mimicking the effects of magnesium because there's too much calcium
+- **[06:55](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=415s)** — that's affecting the heart. If you don't have enough magnesium,
+- **[06:59](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=419s)** — your cortisol goes up and then you can't sleep.
+- **[07:01](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=421s)** — This is why a lot of people take magnesium before bed.
+- **[07:03](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=423s)** — The type of magnesium I would recommend is magnesium glycinate.
+- **[07:08](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=428s)** — If you're very deficient in magnesium, you can get tremors, muscle weakness,
+- **[07:13](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=433s)** — migraines. You can't absorb vitamin D without magnesium.
+- **[07:16](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=436s)** — So that's important. Yes, you can start taking these
+- **[07:18](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=438s)** — nutrients to allow you to digest the starch, but a better thing would be to avoid refined
+- **[07:25](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=445s)** — starches. For more information about these
+- **[07:27](https://www.youtube.com/watch?v=Uw21AZN7Ulc&t=447s)** — you should watch this video right here. Check it out.

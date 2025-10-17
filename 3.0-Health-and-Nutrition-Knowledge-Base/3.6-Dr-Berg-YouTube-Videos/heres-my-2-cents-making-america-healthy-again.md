@@ -1,0 +1,131 @@
+# Here’s My 2 Cents: "Making America Healthy Again"
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=UtSvAyRs5OA](https://www.youtube.com/watch?v=UtSvAyRs5OA)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=0s)** — I want to give you my two cents on RFK Jr.'s new potential role in being the HHS secretary.
+- **[00:06](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=6s)** — The target is to clean up the corruption. Number two, get back to science-based evidence.
+- **[00:12](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=12s)** — And number three, end chronic disease, which is a pretty big goal.
+- **[00:16](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=16s)** — And I'm sure you're seeing this all of the news, all of the pushback that he's getting.
+- **[00:20](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=20s)** — You have the big food companies, big chemical companies, big pharma.
+- **[00:23](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=23s)** — They really don't like him very much.
+- **[00:25](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=25s)** — And I just want to make a comment on this one little thing that is quite interesting.
+- **[00:28](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=28s)** — It was said as a counter-argument,
+- **[00:30](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=30s)** — There is no clear evidence yet that disease is caused by processed food.
+- **[00:37](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=37s)** — Do you know how ridiculous that sounds? This, this.
+- **[00:40](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=40s)** — It's not linked to chronic disease. What does cause disease?
+- **[00:43](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=43s)** — And their response is, we don't know.
+- **[00:45](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=45s)** — We need to do more research. As big food, big pharma, big chemicals get super wealthy, right?
+- **[00:51](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=51s)** — What is the product of health care? It's a healthy body.
+- **[00:54](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=54s)** — If we take the U.S. population and compare it to the world,
+- **[00:57](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=57s)** — we're at the very bottom when it comes to health.
+- **[00:59](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=59s)** — Yet we spend the most for health care.
+- **[01:02](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=62s)** — Over 4.1 trillion dollars every single year.
+- **[01:08](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=68s)** — You can say RFK Jr. is a quack, anti-vaxxer.
+- **[01:11](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=71s)** — He's going to take science into the dark ages.
+- **[01:14](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=74s)** — You can pretty much just ignore that.
+- **[01:16](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=76s)** — There is many things that need to be changed.
+- **[01:18](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=78s)** — I want to give my two cents on what I think would make a huge difference.
+- **[01:22](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=82s)** — Alright, number one. Institutional foods.
+- **[01:24](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=84s)** — And what they do is they make prepackaged food that is given to patients in nursing homes,
+- **[01:31](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=91s)** — prisons, the school systems, hospitals.
+- **[01:34](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=94s)** — This is the absolute lowest quality food on the planet.
+- **[01:38](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=98s)** — And even going into the hospital, I had two surgeries and I had to be in the hospital for a couple days.
+- **[01:42](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=102s)** — I mean, I just told them I wanted some protein and they're like,
+- **[01:44](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=104s)** — yeah, we don't have much protein. It's like, well, I can give you a protein bar.
+- **[01:47](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=107s)** — I interviewed a gentleman. He actually owns and runs several very unique assisted living homes.
+- **[01:54](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=114s)** — You would want to send your parents or your grandparents there if they needed that type of service
+- **[01:58](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=118s)** — because they do things completely different.
+- **[02:01](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=121s)** — And I asked him, what is the barriers of putting your system in nursing homes?
+- **[02:05](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=125s)** — And he said, there's just too much red tape. It's highly regulated as far as what they eat.
+- **[02:09](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=129s)** — And if you want to change the diet, you have to get the doctor to write a prescription.
+- **[02:13](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=133s)** — Typically, institutional foods have desserts. They have a lot of starches.
+- **[02:17](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=137s)** — It's highly processed. It's overcooked.
+- **[02:19](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=139s)** — The number one thing I would do is I would change the institutional foods
+- **[02:22](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=142s)** — because that's going to change the health of these people in the nursing homes, the assisted living.
+- **[02:26](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=146s)** — All these people would quickly improve of their health just by removing the refined sugars,
+- **[02:32](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=152s)** — the refined starches and the refined oils, the seed oils.
+- **[02:36](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=156s)** — The next thing I would do, and this is really, really big.
+- **[02:38](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=158s)** — A lot of the food that we consume in the grocery store is subsidized.
+- **[02:42](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=162s)** — In other words, the taxpayers are paying for it upfront or paying certain large farms to grow certain things.
+- **[02:50](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=170s)** — Corn, soy, wheat, sugar, rice.
+- **[02:55](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=175s)** — The amount that some of these companies are paid is up there around $600 billion.
+- **[03:00](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=180s)** — The largest subsidy is with corn.
+- **[03:03](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=183s)** — You can buy a cubic ton of corn for about $198.
+- **[03:08](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=188s)** — And we're talking about not sweet corn. We're talking about dent corn, which is not even edible.
+- **[03:12](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=192s)** — We also use it in the feedlots to fatten cattle.
+- **[03:15](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=195s)** — We started this whole subsidy thing right after the depression
+- **[03:19](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=199s)** — to kind of help the farmer, but somehow it stayed in law.
+- **[03:23](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=203s)** — So now the small farmer has a heck of a time making a profit.
+- **[03:26](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=206s)** — They're lucky if they get 1 to 3 percent profit.
+- **[03:29](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=209s)** — And they have to work really hard at creating healthier food.
+- **[03:33](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=213s)** — And they don't get subsidies.
+- **[03:34](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=214s)** — I think one really good idea, if we could just switch what is subsidized
+- **[03:38](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=218s)** — and invest in the small farmer, pay these small farmers to grow grass-fed, grass-finished animals.
+- **[03:43](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=223s)** — I mean, that would be incredible.
+- **[03:45](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=225s)** — Because right now the incentive is to grow the raw material for junk food.
+- **[03:49](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=229s)** — You pay for it at the store, and then you pay for it when you go to the hospital.
+- **[03:54](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=234s)** — I wanted to take a pause to ask you for a little favor.
+- **[03:56](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=236s)** — With this new administration, there's some new opportunities for health care practitioners to be leaders in the health reform.
+- **[04:02](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=242s)** — And I would love for you to vote for me as one of the leaders.
+- **[04:05](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=245s)** — And I am super aware of the broken system that we need to fix.
+- **[04:08](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=248s)** — Here's what you do. Click the link, which is down below.
+- **[04:11](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=251s)** — You'll have to create your own account to vote.
+- **[04:13](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=253s)** — You want to click sign up. And as soon as you have activated your account, go to the America's Health option.
+- **[04:18](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=258s)** — Click on the hot tab. Find my name, Dr. Eric Berg, and click to vote and even leave a comment down below.
+- **[04:23](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=263s)** — Thank you in advance. And let's go back to the video.
+- **[04:25](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=265s)** — The next thing I would definitely want to change is this thing called gross.
+- **[04:30](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=270s)** — Generally recognized as safe.
+- **[04:32](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=272s)** — You would think that would be a third party, independent study to show that that ingredient was safe.
+- **[04:38](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=278s)** — And the answer is no.
+- **[04:39](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=279s)** — This is a loophole that manufacturers use to self-certify their own products.
+- **[04:45](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=285s)** — It's a bit of a conflict of interest.
+- **[04:47](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=287s)** — I can do my own studies to tell you that my ingredients are safe.
+- **[04:50](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=290s)** — A lot of things that are banned now were generally recognized as safe.
+- **[04:54](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=294s)** — Like lead, DDT, mercury, stuff that they made your fillings with.
+- **[04:58](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=298s)** — Most of these junk food ingredients are gross.
+- **[05:01](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=301s)** — The other thing I would do is I would change how they're fortifying our food.
+- **[05:05](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=305s)** — Instead of fortifying with synthetic folic acid, which actually creates a big problem for about 30 to 40% of the population
+- **[05:14](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=314s)** — because they have a genetic issue dealing with folic acid, I would change that to folate.
+- **[05:18](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=318s)** — The type of iron they put in fortified food is disgusting.
+- **[05:22](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=322s)** — It creates so many problems. Our body does not have a good mechanism to get rid of iron.
+- **[05:28](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=328s)** — And all this iron accumulates in our body.
+- **[05:30](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=330s)** — Too much iron can actually cause dysfunctional iron that leads to anemia.
+- **[05:36](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=336s)** — The next thing. $40 billion a year of your taxes are paid to medical research for new drugs.
+- **[05:43](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=343s)** — The universities are allowed to get patents on those drugs.
+- **[05:48](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=348s)** — And then they're allowed to give exclusive rights to drug companies.
+- **[05:52](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=352s)** — And then the drug companies and the universities negotiate for a royalty.
+- **[06:00](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=360s)** — And this license agreement is very confidential.
+- **[06:04](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=364s)** — And certain researchers within the universities also get a cut of that money.
+- **[06:09](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=369s)** — That brings up the next point. The FDA has a revolving door with Big Pharma.
+- **[06:14](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=374s)** — They should make it a law that if you work for the FDA or any type of regulatory business,
+- **[06:18](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=378s)** — you can never go work for a drug company or a chemical company or a big food company.
+- **[06:24](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=384s)** — Nine out of the 20 members that set up the dietary guidelines had conflicts of interest.
+- **[06:30](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=390s)** — There's a great website on this. It's called U.S. Right to Know.
+- **[06:33](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=393s)** — Through the Freedom of Information Act, they got 80,000 pages between Coca-Cola and the dietician organizations.
+- **[06:40](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=400s)** — And what they found out is there's a really cozy relationship between the two.
+- **[06:44](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=404s)** — Between $30 to $50 million given to the dieticians from Big Food.
+- **[06:49](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=409s)** — The junk food industry sponsors dieticians' education, their conventions.
+- **[06:54](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=414s)** — They pay their speakers. The next thing that I would want changed is this thing called the rounding rule.
+- **[07:00](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=420s)** — If a certain ingredient is less than .5 grams, it can be rounded down to zero.
+- **[07:08](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=428s)** — The same thing with carbohydrates. Also sodium. If you have less than 5 milligrams of sodium, you can round it down to zero.
+- **[07:14](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=434s)** — Out of all the ingredients that I would hyper-focus on, there are three ingredients that make up 99% of all junk food.
+- **[07:23](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=443s)** — Refined sugars, refined starches, and refined oils. As in seed oils.
+- **[07:29](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=449s)** — I would put huge warning labels on infant formula, pet food, which is also filled with junk food.
+- **[07:34](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=454s)** — And I would force those companies to upgrade the quality of those ingredients.
+- **[07:39](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=459s)** — The worst time to give someone junk food is when they're a baby.
+- **[07:42](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=462s)** — Because you're setting up that person's life for all sorts of deficiencies and health problems.
+- **[07:47](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=467s)** — And lastly, I want to talk about a very important change, sun phobia.
+- **[07:51](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=471s)** — Parallel with that, RDAs for vitamin D are just ridiculous.
+- **[07:55](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=475s)** — 600 IUs might be okay to prevent bone problems, possibly, but not to feed the other systems of the body.
+- **[08:02](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=482s)** — The immune system, the muscles, the organs. They misinterpreted the results of a whole bunch of studies.
+- **[08:07](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=487s)** — And then they used the 600 IUs. When in fact, it should have been over 8,000 IUs every single day.
+- **[08:13](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=493s)** — A vitamin D deficiency puts someone at a very severe risk of virtually every disease.
+- **[08:20](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=500s)** — Pick a disease and I'll show you research on it. Cancer, autoimmune issues, your ability to sleep is dependent on vitamin D.
+- **[08:27](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=507s)** — If every person in the US took just 8,000 IUs every single day of vitamin D3, disease rates would go way down and it would not be that expensive.
+- **[08:35](https://www.youtube.com/watch?v=UtSvAyRs5OA&t=515s)** — That's my two cents. Please tell me what you think should be done about this country to make a difference for healthcare.

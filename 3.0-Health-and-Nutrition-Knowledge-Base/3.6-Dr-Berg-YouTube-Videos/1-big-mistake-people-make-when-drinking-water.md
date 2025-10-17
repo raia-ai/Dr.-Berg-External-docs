@@ -1,0 +1,138 @@
+# #1 Big Mistake People Make When Drinking Water
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=4h75JTMGsAA](https://www.youtube.com/watch?v=4h75JTMGsAA)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=4h75JTMGsAA&t=0s)** — I want to talk about the five mistakes that dieters make when they try to boost their metabolism.
+- **[00:07](https://www.youtube.com/watch?v=4h75JTMGsAA&t=7s)** — And when we talk about metabolism, I'm talking about the speed or rate at which you burn fat fuel.
+- **[00:13](https://www.youtube.com/watch?v=4h75JTMGsAA&t=13s)** — Okay, so that's the topic for today.
+- **[00:15](https://www.youtube.com/watch?v=4h75JTMGsAA&t=15s)** — So number one, the first mistake of trying to boost your metabolism is trying to boost your metabolism.
+- **[00:23](https://www.youtube.com/watch?v=4h75JTMGsAA&t=23s)** — Understand that a slow metabolism is not really a slow metabolism. It's an efficient metabolism.
+- **[00:29](https://www.youtube.com/watch?v=4h75JTMGsAA&t=29s)** — So when I talk about efficiency, I'm talking about some machine that can run on a smaller amount of fuel more efficiently.
+- **[00:36](https://www.youtube.com/watch?v=4h75JTMGsAA&t=36s)** — And that's exactly what a slow metabolism is. It's not necessarily turned down.
+- **[00:42](https://www.youtube.com/watch?v=4h75JTMGsAA&t=42s)** — It's just adapted to run on lesser amounts of fuel for a longer period of time.
+- **[00:47](https://www.youtube.com/watch?v=4h75JTMGsAA&t=47s)** — This is a good thing if you're trying to survive without food, but it's a bad thing if you're trying to lose weight.
+- **[00:53](https://www.youtube.com/watch?v=4h75JTMGsAA&t=53s)** — So stimulating metabolism with caffeine or some type of herbal stimulant or some drug is a very bad idea because you're going to burn out your metabolism.
+- **[01:02](https://www.youtube.com/watch?v=4h75JTMGsAA&t=62s)** — You're going to burn out your adrenals. And maybe you might lose initially a little bit, but in the long run, you'll end up having fatigue and having all sorts of issues.
+- **[01:12](https://www.youtube.com/watch?v=4h75JTMGsAA&t=72s)** — Alright, number two, the second mistake. Going on a diet. Okay. And I'm talking about a low calorie diet.
+- **[01:19](https://www.youtube.com/watch?v=4h75JTMGsAA&t=79s)** — All your body is going to do is going to adapt to lower amounts of calories and become more efficient.
+- **[01:26](https://www.youtube.com/watch?v=4h75JTMGsAA&t=86s)** — I will guarantee if you talk to anyone in their 40s, 50s, 60s with the appearance of a slow metabolism, they have a history of dieting.
+- **[01:34](https://www.youtube.com/watch?v=4h75JTMGsAA&t=94s)** — They have a history of going on a low calorie diet. And that really causes the metabolism to just work so efficiently that it doesn't take much fuel to run it.
+- **[01:43](https://www.youtube.com/watch?v=4h75JTMGsAA&t=103s)** — So maybe your spouse can actually eat a lot of food and not really gain weight.
+- **[01:47](https://www.youtube.com/watch?v=4h75JTMGsAA&t=107s)** — But with you, you just eat a little bit and you might gain weight because your body has adapted.
+- **[01:52](https://www.youtube.com/watch?v=4h75JTMGsAA&t=112s)** — Going on a diet or reducing the calories just trains the metabolism to just work more efficiently.
+- **[01:58](https://www.youtube.com/watch?v=4h75JTMGsAA&t=118s)** — Number three, you've probably heard of this before. Stoke the metabolic flame by consuming six meals through the day.
+- **[02:06](https://www.youtube.com/watch?v=4h75JTMGsAA&t=126s)** — And whatever you do, don't skip a meal because then you're going to slow your metabolism down, which is absolutely not true.
+- **[02:14](https://www.youtube.com/watch?v=4h75JTMGsAA&t=134s)** — Eating more food or eating more frequent foods does not stoke your metabolism fire.
+- **[02:19](https://www.youtube.com/watch?v=4h75JTMGsAA&t=139s)** — It doesn't stimulate your metabolism. It doesn't speed things up because every time you stoke that fire with eating, you trigger insulin.
+- **[02:27](https://www.youtube.com/watch?v=4h75JTMGsAA&t=147s)** — Insulin is the gatekeeper. It's the switch that determines what type of fuel that you want to burn.
+- **[02:36](https://www.youtube.com/watch?v=4h75JTMGsAA&t=156s)** — So if you don't already know this, when you're trying to burn fat, I think that would be the goal.
+- **[02:40](https://www.youtube.com/watch?v=4h75JTMGsAA&t=160s)** — Just to focus the body into only burning fat, not burn up your glucose reserves.
+- **[02:45](https://www.youtube.com/watch?v=4h75JTMGsAA&t=165s)** — So now you're hungry and you're starving and you're craving, right? It's to burn fat.
+- **[02:49](https://www.youtube.com/watch?v=4h75JTMGsAA&t=169s)** — So that way you're living on fat and you have a lot more of it and your appetite goes away and you go longer with that.
+- **[02:55](https://www.youtube.com/watch?v=4h75JTMGsAA&t=175s)** — To do that, you must lower insulin. You must lower your carbs.
+- **[03:00](https://www.youtube.com/watch?v=4h75JTMGsAA&t=180s)** — It's the only way to tap into the fat because insulin is one of the major fat storing hormones that even in small amounts can prevent you from tapping into that fat.
+- **[03:14](https://www.youtube.com/watch?v=4h75JTMGsAA&t=194s)** — So above all else, the lowering of your carbohydrates is going to be one of the most important things.
+- **[03:19](https://www.youtube.com/watch?v=4h75JTMGsAA&t=199s)** — And number four, you want to make sure you don't over train.
+- **[03:21](https://www.youtube.com/watch?v=4h75JTMGsAA&t=201s)** — Let me just tell you a quick story of a patient who came to see me and I'm not kidding. I'm not kidding.
+- **[03:28](https://www.youtube.com/watch?v=4h75JTMGsAA&t=208s)** — She would work out, I think six to seven hours a day at the gym, seven days a week.
+- **[03:33](https://www.youtube.com/watch?v=4h75JTMGsAA&t=213s)** — It was a full time job and all of a sudden she started gaining weight and she's freaking out because no matter what she does, she can't lose weight.
+- **[03:43](https://www.youtube.com/watch?v=4h75JTMGsAA&t=223s)** — I mean, even the thought of telling her to back off that exercise, it just make her more stressed out.
+- **[03:50](https://www.youtube.com/watch?v=4h75JTMGsAA&t=230s)** — She's a classic example of someone that's over training.
+- **[03:52](https://www.youtube.com/watch?v=4h75JTMGsAA&t=232s)** — Okay, over training never gives your body a chance to recover.
+- **[03:57](https://www.youtube.com/watch?v=4h75JTMGsAA&t=237s)** — And think about this, when you exercise, you're not really necessarily burning all your fat.
+- **[04:03](https://www.youtube.com/watch?v=4h75JTMGsAA&t=243s)** — The fat burning occurs in the recovery phase.
+- **[04:06](https://www.youtube.com/watch?v=4h75JTMGsAA&t=246s)** — I have another story to tell you. There was a lady who came to see me.
+- **[04:09](https://www.youtube.com/watch?v=4h75JTMGsAA&t=249s)** — She was a high 52, came in to try to lose weight and she decided not to work with me.
+- **[04:15](https://www.youtube.com/watch?v=4h75JTMGsAA&t=255s)** — Instead, she was going to go to the gym and work with her friend to exercise over a period of time to lose weight.
+- **[04:20](https://www.youtube.com/watch?v=4h75JTMGsAA&t=260s)** — Well, I saw her come back in my office a year later really depressed and she looked, if not the same, a little bit more overweight.
+- **[04:29](https://www.youtube.com/watch?v=4h75JTMGsAA&t=269s)** — And she basically told me she lifted, I don't know how many thousands of pounds of weight over a course of a year.
+- **[04:37](https://www.youtube.com/watch?v=4h75JTMGsAA&t=277s)** — I mean, like the workouts, I think there were three times a week, two hours a workout, just all this effort.
+- **[04:43](https://www.youtube.com/watch?v=4h75JTMGsAA&t=283s)** — Right. I think she said she lost a pound or two.
+- **[04:47](https://www.youtube.com/watch?v=4h75JTMGsAA&t=287s)** — But talk about depressing.
+- **[04:50](https://www.youtube.com/watch?v=4h75JTMGsAA&t=290s)** — Here's another example of someone that's overtraining and her real problem was that she wasn't able to sleep.
+- **[04:56](https://www.youtube.com/watch?v=4h75JTMGsAA&t=296s)** — So all that exercise never had a chance to create any benefit in the recovery phase because she just couldn't sleep.
+- **[05:02](https://www.youtube.com/watch?v=4h75JTMGsAA&t=302s)** — And her just she was overtraining and it was just terrible.
+- **[05:05](https://www.youtube.com/watch?v=4h75JTMGsAA&t=305s)** — All I did is help fix her sleep problem.
+- **[05:08](https://www.youtube.com/watch?v=4h75JTMGsAA&t=308s)** — And within three months, I think she she lost some major, major weight.
+- **[05:12](https://www.youtube.com/watch?v=4h75JTMGsAA&t=312s)** — And number five, those protein shakes that everyone says to go ahead and consume those to help stimulate your metabolism.
+- **[05:21](https://www.youtube.com/watch?v=4h75JTMGsAA&t=321s)** — Well, here's the data on protein.
+- **[05:23](https://www.youtube.com/watch?v=4h75JTMGsAA&t=323s)** — Yes, it is true that protein does stimulate three of the fat burning hormones.
+- **[05:29](https://www.youtube.com/watch?v=4h75JTMGsAA&t=329s)** — But the quality of protein is very, very important.
+- **[05:32](https://www.youtube.com/watch?v=4h75JTMGsAA&t=332s)** — These protein shakes many times are not the best quality.
+- **[05:35](https://www.youtube.com/watch?v=4h75JTMGsAA&t=335s)** — Usually there are some type of refined protein powder that doesn't come from nature.
+- **[05:40](https://www.youtube.com/watch?v=4h75JTMGsAA&t=340s)** — I mean, even the whey protein powder is not natural.
+- **[05:43](https://www.youtube.com/watch?v=4h75JTMGsAA&t=343s)** — They're taking out the fat. It's very, very lean.
+- **[05:46](https://www.youtube.com/watch?v=4h75JTMGsAA&t=346s)** — It's one of the highest things on the insulin index scale.
+- **[05:50](https://www.youtube.com/watch?v=4h75JTMGsAA&t=350s)** — The very hormone we're trying to avoid.
+- **[05:52](https://www.youtube.com/watch?v=4h75JTMGsAA&t=352s)** — So I would recommend instead of the protein shakes have real meat protein, animal protein.
+- **[05:57](https://www.youtube.com/watch?v=4h75JTMGsAA&t=357s)** — It's the best. There's also what's called the ideal protein.
+- **[06:01](https://www.youtube.com/watch?v=4h75JTMGsAA&t=361s)** — They use soy protein isolates. I'm very much against that.
+- **[06:04](https://www.youtube.com/watch?v=4h75JTMGsAA&t=364s)** — I do notice that some people lose weight, but they don't look good as they lose weight.
+- **[06:08](https://www.youtube.com/watch?v=4h75JTMGsAA&t=368s)** — They kind of look ragged. Their hair dries out.
+- **[06:10](https://www.youtube.com/watch?v=4h75JTMGsAA&t=370s)** — Their skin doesn't look vibrant.
+- **[06:12](https://www.youtube.com/watch?v=4h75JTMGsAA&t=372s)** — It's not the best way to help you lose weight.
+- **[06:15](https://www.youtube.com/watch?v=4h75JTMGsAA&t=375s)** — So here's a really important concept. It's not lose weight to get healthy.
+- **[06:19](https://www.youtube.com/watch?v=4h75JTMGsAA&t=379s)** — It's get healthy to lose weight.
+- **[06:21](https://www.youtube.com/watch?v=4h75JTMGsAA&t=381s)** — Okay, if you just focus on getting healthy and using fat as your fuel, you will lose weight.
+- **[06:28](https://www.youtube.com/watch?v=4h75JTMGsAA&t=388s)** — But realize in the process something has to happen first.
+- **[06:30](https://www.youtube.com/watch?v=4h75JTMGsAA&t=390s)** — You have to first convert your body into the state of ketosis.
+- **[06:33](https://www.youtube.com/watch?v=4h75JTMGsAA&t=393s)** — That could take a little bit of time.
+- **[06:35](https://www.youtube.com/watch?v=4h75JTMGsAA&t=395s)** — And the way that you know that you're in ketosis is that your appetite goes away.
+- **[06:39](https://www.youtube.com/watch?v=4h75JTMGsAA&t=399s)** — You're no longer craving for anything.
+- **[06:41](https://www.youtube.com/watch?v=4h75JTMGsAA&t=401s)** — Okay, you're able to do intermittent fasting.
+- **[06:44](https://www.youtube.com/watch?v=4h75JTMGsAA&t=404s)** — You go longer periods of time without eating.
+- **[06:46](https://www.youtube.com/watch?v=4h75JTMGsAA&t=406s)** — But because you have adapted to your fat, it's not going to create a stressful situation.
+- **[06:50](https://www.youtube.com/watch?v=4h75JTMGsAA&t=410s)** — It's not going to create a more efficient metabolism.
+- **[06:54](https://www.youtube.com/watch?v=4h75JTMGsAA&t=414s)** — So think about this. You have a very efficient car, right?
+- **[06:58](https://www.youtube.com/watch?v=4h75JTMGsAA&t=418s)** — Which is a person with a kind of a slow metabolism.
+- **[07:01](https://www.youtube.com/watch?v=4h75JTMGsAA&t=421s)** — Then maybe you have a Hummer, which is basically a fuel hog.
+- **[07:06](https://www.youtube.com/watch?v=4h75JTMGsAA&t=426s)** — It wastes fuel. That's what you want.
+- **[07:09](https://www.youtube.com/watch?v=4h75JTMGsAA&t=429s)** — You want to create a system that wastes a lot of fat so you can get this fat off your body.
+- **[07:15](https://www.youtube.com/watch?v=4h75JTMGsAA&t=435s)** — You don't want to create a more efficient system.
+- **[07:17](https://www.youtube.com/watch?v=4h75JTMGsAA&t=437s)** — Unless you're going to be in an environment where you're not going to have a lot of food, then maybe it's a good idea.
+- **[07:22](https://www.youtube.com/watch?v=4h75JTMGsAA&t=442s)** — Let's say for example in that series, Naked and Afraid, right?
+- **[07:25](https://www.youtube.com/watch?v=4h75JTMGsAA&t=445s)** — Where you have to get your own food, right?
+- **[07:27](https://www.youtube.com/watch?v=4h75JTMGsAA&t=447s)** — Well, someone with a very efficient metabolism would survive much better in that environment.
+- **[07:33](https://www.youtube.com/watch?v=4h75JTMGsAA&t=453s)** — So maybe having this efficient metabolism would be a really good thing if you enrolled in that TV program.
+- **[07:38](https://www.youtube.com/watch?v=4h75JTMGsAA&t=458s)** — But other than that, it's not the best idea.
+- **[07:40](https://www.youtube.com/watch?v=4h75JTMGsAA&t=460s)** — We want to waste fuel. We want to waste a lot of fat fuel.
+- **[07:43](https://www.youtube.com/watch?v=4h75JTMGsAA&t=463s)** — You can do that with ketosis by lowering your carbohydrates.
+- **[07:46](https://www.youtube.com/watch?v=4h75JTMGsAA&t=466s)** — You want to burn fat as fuel.
+- **[07:49](https://www.youtube.com/watch?v=4h75JTMGsAA&t=469s)** — Okay, so how do you do that?
+- **[07:50](https://www.youtube.com/watch?v=4h75JTMGsAA&t=470s)** — Moderate high quality protein will stimulate glucagon and growth hormone and testosterone.
+- **[07:57](https://www.youtube.com/watch?v=4h75JTMGsAA&t=477s)** — And if you do high intensity interval training with lots of rest and good recovery,
+- **[08:03](https://www.youtube.com/watch?v=4h75JTMGsAA&t=483s)** — that will stimulate adrenaline, which also can help you burn fat.
+- **[08:07](https://www.youtube.com/watch?v=4h75JTMGsAA&t=487s)** — But more importantly, it's to understand what to avoid.
+- **[08:12](https://www.youtube.com/watch?v=4h75JTMGsAA&t=492s)** — Okay, what to avoid is way more important than what to eat.
+- **[08:16](https://www.youtube.com/watch?v=4h75JTMGsAA&t=496s)** — Okay, because there are two fat making hormones.
+- **[08:19](https://www.youtube.com/watch?v=4h75JTMGsAA&t=499s)** — The big one is insulin and that's related to eating carbohydrates.
+- **[08:24](https://www.youtube.com/watch?v=4h75JTMGsAA&t=504s)** — So you have to keep your carbs low.
+- **[08:27](https://www.youtube.com/watch?v=4h75JTMGsAA&t=507s)** — And cortisol. Cortisol is another fat making hormone, especially in your midsection.
+- **[08:33](https://www.youtube.com/watch?v=4h75JTMGsAA&t=513s)** — It mobilizes even your proteins and turns that into sugar, which then is converted to fat.
+- **[08:38](https://www.youtube.com/watch?v=4h75JTMGsAA&t=518s)** — A lot of the fat making actions of cortisol happen because cortisol will eventually trigger insulin.
+- **[08:46](https://www.youtube.com/watch?v=4h75JTMGsAA&t=526s)** — And so keeping your stress low by exercising, walking, sleeping is vital.
+- **[08:52](https://www.youtube.com/watch?v=4h75JTMGsAA&t=532s)** — The other question is what do you actually eat to be healthy?
+- **[08:55](https://www.youtube.com/watch?v=4h75JTMGsAA&t=535s)** — Well, for that, just look at the dietary guidelines.
+- **[08:59](https://www.youtube.com/watch?v=4h75JTMGsAA&t=539s)** — You know, the dietary guidelines that are influenced by the Academy of Nutrition and Dietetics, right?
+- **[09:05](https://www.youtube.com/watch?v=4h75JTMGsAA&t=545s)** — They are the source of science-based nutrition in food therapy.
+- **[09:10](https://www.youtube.com/watch?v=4h75JTMGsAA&t=550s)** — Most of them are dietitians. Others are assistants to dietitians.
+- **[09:13](https://www.youtube.com/watch?v=4h75JTMGsAA&t=553s)** — But the dietitian is the most influential individual involved in food policy that has given us this food pyramid.
+- **[09:22](https://www.youtube.com/watch?v=4h75JTMGsAA&t=562s)** — Or these dietary guidelines, right? Which are considered to be healthy.
+- **[09:27](https://www.youtube.com/watch?v=4h75JTMGsAA&t=567s)** — And what they say is that you should pretty much have half your plate grains
+- **[09:30](https://www.youtube.com/watch?v=4h75JTMGsAA&t=570s)** — and then the other half fruits and vegetables.
+- **[09:34](https://www.youtube.com/watch?v=4h75JTMGsAA&t=574s)** — And make sure you have low-fat proteins.
+- **[09:37](https://www.youtube.com/watch?v=4h75JTMGsAA&t=577s)** — If you go to the website called eatright.org, you will see right at the top,
+- **[09:40](https://www.youtube.com/watch?v=4h75JTMGsAA&t=580s)** — they are the most trusted, okay, in food and nutrition.
+- **[09:44](https://www.youtube.com/watch?v=4h75JTMGsAA&t=584s)** — But, you know, there's this one little tiny issue I have with that.
+- **[09:50](https://www.youtube.com/watch?v=4h75JTMGsAA&t=590s)** — There's a man by the name of Ruskin who requested some documents through the Freedom of Information Act.
+- **[09:55](https://www.youtube.com/watch?v=4h75JTMGsAA&t=595s)** — And he got 80,000 documents, emails, correspondence between the Academy of Nutrition and Dietetics and the food industry.
+- **[10:05](https://www.youtube.com/watch?v=4h75JTMGsAA&t=605s)** — Quite a few cozy relationships between these two groups.
+- **[10:09](https://www.youtube.com/watch?v=4h75JTMGsAA&t=609s)** — I think the way I would use their site and information is I would see what they're recommending and do the exact opposite.
+- **[10:16](https://www.youtube.com/watch?v=4h75JTMGsAA&t=616s)** — And then you'll really discover what a truly healthy diet would look like.
+- **[10:20](https://www.youtube.com/watch?v=4h75JTMGsAA&t=620s)** — So to get that information on exactly what to eat that's healthy, you should check this video out right here.

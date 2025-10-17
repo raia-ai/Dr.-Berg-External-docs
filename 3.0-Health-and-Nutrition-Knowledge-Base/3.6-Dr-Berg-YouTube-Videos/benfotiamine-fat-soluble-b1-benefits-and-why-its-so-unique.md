@@ -1,0 +1,172 @@
+# Benfotiamine (Fat-Soluble B1): Benefits and Why It's So Unique
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=83sOzga-i0I](https://www.youtube.com/watch?v=83sOzga-i0I)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=83sOzga-i0I&t=0s)** — I'm sure you heard about this benfotamine vitamin.
+- **[00:03](https://www.youtube.com/watch?v=83sOzga-i0I&t=3s)** — So what's all the hype in? Do we really need it?
+- **[00:06](https://www.youtube.com/watch?v=83sOzga-i0I&t=6s)** — And what is it good for?
+- **[00:08](https://www.youtube.com/watch?v=83sOzga-i0I&t=8s)** — Benfotamine is a fat-siable B1.
+- **[00:12](https://www.youtube.com/watch?v=83sOzga-i0I&t=12s)** — Normally B1, called thiamine, is water-siable.
+- **[00:16](https://www.youtube.com/watch?v=83sOzga-i0I&t=16s)** — And so there's several advantages of having this vitamin in a fat-siable form.
+- **[00:20](https://www.youtube.com/watch?v=83sOzga-i0I&t=20s)** — Number one, it can penetrate membranes that are made out of fat much easier,
+- **[00:24](https://www.youtube.com/watch?v=83sOzga-i0I&t=24s)** — like by a factor of 360% more penetration.
+- **[00:28](https://www.youtube.com/watch?v=83sOzga-i0I&t=28s)** — So benfotamine is really good for anything neurological, anything brain,
+- **[00:34](https://www.youtube.com/watch?v=83sOzga-i0I&t=34s)** — especially peripheral neuropathy, where you have the bottom of your feet tingling, numbness, burning,
+- **[00:39](https://www.youtube.com/watch?v=83sOzga-i0I&t=39s)** — or that could be on the hands as well.
+- **[00:41](https://www.youtube.com/watch?v=83sOzga-i0I&t=41s)** — So what is it actually doing?
+- **[00:43](https://www.youtube.com/watch?v=83sOzga-i0I&t=43s)** — One of the big things it's doing, it's inhibiting the formation of something called AGEs.
+- **[00:50](https://www.youtube.com/watch?v=83sOzga-i0I&t=50s)** — That stands for Advanced Glycation and Products.
+- **[00:54](https://www.youtube.com/watch?v=83sOzga-i0I&t=54s)** — Now, what is that?
+- **[00:55](https://www.youtube.com/watch?v=83sOzga-i0I&t=55s)** — Well, that's basically this formation of sugar with a protein or sugar with fat
+- **[01:02](https://www.youtube.com/watch?v=83sOzga-i0I&t=62s)** — that's morphed into this unusable protein.
+- **[01:05](https://www.youtube.com/watch?v=83sOzga-i0I&t=65s)** — So for example, when you are a diabetic and you test for blood glucose levels,
+- **[01:10](https://www.youtube.com/watch?v=83sOzga-i0I&t=70s)** — a lot of times they'll do what's called A1C.
+- **[01:13](https://www.youtube.com/watch?v=83sOzga-i0I&t=73s)** — And that test measures for this term glycation,
+- **[01:17](https://www.youtube.com/watch?v=83sOzga-i0I&t=77s)** — which basically means how much damage to your proteins in your blood is occurring.
+- **[01:23](https://www.youtube.com/watch?v=83sOzga-i0I&t=83s)** — Like the hemoglobin is protein, right?
+- **[01:26](https://www.youtube.com/watch?v=83sOzga-i0I&t=86s)** — So they can measure how much of that protein is unusable because it's glycated,
+- **[01:31](https://www.youtube.com/watch?v=83sOzga-i0I&t=91s)** — because all the sugar interacts with the protein and kind of fuses it to make it unavailable.
+- **[01:38](https://www.youtube.com/watch?v=83sOzga-i0I&t=98s)** — And so as the red blood cells are unavailable, guess what you get?
+- **[01:41](https://www.youtube.com/watch?v=83sOzga-i0I&t=101s)** — You get a lot of complications from that.
+- **[01:43](https://www.youtube.com/watch?v=83sOzga-i0I&t=103s)** — One being just lowered amount of the ability to carry oxygen.
+- **[01:47](https://www.youtube.com/watch?v=83sOzga-i0I&t=107s)** — And think about the cascade of effects that that can create.
+- **[01:50](https://www.youtube.com/watch?v=83sOzga-i0I&t=110s)** — Also, this glycation starts to accumulate in the mitochondria
+- **[01:54](https://www.youtube.com/watch?v=83sOzga-i0I&t=114s)** — and it plugs up the machinery for your cells.
+- **[01:58](https://www.youtube.com/watch?v=83sOzga-i0I&t=118s)** — So benfotamine is a very potent antioxidant type nutrient
+- **[02:04](https://www.youtube.com/watch?v=83sOzga-i0I&t=124s)** — that inhibits the formation of this glycation.
+- **[02:08](https://www.youtube.com/watch?v=83sOzga-i0I&t=128s)** — It also supports the myelin sheath, that outer covering of the nerve
+- **[02:12](https://www.youtube.com/watch?v=83sOzga-i0I&t=132s)** — that allows the nerve to actually work.
+- **[02:14](https://www.youtube.com/watch?v=83sOzga-i0I&t=134s)** — And in a deeper level, we need B1 desperately for several enzymes in our mitochondria
+- **[02:20](https://www.youtube.com/watch?v=83sOzga-i0I&t=140s)** — involved in metabolism.
+- **[02:22](https://www.youtube.com/watch?v=83sOzga-i0I&t=142s)** — Certain enzymes are dependent on B1.
+- **[02:25](https://www.youtube.com/watch?v=83sOzga-i0I&t=145s)** — And if your cells don't have B1, boy, all sorts of issues start occurring.
+- **[02:30](https://www.youtube.com/watch?v=83sOzga-i0I&t=150s)** — So a lot of the complications, especially from diabetes,
+- **[02:35](https://www.youtube.com/watch?v=83sOzga-i0I&t=155s)** — occur because of this lack of this B1,
+- **[02:38](https://www.youtube.com/watch?v=83sOzga-i0I&t=158s)** — because the more glucose you have flowing through your bloodstream,
+- **[02:42](https://www.youtube.com/watch?v=83sOzga-i0I&t=162s)** — the more B1 you need.
+- **[02:44](https://www.youtube.com/watch?v=83sOzga-i0I&t=164s)** — So by being a diabetic, you're basically sucking up all that residual B1 that you had,
+- **[02:49](https://www.youtube.com/watch?v=83sOzga-i0I&t=169s)** — leaving you high and dry.
+- **[02:51](https://www.youtube.com/watch?v=83sOzga-i0I&t=171s)** — Now, there are four main tissues in the body that are affected by diabetes
+- **[02:56](https://www.youtube.com/watch?v=83sOzga-i0I&t=176s)** — more than any other tissues in the body.
+- **[02:58](https://www.youtube.com/watch?v=83sOzga-i0I&t=178s)** — Okay, we have the nerve and the brain, kind of the same tissue.
+- **[03:02](https://www.youtube.com/watch?v=83sOzga-i0I&t=182s)** — We have the arteries, we have the eye, and we have the kidney.
+- **[03:07](https://www.youtube.com/watch?v=83sOzga-i0I&t=187s)** — Now, what's so unique about these four tissues?
+- **[03:10](https://www.youtube.com/watch?v=83sOzga-i0I&t=190s)** — Well, number one, they're the most metabolically demanding tissues of your body,
+- **[03:15](https://www.youtube.com/watch?v=83sOzga-i0I&t=195s)** — which means they hog a lot of fuel
+- **[03:18](https://www.youtube.com/watch?v=83sOzga-i0I&t=198s)** — and they also require a lot of oxygen.
+- **[03:20](https://www.youtube.com/watch?v=83sOzga-i0I&t=200s)** — And then as a byproduct, they put out a lot of oxidation.
+- **[03:25](https://www.youtube.com/watch?v=83sOzga-i0I&t=205s)** — So that means these four tissues are very susceptible to problems with too much oxidation.
+- **[03:33](https://www.youtube.com/watch?v=83sOzga-i0I&t=213s)** — And basically, that means that your balance of antioxidants versus your oxidants are out of balance.
+- **[03:39](https://www.youtube.com/watch?v=83sOzga-i0I&t=219s)** — You don't have enough antioxidants to handle the amount of oxidation occurring.
+- **[03:43](https://www.youtube.com/watch?v=83sOzga-i0I&t=223s)** — And you can kind of think about oxidation as kind of something rusting out in the body.
+- **[03:48](https://www.youtube.com/watch?v=83sOzga-i0I&t=228s)** — And so the term for that is called oxidative stress.
+- **[03:51](https://www.youtube.com/watch?v=83sOzga-i0I&t=231s)** — So these four tissues are very susceptible to becoming damaged with high levels of sugar
+- **[03:57](https://www.youtube.com/watch?v=83sOzga-i0I&t=237s)** — because of the oxidation and the inability to repair.
+- **[04:02](https://www.youtube.com/watch?v=83sOzga-i0I&t=242s)** — And so B1 can come in there to the rescue and lower this oxidation
+- **[04:06](https://www.youtube.com/watch?v=83sOzga-i0I&t=246s)** — because it's kind of a very potent antioxidant.
+- **[04:09](https://www.youtube.com/watch?v=83sOzga-i0I&t=249s)** — Another thing that happens in diabetes is you have damage to the microcirculation.
+- **[04:15](https://www.youtube.com/watch?v=83sOzga-i0I&t=255s)** — The tiny capillaries that feed these tissues.
+- **[04:19](https://www.youtube.com/watch?v=83sOzga-i0I&t=259s)** — These capillary walls start to leak and you get bleeding.
+- **[04:22](https://www.youtube.com/watch?v=83sOzga-i0I&t=262s)** — And you especially see this in the arteries. You see this in the eyes. It happens in the kidney.
+- **[04:27](https://www.youtube.com/watch?v=83sOzga-i0I&t=267s)** — And so in a deeper level, we're getting all this glycated protein junk
+- **[04:30](https://www.youtube.com/watch?v=83sOzga-i0I&t=270s)** — that's accumulating in the mitochondria, plugging everything up,
+- **[04:33](https://www.youtube.com/watch?v=83sOzga-i0I&t=273s)** — and literally starving the cells of fuel and oxygen.
+- **[04:39](https://www.youtube.com/watch?v=83sOzga-i0I&t=279s)** — That's why you see peripheral neuropathy showing up as a kind of a...
+- **[04:42](https://www.youtube.com/watch?v=83sOzga-i0I&t=282s)** — One of the first things, because it affects the extremities at the farthest distance from the heart.
+- **[04:48](https://www.youtube.com/watch?v=83sOzga-i0I&t=288s)** — This advanced glycation end product compound that's plugging everything up can come from several things.
+- **[04:55](https://www.youtube.com/watch?v=83sOzga-i0I&t=295s)** — It comes from eating sugar with protein when it's cooked.
+- **[04:58](https://www.youtube.com/watch?v=83sOzga-i0I&t=298s)** — It comes from eating sugar and fat when it's cooked.
+- **[05:01](https://www.youtube.com/watch?v=83sOzga-i0I&t=301s)** — That would be like ice cream would be a perfect example.
+- **[05:04](https://www.youtube.com/watch?v=83sOzga-i0I&t=304s)** — It comes from cooking in high heats, like you're deep frying something
+- **[05:07](https://www.youtube.com/watch?v=83sOzga-i0I&t=307s)** — or you're grilling something where something is very crispy.
+- **[05:10](https://www.youtube.com/watch?v=83sOzga-i0I&t=310s)** — You do get a certain amount of glycation.
+- **[05:12](https://www.youtube.com/watch?v=83sOzga-i0I&t=312s)** — But just being a diabetic causes high levels of glycation.
+- **[05:16](https://www.youtube.com/watch?v=83sOzga-i0I&t=316s)** — As you get older, you have more glycation.
+- **[05:18](https://www.youtube.com/watch?v=83sOzga-i0I&t=318s)** — So age is a big factor.
+- **[05:20](https://www.youtube.com/watch?v=83sOzga-i0I&t=320s)** — If you smoke, if you drink alcohol,
+- **[05:22](https://www.youtube.com/watch?v=83sOzga-i0I&t=322s)** — and the more inflammation you have, the more glycation you're going to have.
+- **[05:25](https://www.youtube.com/watch?v=83sOzga-i0I&t=325s)** — This is why Benfotamine for diabetics is so vitally important
+- **[05:30](https://www.youtube.com/watch?v=83sOzga-i0I&t=330s)** — because it basically just starts slowing down this glycation process
+- **[05:35](https://www.youtube.com/watch?v=83sOzga-i0I&t=335s)** — and getting rid of the complications from diabetes.
+- **[05:38](https://www.youtube.com/watch?v=83sOzga-i0I&t=338s)** — And of course, hopefully that person is getting rid of the real cause
+- **[05:41](https://www.youtube.com/watch?v=83sOzga-i0I&t=341s)** — of diabetes, which is the diet.
+- **[05:44](https://www.youtube.com/watch?v=83sOzga-i0I&t=344s)** — But sometimes the doctors don't really emphasize that.
+- **[05:46](https://www.youtube.com/watch?v=83sOzga-i0I&t=346s)** — They're all about managing your blood sugars.
+- **[05:49](https://www.youtube.com/watch?v=83sOzga-i0I&t=349s)** — Well, eventually need to fix the cause.
+- **[05:51](https://www.youtube.com/watch?v=83sOzga-i0I&t=351s)** — But also Benfotamine can help you with the symptoms along the way.
+- **[05:55](https://www.youtube.com/watch?v=83sOzga-i0I&t=355s)** — And also many times people combine alpha-lipoic acid with Benfotamine
+- **[05:59](https://www.youtube.com/watch?v=83sOzga-i0I&t=359s)** — because they're a bit synergistic.
+- **[06:01](https://www.youtube.com/watch?v=83sOzga-i0I&t=361s)** — Alpha-lipoic acid directly targets inflammation,
+- **[06:06](https://www.youtube.com/watch?v=83sOzga-i0I&t=366s)** — as well as that oxidative stress.
+- **[06:09](https://www.youtube.com/watch?v=83sOzga-i0I&t=369s)** — Whereas Benfotamine does that as well.
+- **[06:11](https://www.youtube.com/watch?v=83sOzga-i0I&t=371s)** — But it also supplies you with the necessary B1 for the enzymes
+- **[06:16](https://www.youtube.com/watch?v=83sOzga-i0I&t=376s)** — and the mitochondria, as well as directly inhibiting
+- **[06:19](https://www.youtube.com/watch?v=83sOzga-i0I&t=379s)** — the formation of that glycation.
+- **[06:22](https://www.youtube.com/watch?v=83sOzga-i0I&t=382s)** — Now, inside your arteries, you have this inside layer of the artery.
+- **[06:29](https://www.youtube.com/watch?v=83sOzga-i0I&t=389s)** — And it's called the tunica intima, which means innermost layer.
+- **[06:34](https://www.youtube.com/watch?v=83sOzga-i0I&t=394s)** — And in that layer, there's a superficial layer of cells.
+- **[06:38](https://www.youtube.com/watch?v=83sOzga-i0I&t=398s)** — And they're just like one cell thick.
+- **[06:40](https://www.youtube.com/watch?v=83sOzga-i0I&t=400s)** — They're exposed to blood going through the arteries.
+- **[06:45](https://www.youtube.com/watch?v=83sOzga-i0I&t=405s)** — And that's called the endothelial layer.
+- **[06:48](https://www.youtube.com/watch?v=83sOzga-i0I&t=408s)** — That layer of cells, boy, that controls blood pressure.
+- **[06:53](https://www.youtube.com/watch?v=83sOzga-i0I&t=413s)** — It controls all sorts of hormonal interactions.
+- **[06:56](https://www.youtube.com/watch?v=83sOzga-i0I&t=416s)** — It gets hammered with this oxidative stress.
+- **[06:59](https://www.youtube.com/watch?v=83sOzga-i0I&t=419s)** — And then you start getting inflammation and you start getting scar tissue.
+- **[07:03](https://www.youtube.com/watch?v=83sOzga-i0I&t=423s)** — And then you start getting more clots.
+- **[07:05](https://www.youtube.com/watch?v=83sOzga-i0I&t=425s)** — One of the things that it does is it helps to prevent clots.
+- **[07:08](https://www.youtube.com/watch?v=83sOzga-i0I&t=428s)** — But if it becomes damaged, you start getting clots.
+- **[07:11](https://www.youtube.com/watch?v=83sOzga-i0I&t=431s)** — And there's also micro blood vessels that are supplying the artery walls.
+- **[07:17](https://www.youtube.com/watch?v=83sOzga-i0I&t=437s)** — Those are called vasovesorum, which means the vessels of the vessels.
+- **[07:24](https://www.youtube.com/watch?v=83sOzga-i0I&t=444s)** — So the blood vessels also need blood to survive.
+- **[07:28](https://www.youtube.com/watch?v=83sOzga-i0I&t=448s)** — And so all this high level of concentrated sugar in that area
+- **[07:31](https://www.youtube.com/watch?v=83sOzga-i0I&t=451s)** — starts to create inflammation in those vessels, which are a little bit deeper.
+- **[07:36](https://www.youtube.com/watch?v=83sOzga-i0I&t=456s)** — And then you start getting thickening of the arteries and stiffness of the arteries,
+- **[07:41](https://www.youtube.com/watch?v=83sOzga-i0I&t=461s)** — which is not just going to lead to blood pressure problems,
+- **[07:44](https://www.youtube.com/watch?v=83sOzga-i0I&t=464s)** — but a constriction of blood that's flowing through the arteries.
+- **[07:48](https://www.youtube.com/watch?v=83sOzga-i0I&t=468s)** — In other words, insulin is anti-athrosclerosis.
+- **[07:53](https://www.youtube.com/watch?v=83sOzga-i0I&t=473s)** — In other words, it prevents this whole cascaded problem.
+- **[07:56](https://www.youtube.com/watch?v=83sOzga-i0I&t=476s)** — Wait a second, I thought that too much insulin is bad.
+- **[07:59](https://www.youtube.com/watch?v=83sOzga-i0I&t=479s)** — Well, it is, but you have this other factor involved.
+- **[08:03](https://www.youtube.com/watch?v=83sOzga-i0I&t=483s)** — It's called insulin resistance.
+- **[08:05](https://www.youtube.com/watch?v=83sOzga-i0I&t=485s)** — So a lot of these complications that are occurring from high glucose and high insulin
+- **[08:10](https://www.youtube.com/watch?v=83sOzga-i0I&t=490s)** — are occurring because you actually have a deficiency of insulin because of the resistance,
+- **[08:16](https://www.youtube.com/watch?v=83sOzga-i0I&t=496s)** — because the body makes more, but it never actually gets to the right target
+- **[08:20](https://www.youtube.com/watch?v=83sOzga-i0I&t=500s)** — to allow things to occur.
+- **[08:22](https://www.youtube.com/watch?v=83sOzga-i0I&t=502s)** — And so by doing things to get rid of insulin resistance,
+- **[08:24](https://www.youtube.com/watch?v=83sOzga-i0I&t=504s)** — you actually get more insulin to heal this whole area.
+- **[08:28](https://www.youtube.com/watch?v=83sOzga-i0I&t=508s)** — So by eating things that increase insulin, it never is a good solution.
+- **[08:32](https://www.youtube.com/watch?v=83sOzga-i0I&t=512s)** — We have the arteries that are involved.
+- **[08:34](https://www.youtube.com/watch?v=83sOzga-i0I&t=514s)** — We also have the kidneys that get destroyed.
+- **[08:36](https://www.youtube.com/watch?v=83sOzga-i0I&t=516s)** — And so when you have this kidney filter that gets destroyed,
+- **[08:38](https://www.youtube.com/watch?v=83sOzga-i0I&t=518s)** — you start getting this leakiness in the filter.
+- **[08:41](https://www.youtube.com/watch?v=83sOzga-i0I&t=521s)** — So the holes become bigger and then protein kind of goes out
+- **[08:45](https://www.youtube.com/watch?v=83sOzga-i0I&t=525s)** — and then sugar kind of goes out and then you can no longer recycle this.
+- **[08:48](https://www.youtube.com/watch?v=83sOzga-i0I&t=528s)** — And so the kidneys start losing their filtration.
+- **[08:51](https://www.youtube.com/watch?v=83sOzga-i0I&t=531s)** — Now in the eyes, you have this effect, especially from the retina,
+- **[08:54](https://www.youtube.com/watch?v=83sOzga-i0I&t=534s)** — which is nerve tissue that's extending from the brain.
+- **[08:56](https://www.youtube.com/watch?v=83sOzga-i0I&t=536s)** — And it's actually out in the open.
+- **[08:59](https://www.youtube.com/watch?v=83sOzga-i0I&t=539s)** — And so it's very susceptible to this oxidation.
+- **[09:02](https://www.youtube.com/watch?v=83sOzga-i0I&t=542s)** — And so this is why a diabetic could eventually lose their eyesight and go blind.
+- **[09:07](https://www.youtube.com/watch?v=83sOzga-i0I&t=547s)** — But guess what? Benfotimine can come in there
+- **[09:09](https://www.youtube.com/watch?v=83sOzga-i0I&t=549s)** — and slow this process down from happening
+- **[09:12](https://www.youtube.com/watch?v=83sOzga-i0I&t=552s)** — and hopefully even reverse it in certain circumstances.
+- **[09:15](https://www.youtube.com/watch?v=83sOzga-i0I&t=555s)** — Now, when we get nerve damage from this process,
+- **[09:17](https://www.youtube.com/watch?v=83sOzga-i0I&t=557s)** — it's not just the nerves in our feet.
+- **[09:20](https://www.youtube.com/watch?v=83sOzga-i0I&t=560s)** — It's not just the neurons in our brain,
+- **[09:22](https://www.youtube.com/watch?v=83sOzga-i0I&t=562s)** — which is also considered type 3 diabetes.
+- **[09:25](https://www.youtube.com/watch?v=83sOzga-i0I&t=565s)** — But you also get destruction of the autonomic nervous system.
+- **[09:29](https://www.youtube.com/watch?v=83sOzga-i0I&t=569s)** — There's something called diabetic autonomic neuropathy.
+- **[09:33](https://www.youtube.com/watch?v=83sOzga-i0I&t=573s)** — It can exist in any part of your autonomic nervous system.
+- **[09:36](https://www.youtube.com/watch?v=83sOzga-i0I&t=576s)** — So in summary, benfotimine can greatly help a diabetic in many different ways.
+- **[09:40](https://www.youtube.com/watch?v=83sOzga-i0I&t=580s)** — It can actually help reduce this filling up of the mitochondria
+- **[09:43](https://www.youtube.com/watch?v=83sOzga-i0I&t=583s)** — with this glycation end products.
+- **[09:46](https://www.youtube.com/watch?v=83sOzga-i0I&t=586s)** — It can increase the number of mitochondria,
+- **[09:48](https://www.youtube.com/watch?v=83sOzga-i0I&t=588s)** — which can increase the ATP, the fuel to these tissues.
+- **[09:53](https://www.youtube.com/watch?v=83sOzga-i0I&t=593s)** — But remember, you also want to get on the correct eating plan at the same time.
+- **[09:58](https://www.youtube.com/watch?v=83sOzga-i0I&t=598s)** — And if you have any questions on that, you need to watch this video right here.

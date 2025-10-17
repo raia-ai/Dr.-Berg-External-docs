@@ -1,0 +1,109 @@
+# Fix Your Rhomboid Pain Quickly And Easily! (Shoulder Blade Discomfort)
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=EHvvVzWT2oY](https://www.youtube.com/watch?v=EHvvVzWT2oY)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=0s)** — Let's talk about rhomboid pain on the scapula. On the right side also you have one on the left side.
+- **[00:05](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=5s)** — We're primarily going to be talking about the one on the right side. Either if there's pain or
+- **[00:11](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=11s)** — tightness or soreness. You may think that you just need to lay on a tennis ball or get it
+- **[00:16](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=16s)** — massaged or do some type of stretching exercise. But you may find that if you do that it comes
+- **[00:21](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=21s)** — right back about an hour later. I used to have rhomboid pain for literally years and I
+- **[00:27](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=27s)** — had no idea what it was. Being a chiropractor I thought everything was basically a bone out of
+- **[00:33](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=33s)** — place and you just adjust it and the problem's gone. I wish I would have known what I know
+- **[00:38](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=38s)** — now back then because the actual cause was referred from something else. Like when you
+- **[00:45](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=45s)** — step in a dog's tail he barks through his mouth, right? Are you going to mess with the
+- **[00:50](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=50s)** — mouth? No, you're going to take the pressure off the tail. So a lot of people with muscular
+- **[00:55](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=55s)** — problems in one part of their body don't realize that it can be referred from a completely
+- **[01:02](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=62s)** — different area. And so there's this one nerve called the dorsal scapular nerve. It comes out
+- **[01:07](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=67s)** — of the fifth cervical vertebra and it connects to the rhomboid as well as another muscle called
+- **[01:14](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=74s)** — the levator scapula muscle which is right here just beneath your trap. So that one
+- **[01:20](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=80s)** — nerve coming from c5 connects to this muscle and your rhomboid. And if there's any pressure on
+- **[01:27](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=87s)** — that nerve you can have discomfort in those areas where it's just it's always irritating,
+- **[01:32](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=92s)** — it's always tight, it's always in a spasm. But what I didn't know at the time I had this
+- **[01:37](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=97s)** — problem was there's another connection to those group of nerves in this lower part of the neck
+- **[01:44](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=104s)** — called the phrenic nerve. So the phrenic nerve goes from the diaphragm from your neck
+- **[01:50](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=110s)** — all the way down to the diaphragm in the front part here on both sides. And when it connects to
+- **[01:54](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=114s)** — the neck it connects to several nerves. And so if there's a problem in the diaphragm area
+- **[02:01](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=121s)** — that can send signals back up to your neck and cause a little tension causing a little bit of a
+- **[02:06](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=126s)** — rotation, an irritation to the nerve, and keep you with tightness in those two muscles
+- **[02:13](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=133s)** — on the right side. And any amount of massage or trigger point therapy is never going to
+- **[02:20](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=140s)** — how to resolve it. I will say there maybe five percent of the time there's an actual problem in
+- **[02:26](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=146s)** — those muscles that you need to do some stretching. And I'm going to show you a really
+- **[02:29](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=149s)** — good way to handle that. But the great majority of the time the problem is at the
+- **[02:35](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=155s)** — bottom part of the phrenic nerve underneath your diaphragm in an area involving three things.
+- **[02:41](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=161s)** — One is the gallbladder. Two is the little tubes that connect the gallbladder with the liver.
+- **[02:46](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=166s)** — Those are called bile ducts. And three, your liver. You could have any number of problems.
+- **[02:52](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=172s)** — You can have gallstones. You can have an irritation with the gallbladder. You can have
+- **[02:57](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=177s)** — bile sludge that is causing distension in your tubes. The bile ducts. That's called
+- **[03:03](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=183s)** — choleostasis. And that really comes from a lacubile. Or you can actually have an enlargement
+- **[03:09](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=189s)** — in the liver. That's called a paddle megaly. And that can actually even come from having a
+- **[03:14](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=194s)** — If you've ever heard of foie gras, which is a French word, what they basically do is force feed
+- **[03:19](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=199s)** — like corn or other grains into these geese or a duck to fatten up the liver. And that liver
+- **[03:27](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=207s)** — can enlarge by 10 times. Okay? So when we eat corn or carbs or sugars, our livers also
+- **[03:35](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=215s)** — get fatty. And they can enlarge to the point where they can press on that nerve as well
+- **[03:40](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=220s)** — and cause that same problem on the right side. And of course, some people watching this video
+- **[03:45](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=225s)** — might have the problem on the left side. Well, this same thing applies because if you have
+- **[03:51](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=231s)** — this sludge blocking the bile ducts right by your gallbladder, they do cross over to the
+- **[03:58](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=238s)** — pancreatic tubes and ducts. And it can cause a backup in the pancreas as well, causing the
+- **[04:04](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=244s)** — pain on the left side in the back part. The same thing I'm going to talk about applies to
+- **[04:09](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=249s)** — you on the right side or the left side. So the real problem with this pain back here is either
+- **[04:13](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=253s)** — a problem with the gallbladder, the bile ducts, or your liver. You can do a real simple experiment
+- **[04:18](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=258s)** — to figure this out. You can massage or press underneath your right rib cage, right where your
+- **[04:24](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=264s)** — gallbladder is, about an inch down and an inch off the midline, okay, to the right.
+- **[04:29](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=269s)** — And just start massaging this area. It'll be a little bit sore, but if you massage it for
+- **[04:35](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=275s)** — 10 seconds, it should give you relief on your right shoulder area into the rhomboid. Now the
+- **[04:42](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=282s)** — pain and discomfort will come right back, but just the fact that it produces some relief tells
+- **[04:47](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=287s)** — you there's something going on in the right lower area. Whether it could be the gallbladder
+- **[04:53](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=293s)** — or bile duct, liver, we don't know yet. But my suggestion is just to start eating to improve
+- **[04:59](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=299s)** — that whole area. Avoiding certain things and eating certain things to improve it to the point
+- **[05:05](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=305s)** — that problem completely goes away. And I can tell you from firsthand experience, I no longer have
+- **[05:10](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=310s)** — that problem because I changed my diet. So what are the top foods that irritate the liver,
+- **[05:16](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=316s)** — the bile ducts, and the gallbladder? Grains. Then you also have sugars, and you have omega-6
+- **[05:21](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=321s)** — oils. And they're very irritating to your your gallbladder and your liver, and they're
+- **[05:28](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=328s)** — inflammatory. So if you were to go out to a restaurant and order something deep-fried,
+- **[05:32](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=332s)** — they're going to use some of these oils in the process. And when you eat them, you're going to
+- **[05:35](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=335s)** — feel bloated underneath the right rib cage and you're going to feel tension in those muscles
+- **[05:40](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=340s)** — eventually. And then you also have other things that are deep-fried like chips. Just take a
+- **[05:45](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=345s)** — look at what the ingredients are. It's going to be some type of oil they fry the corn or
+- **[05:49](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=349s)** — the potato in, and that would also aggravate it. Other foods that are high in omega-6 would be
+- **[05:55](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=355s)** — the nut butters, almond butter, peanut butter. But any of the nuts could irritate this
+- **[06:01](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=361s)** — area as well. Then you have alcohol that can irritate it, junk foods, processed foods,
+- **[06:07](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=367s)** — heavy meals, eating frequently, keeping your whole digestive tract filled with food all the
+- **[06:13](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=373s)** — time. It's going to be very irritating to this area. It's going to cause the liver to
+- **[06:16](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=376s)** — have to work constantly, creating more problems. So those are all the big culprits. Now what I
+- **[06:22](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=382s)** — recommend is to have moderate amount of protein with your meals. Not necessarily eat
+- **[06:29](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=389s)** — high-fat, but don't avoid saturated fats, but eat high-quality protein like from eggs, fish,
+- **[06:36](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=396s)** — grass-fed meats, things like that, as well as consuming a good amount of vegetables or salad
+- **[06:43](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=403s)** — at the same time you're eating these proteins and fats. So have your big salad first and
+- **[06:50](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=410s)** — then have your protein or fat with each meal. The vegetables or the fiber in the vegetables
+- **[06:55](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=415s)** — will help you to increase the flow of cholesterol through the liver and through the
+- **[07:01](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=421s)** — bile ducts. And the vegetables are really, really good for the liver in general. Eating
+- **[07:06](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=426s)** — just meat or fat without vegetables is a bit hard on the liver. And of course, when you
+- **[07:12](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=432s)** — cook the heck out of the vegetables, don't eat them raw, you don't get to have the enzymes in
+- **[07:19](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=439s)** — those raw vegetables to help you. And then the other thing that's really important is not to eat
+- **[07:23](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=443s)** — frequent. Do intermittent fasting. There's a couple things I'm going to recommend to help
+- **[07:29](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=449s)** — thin the bile to allow things to kind of flow through. There's a product that you can just
+- **[07:34](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=454s)** — look online and get it. Amazon is called Tudka. T-U-D-C-A. So Tudka is a type of
+- **[07:42](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=462s)** — bile salt that helps to thin the bile. You would take two of those in the morning on an
+- **[07:54](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=474s)** — good bile salt supplement that you can take with a meal. And you would take two of those
+- **[08:00](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=480s)** — after the meal. So now this extra bile will just help to take the relief off the liver,
+- **[08:06](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=486s)** — the gallbladder, and the bile ducts and allow bile to flow through this area nicely.
+- **[08:11](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=491s)** — And you're going to find over the course of a week or two weeks, there's going to be a lot
+- **[08:14](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=494s)** — of relief in this back part. So that solution is pretty much going to handle like 95% of
+- **[08:22](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=502s)** — all cases. Let's say there's problems in that actual area because of your posture,
+- **[08:27](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=507s)** — the way you're sitting with the computer, or an injury. For that I would recommend getting
+- **[08:31](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=511s)** — the mobility sticks. These are really cool exercise... I don't know if you call them
+- **[08:36](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=516s)** — tools or exercise equipment. There's these sticks that you can do. These amazing stretching
+- **[08:42](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=522s)** — exercises. I recently got them and I love them. I'm not affiliated with the company but
+- **[08:46](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=526s)** — I'm going to put a link down below to check them out because the exercises you can do
+- **[08:50](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=530s)** — are amazing for not just for your rhomboid and the muscles up through in the shoulder
+- **[08:55](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=535s)** — but the entire body. I'm always investigating different pieces of equipment and different
+- **[09:01](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=541s)** — exercises and I really like this one a lot. Now since we're on the topic of referred pain,
+- **[09:07](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=547s)** — okay, there's a really interesting video that talks about other parts of your body that are
+- **[09:13](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=553s)** — painful. The cause is not coming from where you think it is. And if you haven't seen this
+- **[09:18](https://www.youtube.com/watch?v=EHvvVzWT2oY&t=558s)** — video, I put it up right here. Check it out.

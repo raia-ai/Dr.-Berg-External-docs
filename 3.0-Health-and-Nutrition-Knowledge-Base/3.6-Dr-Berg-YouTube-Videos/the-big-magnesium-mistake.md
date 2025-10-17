@@ -1,0 +1,123 @@
+# The BIG Magnesium Mistake
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=CUY90EaVgXg](https://www.youtube.com/watch?v=CUY90EaVgXg)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=CUY90EaVgXg&t=0s)** — There are some big mistakes people are making when they are taking magnesium.
+- **[00:03](https://www.youtube.com/watch?v=CUY90EaVgXg&t=3s)** — And this is very important because of several reasons.
+- **[00:05](https://www.youtube.com/watch?v=CUY90EaVgXg&t=5s)** — Number one, magnesium is hands down the most important mineral of the entire body.
+- **[00:11](https://www.youtube.com/watch?v=CUY90EaVgXg&t=11s)** — It's involved in hundreds of different biochemical reactions.
+- **[00:14](https://www.youtube.com/watch?v=CUY90EaVgXg&t=14s)** — Everything from atrial fibrillation, high blood pressure, insomnia, heart disease, leg cramps, and especially fatigue.
+- **[00:22](https://www.youtube.com/watch?v=CUY90EaVgXg&t=22s)** — And it's so important, but it's almost impossible to test.
+- **[00:24](https://www.youtube.com/watch?v=CUY90EaVgXg&t=24s)** — Because the majority of magnesium is not in your blood.
+- **[00:27](https://www.youtube.com/watch?v=CUY90EaVgXg&t=27s)** — Only 1% is in the blood, the rest is inside your cells.
+- **[00:31](https://www.youtube.com/watch?v=CUY90EaVgXg&t=31s)** — So unless you do a biopsy or a very specialized test, you're not going to know that you're deficient in magnesium.
+- **[00:36](https://www.youtube.com/watch?v=CUY90EaVgXg&t=36s)** — Based on what we eat and other factors, most people are deficient in magnesium.
+- **[00:41](https://www.youtube.com/watch?v=CUY90EaVgXg&t=41s)** — And if they don't know this information, they might stop taking it and go off into a different direction.
+- **[00:46](https://www.youtube.com/watch?v=CUY90EaVgXg&t=46s)** — And never solve the magnesium deficiency problem.
+- **[00:48](https://www.youtube.com/watch?v=CUY90EaVgXg&t=48s)** — Magnesium is a co-factor. It's a helper nutrient in so many different areas of the biochemistry of your body.
+- **[00:54](https://www.youtube.com/watch?v=CUY90EaVgXg&t=54s)** — But first I want to talk about why people are deficient in the first place.
+- **[00:57](https://www.youtube.com/watch?v=CUY90EaVgXg&t=57s)** — One big problem is a genetic weakness with the absorption of magnesium.
+- **[01:01](https://www.youtube.com/watch?v=CUY90EaVgXg&t=61s)** — But honestly, that's actually very, very rare.
+- **[01:03](https://www.youtube.com/watch?v=CUY90EaVgXg&t=63s)** — The likelihood of you having a genetic problem with magnesium is going to be low.
+- **[01:07](https://www.youtube.com/watch?v=CUY90EaVgXg&t=67s)** — Magnesium is dependent on vitamin D.
+- **[01:11](https://www.youtube.com/watch?v=CUY90EaVgXg&t=71s)** — And the amount of people with genetic problems with vitamin D is off the charts.
+- **[01:16](https://www.youtube.com/watch?v=CUY90EaVgXg&t=76s)** — What I think is happening is the average person is so deficient in vitamin D,
+- **[01:20](https://www.youtube.com/watch?v=CUY90EaVgXg&t=80s)** — that puts them in a situation where magnesium can't work because magnesium is dependent on vitamin D.
+- **[01:27](https://www.youtube.com/watch?v=CUY90EaVgXg&t=87s)** — And realize this, the amount of vitamin D you actually need, minimally, is 10,000 IUs.
+- **[01:32](https://www.youtube.com/watch?v=CUY90EaVgXg&t=92s)** — And that's just as a maintenance.
+- **[01:33](https://www.youtube.com/watch?v=CUY90EaVgXg&t=93s)** — If you're on like 600 international units or a thousand IUs,
+- **[01:37](https://www.youtube.com/watch?v=CUY90EaVgXg&t=97s)** — you're not going to be able to absorb much magnesium if you have inflammation in the gut.
+- **[01:41](https://www.youtube.com/watch?v=CUY90EaVgXg&t=101s)** — Another reason is low stomach acid.
+- **[01:43](https://www.youtube.com/watch?v=CUY90EaVgXg&t=103s)** — You need that acidic stomach to absorb minerals, especially magnesium.
+- **[01:47](https://www.youtube.com/watch?v=CUY90EaVgXg&t=107s)** — How does one know if they don't have enough stomach acid?
+- **[01:51](https://www.youtube.com/watch?v=CUY90EaVgXg&t=111s)** — Indigestion, bloating, heartburn.
+- **[01:52](https://www.youtube.com/watch?v=CUY90EaVgXg&t=112s)** — All of those indicators mean that they need more acid to help you absorb magnesium.
+- **[01:57](https://www.youtube.com/watch?v=CUY90EaVgXg&t=117s)** — If you're a pre-diabetic or a diabetic or you've been eating a lot of carbs for a period of time,
+- **[02:01](https://www.youtube.com/watch?v=CUY90EaVgXg&t=121s)** — you have a problem with insulin.
+- **[02:03](https://www.youtube.com/watch?v=CUY90EaVgXg&t=123s)** — And that could be the reason why you're not absorbing magnesium.
+- **[02:05](https://www.youtube.com/watch?v=CUY90EaVgXg&t=125s)** — Because a lot of nutrients depend on normal insulin working in the body.
+- **[02:10](https://www.youtube.com/watch?v=CUY90EaVgXg&t=130s)** — The best source of magnesium is magnesium glycinate.
+- **[02:14](https://www.youtube.com/watch?v=CUY90EaVgXg&t=134s)** — You get absorption like 80% with that glycinate.
+- **[02:16](https://www.youtube.com/watch?v=CUY90EaVgXg&t=136s)** — Plus the glycinate helps people sleep and it helps them calm down, helps them relax.
+- **[02:20](https://www.youtube.com/watch?v=CUY90EaVgXg&t=140s)** — If you have too much calcium in the body and not enough magnesium,
+- **[02:23](https://www.youtube.com/watch?v=CUY90EaVgXg&t=143s)** — you're going to get cramping in your calves.
+- **[02:26](https://www.youtube.com/watch?v=CUY90EaVgXg&t=146s)** — You're going to get high blood pressure.
+- **[02:28](https://www.youtube.com/watch?v=CUY90EaVgXg&t=148s)** — You're going to get arrhythmias.
+- **[02:29](https://www.youtube.com/watch?v=CUY90EaVgXg&t=149s)** — Because magnesium controls calcium.
+- **[02:33](https://www.youtube.com/watch?v=CUY90EaVgXg&t=153s)** — Too much calcium causes contraction.
+- **[02:37](https://www.youtube.com/watch?v=CUY90EaVgXg&t=157s)** — It raises blood pressure.
+- **[02:38](https://www.youtube.com/watch?v=CUY90EaVgXg&t=158s)** — And check out what happened to this person with blood pressure problems when they took magnesium.
+- **[02:44](https://www.youtube.com/watch?v=CUY90EaVgXg&t=164s)** — I have to say that the first time I've actually had any meaningful relief from the pain
+- **[02:49](https://www.youtube.com/watch?v=CUY90EaVgXg&t=169s)** — is taking this high dose of magnesium and vitamin D.
+- **[02:53](https://www.youtube.com/watch?v=CUY90EaVgXg&t=173s)** — So it's made a huge difference.
+- **[02:56](https://www.youtube.com/watch?v=CUY90EaVgXg&t=176s)** — And that wasn't even really what it was intended.
+- **[02:59](https://www.youtube.com/watch?v=CUY90EaVgXg&t=179s)** — It was intended for the blood pressure.
+- **[03:00](https://www.youtube.com/watch?v=CUY90EaVgXg&t=180s)** — But I think when your pain is alleviated, then your blood pressure will go down.
+- **[03:05](https://www.youtube.com/watch?v=CUY90EaVgXg&t=185s)** — And now I've reduced the dose.
+- **[03:08](https://www.youtube.com/watch?v=CUY90EaVgXg&t=188s)** — So I don't take 800, I take 600 of the magnesium.
+- **[03:11](https://www.youtube.com/watch?v=CUY90EaVgXg&t=191s)** — And I take 20,000 of the vitamin D.
+- **[03:15](https://www.youtube.com/watch?v=CUY90EaVgXg&t=195s)** — And the bonus to the whole thing as the magnesium and vitamin D
+- **[03:20](https://www.youtube.com/watch?v=CUY90EaVgXg&t=200s)** — has had this calming effect on the inflammation of my body.
+- **[03:24](https://www.youtube.com/watch?v=CUY90EaVgXg&t=204s)** — So it's still there, but nowhere near the levels as what they were before I did this test.
+- **[03:32](https://www.youtube.com/watch?v=CUY90EaVgXg&t=212s)** — So I'm thrilled.
+- **[03:33](https://www.youtube.com/watch?v=CUY90EaVgXg&t=213s)** — Interesting, isn't it?
+- **[03:34](https://www.youtube.com/watch?v=CUY90EaVgXg&t=214s)** — Okay, let's continue.
+- **[03:37](https://www.youtube.com/watch?v=CUY90EaVgXg&t=217s)** — Smoking, alcohol, block magnesium in a significant way.
+- **[03:41](https://www.youtube.com/watch?v=CUY90EaVgXg&t=221s)** — If you're consuming too much sodas, which are loaded with phosphoric acid,
+- **[03:46](https://www.youtube.com/watch?v=CUY90EaVgXg&t=226s)** — that can cause deficiency in magnesium.
+- **[03:48](https://www.youtube.com/watch?v=CUY90EaVgXg&t=228s)** — All the refined sugars and refined starches in junk food
+- **[03:51](https://www.youtube.com/watch?v=CUY90EaVgXg&t=231s)** — deplete you of magnesium.
+- **[03:52](https://www.youtube.com/watch?v=CUY90EaVgXg&t=232s)** — And of course, the real big blocker of magnesium is with medications.
+- **[03:57](https://www.youtube.com/watch?v=CUY90EaVgXg&t=237s)** — Another big mistake that doctors make with magnesium
+- **[03:59](https://www.youtube.com/watch?v=CUY90EaVgXg&t=239s)** — is the fact that you cannot determine your magnesium levels from your blood.
+- **[04:05](https://www.youtube.com/watch?v=CUY90EaVgXg&t=245s)** — The best way is just to understand what magnesium does
+- **[04:07](https://www.youtube.com/watch?v=CUY90EaVgXg&t=247s)** — and to look at the various symptoms and just start to eat more magnesium-rich foods.
+- **[04:13](https://www.youtube.com/watch?v=CUY90EaVgXg&t=253s)** — Leafy greens will give you magnesium, pumpkin seeds have magnesium,
+- **[04:16](https://www.youtube.com/watch?v=CUY90EaVgXg&t=256s)** — chocolate has magnesium, make sure you get the kind without sugar,
+- **[04:19](https://www.youtube.com/watch?v=CUY90EaVgXg&t=259s)** — and also certain nuts.
+- **[04:21](https://www.youtube.com/watch?v=CUY90EaVgXg&t=261s)** — Another mistake that people make with magnesium
+- **[04:23](https://www.youtube.com/watch?v=CUY90EaVgXg&t=263s)** — is not taking magnesium long enough to see the change.
+- **[04:28](https://www.youtube.com/watch?v=CUY90EaVgXg&t=268s)** — They're going to need to take magnesium at least one to three months
+- **[04:32](https://www.youtube.com/watch?v=CUY90EaVgXg&t=272s)** — before they even start seeing a change
+- **[04:34](https://www.youtube.com/watch?v=CUY90EaVgXg&t=274s)** — because it takes time to fix the biochemistry in the body.
+- **[04:38](https://www.youtube.com/watch?v=CUY90EaVgXg&t=278s)** — The same thing with arrhythmias.
+- **[04:40](https://www.youtube.com/watch?v=CUY90EaVgXg&t=280s)** — That could take four to six months before you start to see changes.
+- **[04:45](https://www.youtube.com/watch?v=CUY90EaVgXg&t=285s)** — It does take time for this magnesium to really create an effect on the body.
+- **[04:49](https://www.youtube.com/watch?v=CUY90EaVgXg&t=289s)** — If someone has leg cramps, it could be a little bit quicker, like three days,
+- **[04:53](https://www.youtube.com/watch?v=CUY90EaVgXg&t=293s)** — but they should keep taking the magnesium because just by getting rid of a cramp
+- **[04:57](https://www.youtube.com/watch?v=CUY90EaVgXg&t=297s)** — or like a twitch called tetany on your skin can happen pretty quick,
+- **[05:02](https://www.youtube.com/watch?v=CUY90EaVgXg&t=302s)** — but to fully resolve it, it could take weeks.
+- **[05:05](https://www.youtube.com/watch?v=CUY90EaVgXg&t=305s)** — Insomnia could take four weeks before a person starts seeing change.
+- **[05:10](https://www.youtube.com/watch?v=CUY90EaVgXg&t=310s)** — If you don't see immediate change with magnesium,
+- **[05:13](https://www.youtube.com/watch?v=CUY90EaVgXg&t=313s)** — don't think it's not working. It's just taking more time.
+- **[05:16](https://www.youtube.com/watch?v=CUY90EaVgXg&t=316s)** — If you have any digestive problems, constipation, diarrhea,
+- **[05:19](https://www.youtube.com/watch?v=CUY90EaVgXg&t=319s)** — that means you don't have the right microbiome
+- **[05:21](https://www.youtube.com/watch?v=CUY90EaVgXg&t=321s)** — and that can greatly affect your ability to absorb magnesium.
+- **[05:24](https://www.youtube.com/watch?v=CUY90EaVgXg&t=324s)** — If you go through a lot of chronic stress,
+- **[05:26](https://www.youtube.com/watch?v=CUY90EaVgXg&t=326s)** — that could be the reason why the need for magnesium is very, very high.
+- **[05:29](https://www.youtube.com/watch?v=CUY90EaVgXg&t=329s)** — If you do a lot of exercise and you're an athlete,
+- **[05:31](https://www.youtube.com/watch?v=CUY90EaVgXg&t=331s)** — you need a lot more magnesium than the average person.
+- **[05:34](https://www.youtube.com/watch?v=CUY90EaVgXg&t=334s)** — The normal RDAs for magnesium, like 400 milligrams,
+- **[05:38](https://www.youtube.com/watch?v=CUY90EaVgXg&t=338s)** — might not be enough to create a therapeutic effect.
+- **[05:41](https://www.youtube.com/watch?v=CUY90EaVgXg&t=341s)** — You might need a lot more to penetrate some of the barriers that are in your body,
+- **[05:46](https://www.youtube.com/watch?v=CUY90EaVgXg&t=346s)** — 800, 1200, or even 1600 milligrams every single day.
+- **[05:52](https://www.youtube.com/watch?v=CUY90EaVgXg&t=352s)** — Especially if you're dealing with something that's affecting you right now
+- **[05:55](https://www.youtube.com/watch?v=CUY90EaVgXg&t=355s)** — and you want to see change.
+- **[05:56](https://www.youtube.com/watch?v=CUY90EaVgXg&t=356s)** — What you can do is take it in a powder or a tablet
+- **[05:59](https://www.youtube.com/watch?v=CUY90EaVgXg&t=359s)** — and then spread it out through the entire day.
+- **[06:02](https://www.youtube.com/watch?v=CUY90EaVgXg&t=362s)** — Don't just take 1600 and one sitting,
+- **[06:04](https://www.youtube.com/watch?v=CUY90EaVgXg&t=364s)** — because your body can only absorb a certain amount.
+- **[06:07](https://www.youtube.com/watch?v=CUY90EaVgXg&t=367s)** — Take it and spread it out through the day.
+- **[06:09](https://www.youtube.com/watch?v=CUY90EaVgXg&t=369s)** — It'll be much better absorbed.
+- **[06:10](https://www.youtube.com/watch?v=CUY90EaVgXg&t=370s)** — And it wouldn't hurt to at least one of the times that when you take it
+- **[06:12](https://www.youtube.com/watch?v=CUY90EaVgXg&t=372s)** — is to take it with a tablespoon of alpacite of vinegar and water with a straw
+- **[06:17](https://www.youtube.com/watch?v=CUY90EaVgXg&t=377s)** — and then use that liquid to acidify the stomach
+- **[06:20](https://www.youtube.com/watch?v=CUY90EaVgXg&t=380s)** — so you get better absorption.
+- **[06:21](https://www.youtube.com/watch?v=CUY90EaVgXg&t=381s)** — All right. Thanks for watching.
+- **[06:22](https://www.youtube.com/watch?v=CUY90EaVgXg&t=382s)** — And if you haven't seen this video on magnesium, check it out.

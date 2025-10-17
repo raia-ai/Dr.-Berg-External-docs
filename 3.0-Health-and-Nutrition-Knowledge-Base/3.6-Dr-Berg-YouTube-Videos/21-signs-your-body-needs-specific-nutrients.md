@@ -1,0 +1,218 @@
+# 21 Signs Your Body Needs Specific Nutrients
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=8KgNWFyd01g](https://www.youtube.com/watch?v=8KgNWFyd01g)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=8KgNWFyd01g&t=0s)** — Today we are going to talk about 21 signs that your body is low in nutrients.
+- **[00:04](https://www.youtube.com/watch?v=8KgNWFyd01g&t=4s)** — You know, certain people give me the comment,
+- **[00:06](https://www.youtube.com/watch?v=8KgNWFyd01g&t=6s)** — you don't need to take extra nutrition because you can get all of your nutrition from your diet.
+- **[00:11](https://www.youtube.com/watch?v=8KgNWFyd01g&t=11s)** — I will guarantee those people have never looked at the amount of nutrition coming into the body,
+- **[00:17](https://www.youtube.com/watch?v=8KgNWFyd01g&t=17s)** — let alone ever tested for vitamin nutrient deficiencies,
+- **[00:20](https://www.youtube.com/watch?v=8KgNWFyd01g&t=20s)** — because if they did, they would find out the majority of the population is extremely low
+- **[00:25](https://www.youtube.com/watch?v=8KgNWFyd01g&t=25s)** — in things like vitamin D, magnesium, zinc, B1, potassium, and the list goes on and on.
+- **[00:32](https://www.youtube.com/watch?v=8KgNWFyd01g&t=32s)** — Over 50% of the population consumes ultra-processed foods, which have zero nutrition.
+- **[00:38](https://www.youtube.com/watch?v=8KgNWFyd01g&t=38s)** — We mainly eat for pleasure and taste and not for health.
+- **[00:41](https://www.youtube.com/watch?v=8KgNWFyd01g&t=41s)** — A good portion of the food in the grocery store is grown hydroponically in water with about 15 minerals.
+- **[00:48](https://www.youtube.com/watch?v=8KgNWFyd01g&t=48s)** — Well, we need 160 different minerals.
+- **[00:51](https://www.youtube.com/watch?v=8KgNWFyd01g&t=51s)** — Alright, let's dive into the video starting with number one, tingling in your toes.
+- **[00:54](https://www.youtube.com/watch?v=8KgNWFyd01g&t=54s)** — Biggest indication for tingling in the toes is a B1 deficiency.
+- **[00:59](https://www.youtube.com/watch?v=8KgNWFyd01g&t=59s)** — When you think about vitamin B1, think about everything related to the nerves, okay?
+- **[01:04](https://www.youtube.com/watch?v=8KgNWFyd01g&t=64s)** — And the very end of the longest nerve in the body is going to be affected first,
+- **[01:09](https://www.youtube.com/watch?v=8KgNWFyd01g&t=69s)** — and that happens to be in your toes.
+- **[01:11](https://www.youtube.com/watch?v=8KgNWFyd01g&t=71s)** — And then on the bottom of the foot, eventually, or gradually, you're going to notice more of a burning pain,
+- **[01:16](https://www.youtube.com/watch?v=8KgNWFyd01g&t=76s)** — and that pain can start getting very, very intense.
+- **[01:19](https://www.youtube.com/watch?v=8KgNWFyd01g&t=79s)** — The term for this is called peripheral neuropathy.
+- **[01:21](https://www.youtube.com/watch?v=8KgNWFyd01g&t=81s)** — You see this a lot in diabetics because the number one reason why someone is deficient in B1
+- **[01:27](https://www.youtube.com/watch?v=8KgNWFyd01g&t=87s)** — is they're consuming too much sugar or carbs.
+- **[01:29](https://www.youtube.com/watch?v=8KgNWFyd01g&t=89s)** — And for some reason, it's worse at night than during the day.
+- **[01:33](https://www.youtube.com/watch?v=8KgNWFyd01g&t=93s)** — It could be because you're lying down and there's less circulation going on.
+- **[01:38](https://www.youtube.com/watch?v=8KgNWFyd01g&t=98s)** — What foods have the most B1?
+- **[01:39](https://www.youtube.com/watch?v=8KgNWFyd01g&t=99s)** — Believe it or not, pork.
+- **[01:41](https://www.youtube.com/watch?v=8KgNWFyd01g&t=101s)** — But you can also get your B1 from liver.
+- **[01:44](https://www.youtube.com/watch?v=8KgNWFyd01g&t=104s)** — And also, all meats have B1, eggs have B1, sunflower seeds have B1.
+- **[01:49](https://www.youtube.com/watch?v=8KgNWFyd01g&t=109s)** — But if you have this symptom, I would recommend a very special type of B1
+- **[01:53](https://www.youtube.com/watch?v=8KgNWFyd01g&t=113s)** — that is in a fat-soluble form and it's called benfotamate.
+- **[01:57](https://www.youtube.com/watch?v=8KgNWFyd01g&t=117s)** — That specifically will penetrate the fat layer or the myelin into the tissues to help heal it.
+- **[02:04](https://www.youtube.com/watch?v=8KgNWFyd01g&t=124s)** — Alright, number two is cracks in the corner of your mouth.
+- **[02:07](https://www.youtube.com/watch?v=8KgNWFyd01g&t=127s)** — I used to have this.
+- **[02:09](https://www.youtube.com/watch?v=8KgNWFyd01g&t=129s)** — This is a vitamin B2 deficiency.
+- **[02:11](https://www.youtube.com/watch?v=8KgNWFyd01g&t=131s)** — You can get B2 from eating liver, red meat, or eggs.
+- **[02:15](https://www.youtube.com/watch?v=8KgNWFyd01g&t=135s)** — Alright, number three, thinning of the hair.
+- **[02:17](https://www.youtube.com/watch?v=8KgNWFyd01g&t=137s)** — This is usually a biotin deficiency.
+- **[02:21](https://www.youtube.com/watch?v=8KgNWFyd01g&t=141s)** — Biotin is another B vitamin. It's B7.
+- **[02:24](https://www.youtube.com/watch?v=8KgNWFyd01g&t=144s)** — Without B7, you can't make keratin, the protein that's involved in making hair.
+- **[02:31](https://www.youtube.com/watch?v=8KgNWFyd01g&t=151s)** — So it's going to be thinner, it's going to be brittle, it's going to break.
+- **[02:35](https://www.youtube.com/watch?v=8KgNWFyd01g&t=155s)** — You're going to have split ends.
+- **[02:37](https://www.youtube.com/watch?v=8KgNWFyd01g&t=157s)** — Biotin is not just for the hair, it's for the nails, it's for your skin as well.
+- **[02:41](https://www.youtube.com/watch?v=8KgNWFyd01g&t=161s)** — You can get biotin from eggs, nuts, seeds, organ meat, and even dairy.
+- **[02:47](https://www.youtube.com/watch?v=8KgNWFyd01g&t=167s)** — Number four, premature graying of your hair.
+- **[02:50](https://www.youtube.com/watch?v=8KgNWFyd01g&t=170s)** — Like right here or right here, you can see that.
+- **[02:53](https://www.youtube.com/watch?v=8KgNWFyd01g&t=173s)** — Premature graying at an earlier age suspect a deficiency of another B vitamin, B9, which is folate.
+- **[03:02](https://www.youtube.com/watch?v=8KgNWFyd01g&t=182s)** — It really helps you repair DNA.
+- **[03:04](https://www.youtube.com/watch?v=8KgNWFyd01g&t=184s)** — This is why it helps prevent cancer.
+- **[03:06](https://www.youtube.com/watch?v=8KgNWFyd01g&t=186s)** — But there's another specific thing that folate does, and that is supporting melanin.
+- **[03:11](https://www.youtube.com/watch?v=8KgNWFyd01g&t=191s)** — Melanin is the thing that gives you your pigment, your color of your hair and your skin.
+- **[03:16](https://www.youtube.com/watch?v=8KgNWFyd01g&t=196s)** — And so folate can help support that.
+- **[03:18](https://www.youtube.com/watch?v=8KgNWFyd01g&t=198s)** — And the best way to get folate is from leafy greens.
+- **[03:22](https://www.youtube.com/watch?v=8KgNWFyd01g&t=202s)** — All right, that's premature graying.
+- **[03:23](https://www.youtube.com/watch?v=8KgNWFyd01g&t=203s)** — What about mouth ulcers?
+- **[03:25](https://www.youtube.com/watch?v=8KgNWFyd01g&t=205s)** — This is a B12 deficiency.
+- **[03:27](https://www.youtube.com/watch?v=8KgNWFyd01g&t=207s)** — B12 helps protect mucous membranes.
+- **[03:30](https://www.youtube.com/watch?v=8KgNWFyd01g&t=210s)** — And if there's no protection, you start getting breakdown in that lining in the inside layer of your mouth.
+- **[03:35](https://www.youtube.com/watch?v=8KgNWFyd01g&t=215s)** — And then you get these little ulcers.
+- **[03:37](https://www.youtube.com/watch?v=8KgNWFyd01g&t=217s)** — But B12 does a lot.
+- **[03:38](https://www.youtube.com/watch?v=8KgNWFyd01g&t=218s)** — It also supports our red blood cells to prevent anemia.
+- **[03:42](https://www.youtube.com/watch?v=8KgNWFyd01g&t=222s)** — B12 is also involved in supporting the nervous system.
+- **[03:45](https://www.youtube.com/watch?v=8KgNWFyd01g&t=225s)** — Very, very important.
+- **[03:47](https://www.youtube.com/watch?v=8KgNWFyd01g&t=227s)** — If you're deficient in B12, you're going to have a lot of nerve damage.
+- **[03:50](https://www.youtube.com/watch?v=8KgNWFyd01g&t=230s)** — You can even become to the point where it's permanent.
+- **[03:52](https://www.youtube.com/watch?v=8KgNWFyd01g&t=232s)** — So we want to make sure we have enough B12.
+- **[03:55](https://www.youtube.com/watch?v=8KgNWFyd01g&t=235s)** — Best source of B12?
+- **[03:56](https://www.youtube.com/watch?v=8KgNWFyd01g&t=236s)** — Red meat, liver, clams.
+- **[03:58](https://www.youtube.com/watch?v=8KgNWFyd01g&t=238s)** — All right, number six, deep pelvic bone pain.
+- **[04:01](https://www.youtube.com/watch?v=8KgNWFyd01g&t=241s)** — And when I talk about deep bone pain, I'm talking about that extends also in your lower back, your hips and even the thighs.
+- **[04:08](https://www.youtube.com/watch?v=8KgNWFyd01g&t=248s)** — This is a classic vitamin D deficiency.
+- **[04:13](https://www.youtube.com/watch?v=8KgNWFyd01g&t=253s)** — Without vitamin D, your bones cannot mineralize.
+- **[04:16](https://www.youtube.com/watch?v=8KgNWFyd01g&t=256s)** — You can't pull in calcium.
+- **[04:17](https://www.youtube.com/watch?v=8KgNWFyd01g&t=257s)** — You can't make the bone strong.
+- **[04:19](https://www.youtube.com/watch?v=8KgNWFyd01g&t=259s)** — 80% of the population has a vitamin D deficiency.
+- **[04:22](https://www.youtube.com/watch?v=8KgNWFyd01g&t=262s)** — It's the most important vitamin because it's involved in so many different genes.
+- **[04:27](https://www.youtube.com/watch?v=8KgNWFyd01g&t=267s)** — Like 2500 different genes.
+- **[04:29](https://www.youtube.com/watch?v=8KgNWFyd01g&t=269s)** — When you take vitamin D as a maintenance dose, I highly recommend you take no less than 10,000 IUs every single day.
+- **[04:37](https://www.youtube.com/watch?v=8KgNWFyd01g&t=277s)** — Unless you're getting sun.
+- **[04:39](https://www.youtube.com/watch?v=8KgNWFyd01g&t=279s)** — That is definitely not a toxic amount.
+- **[04:41](https://www.youtube.com/watch?v=8KgNWFyd01g&t=281s)** — But because there's so many different factors that block vitamin D and we have so much resistance to it,
+- **[04:47](https://www.youtube.com/watch?v=8KgNWFyd01g&t=287s)** — we need a good amount of vitamin D3.
+- **[04:50](https://www.youtube.com/watch?v=8KgNWFyd01g&t=290s)** — And for a healthy person, that's 10,000 IUs.
+- **[04:54](https://www.youtube.com/watch?v=8KgNWFyd01g&t=294s)** — But you probably need even more than that.
+- **[04:55](https://www.youtube.com/watch?v=8KgNWFyd01g&t=295s)** — Okay, next one is heavy menstrual bleeding.
+- **[04:59](https://www.youtube.com/watch?v=8KgNWFyd01g&t=299s)** — This is usually high levels of estrogen.
+- **[05:04](https://www.youtube.com/watch?v=8KgNWFyd01g&t=304s)** — But it can also be a deficiency in vitamin K1.
+- **[05:09](https://www.youtube.com/watch?v=8KgNWFyd01g&t=309s)** — Because vitamin K1 is all about stopping the bleeding.
+- **[05:14](https://www.youtube.com/watch?v=8KgNWFyd01g&t=314s)** — Making sure you have enough vitamin K can help you.
+- **[05:16](https://www.youtube.com/watch?v=8KgNWFyd01g&t=316s)** — But typically vitamin K1 comes from dark, leafy green vegetables.
+- **[05:21](https://www.youtube.com/watch?v=8KgNWFyd01g&t=321s)** — You can also get vitamin K1 from consuming liver.
+- **[05:25](https://www.youtube.com/watch?v=8KgNWFyd01g&t=325s)** — Alright, number 8 is heavy menstrual cramping.
+- **[05:28](https://www.youtube.com/watch?v=8KgNWFyd01g&t=328s)** — This is a magnesium deficiency.
+- **[05:31](https://www.youtube.com/watch?v=8KgNWFyd01g&t=331s)** — But what's really causing the cramping is the uncontrolled calcium situation.
+- **[05:35](https://www.youtube.com/watch?v=8KgNWFyd01g&t=335s)** — So magnesium is a remedy.
+- **[05:37](https://www.youtube.com/watch?v=8KgNWFyd01g&t=337s)** — You need it to help you relax, help you sleep.
+- **[05:39](https://www.youtube.com/watch?v=8KgNWFyd01g&t=339s)** — It's good for blood pressure, so many things.
+- **[05:42](https://www.youtube.com/watch?v=8KgNWFyd01g&t=342s)** — And magnesium would be in anything green.
+- **[05:45](https://www.youtube.com/watch?v=8KgNWFyd01g&t=345s)** — All the dark, leafy green vegetables.
+- **[05:46](https://www.youtube.com/watch?v=8KgNWFyd01g&t=346s)** — Also it's in pumpkin seeds, sesame seeds.
+- **[05:49](https://www.youtube.com/watch?v=8KgNWFyd01g&t=349s)** — Alright, number 9, fibroids.
+- **[05:51](https://www.youtube.com/watch?v=8KgNWFyd01g&t=351s)** — This too can be a situation where you have too much estrogen.
+- **[05:55](https://www.youtube.com/watch?v=8KgNWFyd01g&t=355s)** — A fibroid is a benign tumor that is growing from the uterus.
+- **[06:00](https://www.youtube.com/watch?v=8KgNWFyd01g&t=360s)** — Vitamin D can keep it in check.
+- **[06:02](https://www.youtube.com/watch?v=8KgNWFyd01g&t=362s)** — But the problem is we need a lot more vitamin D than you think.
+- **[06:06](https://www.youtube.com/watch?v=8KgNWFyd01g&t=366s)** — Especially to shrink one of these things.
+- **[06:08](https://www.youtube.com/watch?v=8KgNWFyd01g&t=368s)** — So you're going to need about 20,000 to 30,000 international units every single day to be able to shrink these.
+- **[06:16](https://www.youtube.com/watch?v=8KgNWFyd01g&t=376s)** — So that's what I would recommend with a good amount of magnesium together with some zinc and vitamin K2.
+- **[06:21](https://www.youtube.com/watch?v=8KgNWFyd01g&t=381s)** — Those are co-factors.
+- **[06:23](https://www.youtube.com/watch?v=8KgNWFyd01g&t=383s)** — Also make sure you're not consuming any dairy because dairy can flare those up because dairy is a growth hormone.
+- **[06:29](https://www.youtube.com/watch?v=8KgNWFyd01g&t=389s)** — And so is insulin.
+- **[06:31](https://www.youtube.com/watch?v=8KgNWFyd01g&t=391s)** — So if you're doing a lot of carbs, that also can make those grow.
+- **[06:34](https://www.youtube.com/watch?v=8KgNWFyd01g&t=394s)** — Take your vitamin D and watch what happens.
+- **[06:36](https://www.youtube.com/watch?v=8KgNWFyd01g&t=396s)** — Alright, number 10 is twitch underneath the eye.
+- **[06:39](https://www.youtube.com/watch?v=8KgNWFyd01g&t=399s)** — It's called tetany.
+- **[06:40](https://www.youtube.com/watch?v=8KgNWFyd01g&t=400s)** — This is one of the first symptoms of a magnesium deficiency.
+- **[06:44](https://www.youtube.com/watch?v=8KgNWFyd01g&t=404s)** — And I would take no less than 400 milligrams every single day.
+- **[06:48](https://www.youtube.com/watch?v=8KgNWFyd01g&t=408s)** — It does take a while to correct it.
+- **[06:51](https://www.youtube.com/watch?v=8KgNWFyd01g&t=411s)** — But leafy greens, pumpkin seeds, like I already mentioned, will eventually correct it.
+- **[06:55](https://www.youtube.com/watch?v=8KgNWFyd01g&t=415s)** — Okay, number 11, heart pounding.
+- **[06:57](https://www.youtube.com/watch?v=8KgNWFyd01g&t=417s)** — So you hear this pounding like your pulse in your ear.
+- **[07:01](https://www.youtube.com/watch?v=8KgNWFyd01g&t=421s)** — Boom, boom, boom, boom.
+- **[07:03](https://www.youtube.com/watch?v=8KgNWFyd01g&t=423s)** — This is a classic potassium deficiency.
+- **[07:07](https://www.youtube.com/watch?v=8KgNWFyd01g&t=427s)** — I at one time had this and I didn't know what it was.
+- **[07:10](https://www.youtube.com/watch?v=8KgNWFyd01g&t=430s)** — But it happened right after I consumed a massive amount of sugar and carbohydrates in one sitting.
+- **[07:16](https://www.youtube.com/watch?v=8KgNWFyd01g&t=436s)** — Because what happens when you consume refined carbs of sugar,
+- **[07:20](https://www.youtube.com/watch?v=8KgNWFyd01g&t=440s)** — it actually pulls potassium out of certain places and locks it up into the sugar,
+- **[07:28](https://www.youtube.com/watch?v=8KgNWFyd01g&t=448s)** — creating a potassium deficiency.
+- **[07:30](https://www.youtube.com/watch?v=8KgNWFyd01g&t=450s)** — What you need is you need potassium.
+- **[07:32](https://www.youtube.com/watch?v=8KgNWFyd01g&t=452s)** — 4700 milligrams.
+- **[07:33](https://www.youtube.com/watch?v=8KgNWFyd01g&t=453s)** — You can try to do it with salads, but you would have to have at least, minimally, 10 cups of salad.
+- **[07:38](https://www.youtube.com/watch?v=8KgNWFyd01g&t=458s)** — Very rarely does anyone do that.
+- **[07:40](https://www.youtube.com/watch?v=8KgNWFyd01g&t=460s)** — So what you have to do is you have to have a variety of foods and maybe sometimes an electrolyte powder to get what you need.
+- **[07:45](https://www.youtube.com/watch?v=8KgNWFyd01g&t=465s)** — Potassium is really good for blood pressure, as well as the sensation of pounding in your ear.
+- **[07:49](https://www.youtube.com/watch?v=8KgNWFyd01g&t=469s)** — Alright, this one over here. Chronic cough is a calcium deficiency.
+- **[07:55](https://www.youtube.com/watch?v=8KgNWFyd01g&t=475s)** — I typically do not recommend taking calcium as a supplement unless you have a symptom like this.
+- **[08:02](https://www.youtube.com/watch?v=8KgNWFyd01g&t=482s)** — But I think the best source of calcium is from food like dairy.
+- **[08:06](https://www.youtube.com/watch?v=8KgNWFyd01g&t=486s)** — But some people can't do dairy.
+- **[08:08](https://www.youtube.com/watch?v=8KgNWFyd01g&t=488s)** — So then I would recommend a supplement.
+- **[08:10](https://www.youtube.com/watch?v=8KgNWFyd01g&t=490s)** — Not too much because our body doesn't get rid of calcium too easily.
+- **[08:14](https://www.youtube.com/watch?v=8KgNWFyd01g&t=494s)** — So calcium lactate would be a good source for those people that need it.
+- **[08:17](https://www.youtube.com/watch?v=8KgNWFyd01g&t=497s)** — But if you can do dairy like Greek yogurt or even kefir would be really good.
+- **[08:21](https://www.youtube.com/watch?v=8KgNWFyd01g&t=501s)** — Alright, the craving for ice is an iron deficiency.
+- **[08:25](https://www.youtube.com/watch?v=8KgNWFyd01g&t=505s)** — And sometimes people even crave dirt or chalk.
+- **[08:28](https://www.youtube.com/watch?v=8KgNWFyd01g&t=508s)** — You might see this in someone who's pregnant.
+- **[08:31](https://www.youtube.com/watch?v=8KgNWFyd01g&t=511s)** — They need iron.
+- **[08:31](https://www.youtube.com/watch?v=8KgNWFyd01g&t=511s)** — The best source of iron is not from plants.
+- **[08:34](https://www.youtube.com/watch?v=8KgNWFyd01g&t=514s)** — It's from red meat or liver.
+- **[08:36](https://www.youtube.com/watch?v=8KgNWFyd01g&t=516s)** — But iron helps you carry oxygen in the blood.
+- **[08:40](https://www.youtube.com/watch?v=8KgNWFyd01g&t=520s)** — Our bodies do not have a way to get rid of excess iron.
+- **[08:44](https://www.youtube.com/watch?v=8KgNWFyd01g&t=524s)** — So don't load up on iron.
+- **[08:46](https://www.youtube.com/watch?v=8KgNWFyd01g&t=526s)** — Take it if you need it.
+- **[08:47](https://www.youtube.com/watch?v=8KgNWFyd01g&t=527s)** — Alright, next one. Low libido.
+- **[08:49](https://www.youtube.com/watch?v=8KgNWFyd01g&t=529s)** — This is a deficiency of zinc.
+- **[08:51](https://www.youtube.com/watch?v=8KgNWFyd01g&t=531s)** — All those hormones need zinc.
+- **[08:54](https://www.youtube.com/watch?v=8KgNWFyd01g&t=534s)** — And also, zinc is involved in keeping your thymus gland,
+- **[08:57](https://www.youtube.com/watch?v=8KgNWFyd01g&t=537s)** — the master immune gland which is on the top of the heart,
+- **[09:00](https://www.youtube.com/watch?v=8KgNWFyd01g&t=540s)** — to keep it from atrophying.
+- **[09:02](https://www.youtube.com/watch?v=8KgNWFyd01g&t=542s)** — Shellfish, especially oysters and red meat, are a good source of zinc.
+- **[09:06](https://www.youtube.com/watch?v=8KgNWFyd01g&t=546s)** — Alright, next one is hearing loss.
+- **[09:08](https://www.youtube.com/watch?v=8KgNWFyd01g&t=548s)** — This is a B12 deficiency.
+- **[09:11](https://www.youtube.com/watch?v=8KgNWFyd01g&t=551s)** — B12 is important in supporting the nerves, especially the auditory nerve.
+- **[09:16](https://www.youtube.com/watch?v=8KgNWFyd01g&t=556s)** — So once B12 is deficient, that nerve can suffer
+- **[09:19](https://www.youtube.com/watch?v=8KgNWFyd01g&t=559s)** — and you can start having this gradual problem
+- **[09:22](https://www.youtube.com/watch?v=8KgNWFyd01g&t=562s)** — with high pitches and low pitch vibration.
+- **[09:26](https://www.youtube.com/watch?v=8KgNWFyd01g&t=566s)** — If you know someone that's getting older,
+- **[09:29](https://www.youtube.com/watch?v=8KgNWFyd01g&t=569s)** — give them some good B12 and red meat are a good source of zinc.
+- **[09:33](https://www.youtube.com/watch?v=8KgNWFyd01g&t=573s)** — Alright, next one is fibrocystic breast.
+- **[09:35](https://www.youtube.com/watch?v=8KgNWFyd01g&t=575s)** — This is excess estrogen because you don't have enough iodine.
+- **[09:40](https://www.youtube.com/watch?v=8KgNWFyd01g&t=580s)** — So really it's an iodine deficiency.
+- **[09:42](https://www.youtube.com/watch?v=8KgNWFyd01g&t=582s)** — What that means is they need some sea kelp or some seaweed
+- **[09:46](https://www.youtube.com/watch?v=8KgNWFyd01g&t=586s)** — or maybe shellfish.
+- **[09:48](https://www.youtube.com/watch?v=8KgNWFyd01g&t=588s)** — Alright, next one is dry flaky skin.
+- **[09:51](https://www.youtube.com/watch?v=8KgNWFyd01g&t=591s)** — Usually around the nose through here,
+- **[09:52](https://www.youtube.com/watch?v=8KgNWFyd01g&t=592s)** — but also in the eyebrows right through in here.
+- **[09:55](https://www.youtube.com/watch?v=8KgNWFyd01g&t=595s)** — That's a classic omega-3 fatty acid deficiency.
+- **[09:59](https://www.youtube.com/watch?v=8KgNWFyd01g&t=599s)** — I mean, an average person consumes like eight gallons of sea oils a year.
+- **[10:04](https://www.youtube.com/watch?v=8KgNWFyd01g&t=604s)** — That's crazy. That's going to create a lot of flaky skin
+- **[10:08](https://www.youtube.com/watch?v=8KgNWFyd01g&t=608s)** — and a lot of other issues.
+- **[10:10](https://www.youtube.com/watch?v=8KgNWFyd01g&t=610s)** — What that means is they need some cod liver oil or fish oil that's high quality.
+- **[10:14](https://www.youtube.com/watch?v=8KgNWFyd01g&t=614s)** — Alright, next one is muscle weakness.
+- **[10:16](https://www.youtube.com/watch?v=8KgNWFyd01g&t=616s)** — This is a classic vitamin E deficiency.
+- **[10:19](https://www.youtube.com/watch?v=8KgNWFyd01g&t=619s)** — If you look at the top or the peak of any large mountain
+- **[10:22](https://www.youtube.com/watch?v=8KgNWFyd01g&t=622s)** — that a lot of people climb,
+- **[10:24](https://www.youtube.com/watch?v=8KgNWFyd01g&t=624s)** — you're going to see empty bottles of vitamin E
+- **[10:26](https://www.youtube.com/watch?v=8KgNWFyd01g&t=626s)** — because vitamin E helps get oxygen in higher altitudes.
+- **[10:30](https://www.youtube.com/watch?v=8KgNWFyd01g&t=630s)** — Vitamin E also prevents atrophy of the muscle.
+- **[10:33](https://www.youtube.com/watch?v=8KgNWFyd01g&t=633s)** — The type of vitamin E I would recommend is called tocatrinals.
+- **[10:36](https://www.youtube.com/watch?v=8KgNWFyd01g&t=636s)** — Next one is fatty liver.
+- **[10:37](https://www.youtube.com/watch?v=8KgNWFyd01g&t=637s)** — You can develop a fatty liver from eating a lot of carbs, junk food, alcohol.
+- **[10:42](https://www.youtube.com/watch?v=8KgNWFyd01g&t=642s)** — But also if you're choline deficient.
+- **[10:45](https://www.youtube.com/watch?v=8KgNWFyd01g&t=645s)** — Where do you get choline?
+- **[10:46](https://www.youtube.com/watch?v=8KgNWFyd01g&t=646s)** — You can get it from either the liver
+- **[10:47](https://www.youtube.com/watch?v=8KgNWFyd01g&t=647s)** — or even a better source would be from egg yolks.
+- **[10:51](https://www.youtube.com/watch?v=8KgNWFyd01g&t=651s)** — Alright, next one is cold source.
+- **[10:52](https://www.youtube.com/watch?v=8KgNWFyd01g&t=652s)** — This is a lysine deficiency, but really it's a virus.
+- **[10:55](https://www.youtube.com/watch?v=8KgNWFyd01g&t=655s)** — But lysine will put this virus back in remission.
+- **[10:59](https://www.youtube.com/watch?v=8KgNWFyd01g&t=659s)** — You can get lysine from parmesan cheese,
+- **[11:01](https://www.youtube.com/watch?v=8KgNWFyd01g&t=661s)** — turkey, chicken, and fish.
+- **[11:04](https://www.youtube.com/watch?v=8KgNWFyd01g&t=664s)** — Lysine is also good for the immune system.
+- **[11:06](https://www.youtube.com/watch?v=8KgNWFyd01g&t=666s)** — It's also good to build up collagen.
+- **[11:08](https://www.youtube.com/watch?v=8KgNWFyd01g&t=668s)** — And then we get to the last one here called high lipids.
+- **[11:11](https://www.youtube.com/watch?v=8KgNWFyd01g&t=671s)** — To help regulate these high lipids,
+- **[11:13](https://www.youtube.com/watch?v=8KgNWFyd01g&t=673s)** — you want a good amount of niacin, which is vitamin B3.
+- **[11:17](https://www.youtube.com/watch?v=8KgNWFyd01g&t=677s)** — Sometimes people don't realize that cholesterol can come from sugar and refined carbs.
+- **[11:22](https://www.youtube.com/watch?v=8KgNWFyd01g&t=682s)** — So just by changing your diet, you can improve those profiles.
+- **[11:25](https://www.youtube.com/watch?v=8KgNWFyd01g&t=685s)** — Now at this point, I think the most important thing for you to do
+- **[11:28](https://www.youtube.com/watch?v=8KgNWFyd01g&t=688s)** — is to know what food or foods to eat or meals
+- **[11:34](https://www.youtube.com/watch?v=8KgNWFyd01g&t=694s)** — that are nutrient dense to prevent all this right here.
+- **[11:36](https://www.youtube.com/watch?v=8KgNWFyd01g&t=696s)** — And for that information, you should check out this video right here.

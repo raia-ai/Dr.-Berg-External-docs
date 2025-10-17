@@ -1,0 +1,113 @@
+# How to Get Enough Potassium on the Carnivore Diet - Dr. Berg
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=M5ADM_V3bJY](https://www.youtube.com/watch?v=M5ADM_V3bJY)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=0s)** — Out of all the nutrients that our body needs, potassium is at the very top of the list as far as the huge requirements.
+- **[00:06](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=6s)** — We're talking 4,700 milligrams. No other nutrient comes even close to that.
+- **[00:11](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=11s)** — Now the question is why? Why do we need so much potassium?
+- **[00:15](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=15s)** — Because potassium fulfills a very, very important enzyme that's involved in the sodium potassium pump.
+- **[00:23](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=23s)** — This pump is in all of your nerve cells. It's in all of your muscle cells.
+- **[00:27](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=27s)** — It is the pump that establishes the battery of our cells.
+- **[00:32](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=32s)** — We need this pump to move electrical impulses.
+- **[00:35](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=35s)** — We also need this pump for muscle contraction that are in your arteries.
+- **[00:40](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=40s)** — We need it in the heart, for the heart muscle, as well as in your kidney.
+- **[00:44](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=44s)** — And today we're going to talk about the consequences of not having enough potassium in our diet.
+- **[00:48](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=48s)** — But there's some new information I want to share with you from a paper entitled,
+- **[00:53](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=53s)** — Achieving the Benefits of a High Potassium Paleolithic Diet Without the Toxicity.
+- **[01:01](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=61s)** — Apparently, thousands of years ago in the Stone Age, humans have consumed a lot more than 4,700 milligrams.
+- **[01:09](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=69s)** — In fact, there's evidence to show that humans consumed up to 15,000 milligrams of potassium every single day.
+- **[01:16](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=76s)** — That's four times the current RDAs, which is still quite high, 4,700.
+- **[01:21](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=81s)** — And then if we look at the relationship of potassium to sodium with those levels,
+- **[01:25](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=85s)** — we're talking 16 times more potassium than sodium.
+- **[01:29](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=89s)** — So there's some really interesting, credible data to show that we need even more potassium than we really think.
+- **[01:36](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=96s)** — And what backs that up is the kidney.
+- **[01:39](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=99s)** — Our kidneys have a very robust capacity to get rid of excess potassium, but not sodium, but potassium.
+- **[01:48](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=108s)** — So sometimes people say that, oh yeah, potassium is bad for the kidneys. It can create problems.
+- **[01:54](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=114s)** — That's only in like stage five kidney disease, which is end stage kidney disease.
+- **[01:59](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=119s)** — If you take large amounts of potassium before you get kidney disease, it actually has been shown to be protective against kidney disease.
+- **[02:07](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=127s)** — I mean, the average person consumes like 1.5 cups of vegetables, which are the primary source of potassium.
+- **[02:15](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=135s)** — And no, you're not going to get a lot of potassium from bananas.
+- **[02:18](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=138s)** — Bananas have roughly about 300 milligrams.
+- **[02:21](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=141s)** — So you'd have to eat a lot of bananas to get your fulfillment of potassium.
+- **[02:25](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=145s)** — And of course, bananas have a lot of fructose, which comes with other issues.
+- **[02:30](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=150s)** — Potatoes are also supposed to have a lot of potassium.
+- **[02:32](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=152s)** — But of course, the starch creates other issues.
+- **[02:36](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=156s)** — One medium sized potato has about 600 milligrams of potassium.
+- **[02:41](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=161s)** — But just one cup of leafy greens is between 500 to 800 milligrams.
+- **[02:47](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=167s)** — That's one cup.
+- **[02:49](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=169s)** — And if you consumed like five, seven or even 10 cups, boy, that would give you a tremendous amount of potassium.
+- **[02:55](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=175s)** — The point is we need a lot of potassium.
+- **[02:58](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=178s)** — We probably need more than we're consuming.
+- **[03:00](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=180s)** — Unfortunately, the average person is not consuming enough potassium from the diet.
+- **[03:04](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=184s)** — And you might say, well, maybe they're getting it from their supplements, right?
+- **[03:07](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=187s)** — Well, the majority of supplements only give you like between 49 to at the very most, 99 milligrams per tablet.
+- **[03:17](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=197s)** — So how many pills would you have to take per day to even get your daily requirement of potassium?
+- **[03:23](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=203s)** — Well, you'd have to have 47 pills.
+- **[03:27](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=207s)** — OK, 47 pills. No one's going to do that.
+- **[03:29](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=209s)** — And if we look at a potassium deficiency, it's often missed.
+- **[03:32](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=212s)** — It's omitted because most of the potassium is inside the cell, like 98 percent.
+- **[03:39](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=219s)** — So you can't accurately determine if you have a low potassium situation just by the blood,
+- **[03:44](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=224s)** — because most of the potassium is inside the cell.
+- **[03:47](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=227s)** — You would have to do a different type of test called an intracellular potassium test.
+- **[03:51](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=231s)** — Not to mention the symptoms of a potassium deficiency are sometimes very vague, especially in the beginning.
+- **[03:58](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=238s)** — You might have a little bit of weakness in your diaphragm that affects your breathing a little bit.
+- **[04:02](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=242s)** — It's hard to breathe. You might feel a little fatigue.
+- **[04:06](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=246s)** — You might have heart palpitations.
+- **[04:09](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=249s)** — But these are all just early signs of a potassium deficiency.
+- **[04:13](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=253s)** — But eventually, as that deficiency becomes worse, you can develop high blood pressure.
+- **[04:18](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=258s)** — You can actually have an increased risk of stroke. You can get fluid retention.
+- **[04:23](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=263s)** — You can even get loss of bone and kidney stones.
+- **[04:26](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=266s)** — Because potassium helps keep calcium out of the arteries and out of the urine.
+- **[04:34](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=274s)** — Because sometimes when people get their urine tested, they have high levels of calcium in their urine,
+- **[04:38](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=278s)** — which is kind of an environment to form a kidney stone.
+- **[04:43](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=283s)** — As you can see, potassium is really, really important and it can create a lot of problems.
+- **[04:47](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=287s)** — Now, there's some interesting reasons why people are deficient that go beyond just not consuming enough greens.
+- **[04:55](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=295s)** — If you take penicillin, that can create a potassium deficiency.
+- **[04:59](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=299s)** — Or diuretics, or steroids, or go through chronic stress, or have higher levels of insulin with a high carb diet.
+- **[05:07](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=307s)** — Another interesting reason why people are deficient is even going on the ketogenic diet.
+- **[05:13](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=313s)** — So let's say, for example, you start the ketogenic diet, which is a low carb diet,
+- **[05:17](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=317s)** — and you're going into this already deficient in potassium and you take no potassium electrolytes or supplements, right?
+- **[05:23](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=323s)** — What happens is potassium helps you store glycogen.
+- **[05:28](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=328s)** — That's the stuff in your liver and your muscles, stored sugar.
+- **[05:31](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=331s)** — So as you use that up, what comes with that is a lot of water release and a loss of potassium as well.
+- **[05:40](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=340s)** — So if you don't take potassium when you start the ketogenic diet, you may end up with a potassium deficiency from that reason.
+- **[05:48](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=348s)** — But also you have, if you're fasting for like three or four days, right?
+- **[05:52](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=352s)** — And you don't take supplements, especially electrolytes like potassium, trace minerals or B vitamins,
+- **[05:58](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=358s)** — and you're doing this prolonged fast, you can start having problems from that.
+- **[06:02](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=362s)** — Not to mention, let's say you fasted for three or four or five days and then you eat too much too quickly.
+- **[06:10](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=370s)** — And then you also ate too many carbohydrates. That's called refeeding syndrome, which is a severe potassium deficiency.
+- **[06:16](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=376s)** — Now, I'm not going to get into the details, but it can create a sudden shift of potassium from your blood right into the cell.
+- **[06:22](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=382s)** — And you can end up with a serious low potassium problem, which could be dangerous.
+- **[06:27](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=387s)** — Did you realize that the average person in the U.S. consumes like 60 percent of their calories from ultra processed foods where they strip the nutrients out?
+- **[06:38](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=398s)** — I mean, let's just take Doritos, for example. I used to love Doritos.
+- **[06:42](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=402s)** — I would consume huge bags of Doritos in college.
+- **[06:46](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=406s)** — I mean, just massive amounts. And the next morning I would end up with all sorts of fluid retention in my fingers and my feet.
+- **[06:53](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=413s)** — And at the time I had no information about health. I was the worst.
+- **[06:58](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=418s)** — So back then, I think they put 11 ingredients in these Doritos.
+- **[07:02](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=422s)** — And now it's, I think, up to 30 ingredients, different flavors that just make it taste like you're dipping a taco with hot wings
+- **[07:12](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=432s)** — into ranch dressing. And so is there a lot of potassium in Doritos?
+- **[07:18](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=438s)** — No, there's a lot of sodium in all these fast food restaurants.
+- **[07:21](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=441s)** — So it gives you this flavoring, which is kind of addicting.
+- **[07:24](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=444s)** — So you eat too much of it and then you end up with a potassium deficiency.
+- **[07:28](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=448s)** — So all these fast food restaurants, as you see them as you're driving down the street, are just pumping out empty calories filled with a lot of sodium, very little nutrients, if anything.
+- **[07:40](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=460s)** — Practically zero potassium. And you can see it too.
+- **[07:43](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=463s)** — If you watch people coming out of these these restaurants and look at their eyes, it's all swollen around the eyes.
+- **[07:50](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=470s)** — They don't look healthy. They're also going to lose the power of their cellular batteries.
+- **[07:56](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=476s)** — So they're going to be walking around tired.
+- **[07:58](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=478s)** — And each one of those symptoms will then probably be addressed by a separate drug.
+- **[08:01](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=481s)** — So they're on high blood pressure medication. They're on a blood thinner.
+- **[08:04](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=484s)** — They're probably taking high energy drinks and of course, a diuretic for the edema and the high blood pressure, which causes further potassium deficiencies.
+- **[08:13](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=493s)** — I challenge you to do this experiment with your own body.
+- **[08:16](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=496s)** — Start consuming a lot of high potassium foods, a lot of leafy greens, just for a week.
+- **[08:23](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=503s)** — And if you don't like greens, you can make shakes.
+- **[08:25](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=505s)** — Blend kale with blueberries. There's a lot of different recipes.
+- **[08:29](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=509s)** — But start to increase more potassium rich foods.
+- **[08:33](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=513s)** — And just notice how many of these problems start disappearing.
+- **[08:37](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=517s)** — And if you wanted a really good demo on what this potassium requirement looks like in actual food, I did a video on that.
+- **[08:45](https://www.youtube.com/watch?v=M5ADM_V3bJY&t=525s)** — So check that out. I put it up right here.

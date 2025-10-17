@@ -1,0 +1,350 @@
+# How to Look Younger
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=MTpnF4V8stA](https://www.youtube.com/watch?v=MTpnF4V8stA)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=MTpnF4V8stA&t=0s)** — Not only did he fast for five days, but he ran five complete marathons. But not only that,
+- **[00:05](https://www.youtube.com/watch?v=MTpnF4V8stA&t=5s)** — he was a type 1 diabetic. I brought him on today to talk to him on how the hell he did it and how
+- **[00:11](https://www.youtube.com/watch?v=MTpnF4V8stA&t=11s)** — he survived. I would argue it's more difficult to get into ketosis as a type 1 because we have to
+- **[00:15](https://www.youtube.com/watch?v=MTpnF4V8stA&t=15s)** — inject insulin. A fat burning body has to have low insulin levels in order to release the fat.
+- **[00:21](https://www.youtube.com/watch?v=MTpnF4V8stA&t=21s)** — Do they ever advise to go five days without any food?
+- **[00:26](https://www.youtube.com/watch?v=MTpnF4V8stA&t=26s)** — I think you know the answer to that.
+- **[00:29](https://www.youtube.com/watch?v=MTpnF4V8stA&t=29s)** — So I have a fascinating interview today. I mean, this is going to be a bizarre interview because
+- **[00:34](https://www.youtube.com/watch?v=MTpnF4V8stA&t=34s)** — here's a person, a doctor, Dr. Ian Lake, who did some wild, wild, crazy things that
+- **[00:42](https://www.youtube.com/watch?v=MTpnF4V8stA&t=42s)** — he probably shouldn't even have survived this. But what he did,
+- **[00:47](https://www.youtube.com/watch?v=MTpnF4V8stA&t=47s)** — not only did he fast for five days, but he ran five almost complete marathons,
+- **[00:52](https://www.youtube.com/watch?v=MTpnF4V8stA&t=52s)** — 100 miles in five days. But not only that, he was a type 1 diabetic. So I brought him on today
+- **[00:59](https://www.youtube.com/watch?v=MTpnF4V8stA&t=59s)** — to talk to him on how the hell he did it and how he survived. Welcome, Ian. Thanks for coming
+- **[01:04](https://www.youtube.com/watch?v=MTpnF4V8stA&t=64s)** — on. Hello. Thank you. Nice to meet you. Nice meeting you. So first of all, you're a medical
+- **[01:10](https://www.youtube.com/watch?v=MTpnF4V8stA&t=70s)** — doctor. You're a type 1 diabetic. If we take a look at like the main consensus of the
+- **[01:16](https://www.youtube.com/watch?v=MTpnF4V8stA&t=76s)** — medical community with type 1, do they ever advise to go five days without any food?
+- **[01:24](https://www.youtube.com/watch?v=MTpnF4V8stA&t=84s)** — I think you know the answer to that. It's very difficult to persuade anyone to ask us to
+- **[01:31](https://www.youtube.com/watch?v=MTpnF4V8stA&t=91s)** — fast and skip one meal. So I was trying to work out a workaround for how we can convince
+- **[01:38](https://www.youtube.com/watch?v=MTpnF4V8stA&t=98s)** — people that one meal skipping would be safe. So this was an extreme version of skipping a
+- **[01:43](https://www.youtube.com/watch?v=MTpnF4V8stA&t=103s)** — meal, really. You know, to prove this point, you went to the extreme and you did this with
+- **[01:50](https://www.youtube.com/watch?v=MTpnF4V8stA&t=110s)** — how many people? Eight people. Eight people did this. So you basically did a combination of
+- **[01:57](https://www.youtube.com/watch?v=MTpnF4V8stA&t=117s)** — a few things that were very difficult to do on their own. Let's first talk about
+- **[02:02](https://www.youtube.com/watch?v=MTpnF4V8stA&t=122s)** — how many calories you actually burned within five days. Was it roughly about what, 20,000
+- **[02:07](https://www.youtube.com/watch?v=MTpnF4V8stA&t=127s)** — calories? Yeah, it was roughly 20,000 calories. So we worked out how many calories we'd need
+- **[02:13](https://www.youtube.com/watch?v=MTpnF4V8stA&t=133s)** — if you believe in the glycogen storage depletion idea to exhaust our glycogen
+- **[02:19](https://www.youtube.com/watch?v=MTpnF4V8stA&t=139s)** — storage tenfold to make absolutely sure we were in ketosis. So we worked out about 20,000 calories
+- **[02:25](https://www.youtube.com/watch?v=MTpnF4V8stA&t=145s)** — would be required. I think we used a little bit more than that from memory, but we didn't
+- **[02:29](https://www.youtube.com/watch?v=MTpnF4V8stA&t=149s)** — actually physically record it. The other thing we wanted to do really was to show how safe
+- **[02:40](https://www.youtube.com/watch?v=MTpnF4V8stA&t=160s)** — the nutritional ketosis really is. So we wanted to put ourselves into very deep ketosis. So
+- **[02:44](https://www.youtube.com/watch?v=MTpnF4V8stA&t=164s)** — that was the rationale for doing this. Okay. So just to back up on... it's just for those
+- **[02:50](https://www.youtube.com/watch?v=MTpnF4V8stA&t=170s)** — people that don't know what the word glycogen is. You depleted your glycogen. That's just the
+- **[02:55](https://www.youtube.com/watch?v=MTpnF4V8stA&t=175s)** — stored sugar in your liver, right? So when you exercise, you're going to use that as
+- **[03:00](https://www.youtube.com/watch?v=MTpnF4V8stA&t=180s)** — fuel. And then after that's gone, you're going to tap into your fat reserves, right?
+- **[03:04](https://www.youtube.com/watch?v=MTpnF4V8stA&t=184s)** — Exactly. Yeah. So typically, first let's start with a diabetic. What is the difference between
+- **[03:12](https://www.youtube.com/watch?v=MTpnF4V8stA&t=192s)** — a type one and a type two? Someone with type one diabetes cannot produce their own insulin
+- **[03:17](https://www.youtube.com/watch?v=MTpnF4V8stA&t=197s)** — in enough volume to maintain blood sugar. Because one of the key features of insulin,
+- **[03:22](https://www.youtube.com/watch?v=MTpnF4V8stA&t=202s)** — functions of insulin is to reduce blood sugar and keep blood sugar at an even rate.
+- **[03:29](https://www.youtube.com/watch?v=MTpnF4V8stA&t=209s)** — And someone with type two diabetes has more than enough insulin. In fact, most people
+- **[03:34](https://www.youtube.com/watch?v=MTpnF4V8stA&t=214s)** — type two diabetes have too much insulin. And theirs is due to an over fueling issue such
+- **[03:39](https://www.youtube.com/watch?v=MTpnF4V8stA&t=219s)** — that their body cannot handle the amount of fuel that they're putting into their bodies,
+- **[03:44](https://www.youtube.com/watch?v=MTpnF4V8stA&t=224s)** — mostly carbohydrates. So there's a big difference between the two conditions.
+- **[03:48](https://www.youtube.com/watch?v=MTpnF4V8stA&t=228s)** — Type ones, we need to inject insulin because we don't produce any. And in type twos, they
+- **[03:53](https://www.youtube.com/watch?v=MTpnF4V8stA&t=233s)** — need to adopt a lifestyle strategy that naturally reduces the amount of insulin they're
+- **[03:58](https://www.youtube.com/watch?v=MTpnF4V8stA&t=238s)** — producing. So they're not at all comparable conditions. So if insulin lowers blood glucose
+- **[04:04](https://www.youtube.com/watch?v=MTpnF4V8stA&t=244s)** — and a type two has high insulin, shouldn't they have low blood glucose? They become insulin
+- **[04:11](https://www.youtube.com/watch?v=MTpnF4V8stA&t=251s)** — resistant. This is the problem. Now people with type two diabetes, various ideas on it,
+- **[04:17](https://www.youtube.com/watch?v=MTpnF4V8stA&t=257s)** — their fat cells sort of stop the body sort of taking on more fat and they become
+- **[04:22](https://www.youtube.com/watch?v=MTpnF4V8stA&t=262s)** — resistant to the amount of insulin they've got. Because as well as lowering blood sugar,
+- **[04:26](https://www.youtube.com/watch?v=MTpnF4V8stA&t=266s)** — insulin is a hormone that stimulates fat deposition. So it's a fat storage hormone,
+- **[04:33](https://www.youtube.com/watch?v=MTpnF4V8stA&t=273s)** — as well as a glucose lowering hormone. And the two things work together. So in order to lower
+- **[04:38](https://www.youtube.com/watch?v=MTpnF4V8stA&t=278s)** — blood sugar, you either exercise or you put it into your liver initially, and then into your
+- **[04:44](https://www.youtube.com/watch?v=MTpnF4V8stA&t=284s)** — adipose tissue or fat tissues as fat. So we think of insulin as a glucose lowering hormone
+- **[04:50](https://www.youtube.com/watch?v=MTpnF4V8stA&t=290s)** — and a fat storage hormone primarily. Okay, so when someone is a type one, they don't have
+- **[04:56](https://www.youtube.com/watch?v=MTpnF4V8stA&t=296s)** — insulin to regulate blood glucose. So what's going to happen when they start exercising and
+- **[05:02](https://www.youtube.com/watch?v=MTpnF4V8stA&t=302s)** — not eating? They don't have fuel. Obviously they have to cap into their fat reserves, right?
+- **[05:10](https://www.youtube.com/watch?v=MTpnF4V8stA&t=310s)** — And talk a little bit about that as well as a really key issue, which is
+- **[05:18](https://www.youtube.com/watch?v=MTpnF4V8stA&t=318s)** — is adapting to running on fat or ketones. Explain that process.
+- **[05:24](https://www.youtube.com/watch?v=MTpnF4V8stA&t=324s)** — Our body can multi fuel. So we can use sugars, and we can use fats for our fuel. And of course,
+- **[05:32](https://www.youtube.com/watch?v=MTpnF4V8stA&t=332s)** — fats will break down into ketone bodies and we can use ketone bodies as fuel as well.
+- **[05:38](https://www.youtube.com/watch?v=MTpnF4V8stA&t=338s)** — So in the ideal situation, our bodies can flick between whatever fuel they need for
+- **[05:43](https://www.youtube.com/watch?v=MTpnF4V8stA&t=343s)** — the requirements at the time. So whether you have type one diabetes or not, if you're
+- **[05:49](https://www.youtube.com/watch?v=MTpnF4V8stA&t=349s)** — performing exercise as like a sprint without any oxygen, you will have to use glucose
+- **[05:54](https://www.youtube.com/watch?v=MTpnF4V8stA&t=354s)** — for your energy source. But if you're doing a more aerobic or more relaxed
+- **[06:01](https://www.youtube.com/watch?v=MTpnF4V8stA&t=361s)** — amount of physical activity, you're burning oxygen and you can choose really whether you're
+- **[06:06](https://www.youtube.com/watch?v=MTpnF4V8stA&t=366s)** — using glucose or fat as your fuel. However, you're limited a little bit as to how you can
+- **[06:14](https://www.youtube.com/watch?v=MTpnF4V8stA&t=374s)** — because if you have too much insulin on board, you're blocking fat burning. So
+- **[06:19](https://www.youtube.com/watch?v=MTpnF4V8stA&t=379s)** — fat burning is impossible if you've got too much insulin on board.
+- **[06:23](https://www.youtube.com/watch?v=MTpnF4V8stA&t=383s)** — Now, people do burn fat when they are exercising. And there's this fat burning zone,
+- **[06:29](https://www.youtube.com/watch?v=MTpnF4V8stA&t=389s)** — which is otherwise known as zone two, because there's a hormone that called hormone
+- **[06:34](https://www.youtube.com/watch?v=MTpnF4V8stA&t=394s)** — sensitive lipase, which is which enables fat to be burned. And that is also stimulated by
+- **[06:43](https://www.youtube.com/watch?v=MTpnF4V8stA&t=403s)** — lowering insulin or adrenaline cortisol growth hormone, things like that. So stress hormones
+- **[06:48](https://www.youtube.com/watch?v=MTpnF4V8stA&t=408s)** — will release that. But if you have too much insulin, it will override those hormones and
+- **[06:53](https://www.youtube.com/watch?v=MTpnF4V8stA&t=413s)** — block fat burning. So then you become entirely dependent on glucose. So most people with
+- **[06:58](https://www.youtube.com/watch?v=MTpnF4V8stA&t=418s)** — type one diabetes will be dependent on glucose because they're not encouraged to burn fat.
+- **[07:04](https://www.youtube.com/watch?v=MTpnF4V8stA&t=424s)** — So we tend to have too much insulin on board. So our body is a multi fuel. We can flick
+- **[07:09](https://www.youtube.com/watch?v=MTpnF4V8stA&t=429s)** — between fuels as we need them. And if we're fat adapted, all that means is that your
+- **[07:17](https://www.youtube.com/watch?v=MTpnF4V8stA&t=437s)** — fueling choice for your just your food will be low carbohydrate. So low carbohydrates
+- **[07:24](https://www.youtube.com/watch?v=MTpnF4V8stA&t=444s)** — require less insulin to either be injected or for your own body to produce insulin.
+- **[07:31](https://www.youtube.com/watch?v=MTpnF4V8stA&t=451s)** — Because as type ones, we're exactly the same as people with no diabetes and our
+- **[07:35](https://www.youtube.com/watch?v=MTpnF4V8stA&t=455s)** — requirements, except we just know how much insulin and non diabetic body would need for
+- **[07:40](https://www.youtube.com/watch?v=MTpnF4V8stA&t=460s)** — the same for the same requirements. So a fat burning body has to have low insulin levels
+- **[07:48](https://www.youtube.com/watch?v=MTpnF4V8stA&t=468s)** — in order to release the fat. Am I still with me? Yeah, yeah. So basically, in order to
+- **[07:56](https://www.youtube.com/watch?v=MTpnF4V8stA&t=476s)** — get into the fat burning, we must lower insulin. That's really the key factor, right?
+- **[08:01](https://www.youtube.com/watch?v=MTpnF4V8stA&t=481s)** — So then then we can free up the fat burning and when we're adapted and takes about two to
+- **[08:07](https://www.youtube.com/watch?v=MTpnF4V8stA&t=487s)** — three weeks to fully adapt, some people would say it takes even longer. And then your body
+- **[08:13](https://www.youtube.com/watch?v=MTpnF4V8stA&t=493s)** — will naturally burn fat quite happily produce ketone bodies and have a very low requirement
+- **[08:18](https://www.youtube.com/watch?v=MTpnF4V8stA&t=498s)** — for sugar. The important thing about glucose or sugar is that we don't need to eat sugar
+- **[08:24](https://www.youtube.com/watch?v=MTpnF4V8stA&t=504s)** — in order to produce it. Our body will produce more than enough for our requirements.
+- **[08:28](https://www.youtube.com/watch?v=MTpnF4V8stA&t=508s)** — And an obvious example of that is those poor people that get pulled out of disaster zones,
+- **[08:33](https://www.youtube.com/watch?v=MTpnF4V8stA&t=513s)** — like earthquake zones, and they haven't eaten for six or seven days, but they haven't expired
+- **[08:38](https://www.youtube.com/watch?v=MTpnF4V8stA&t=518s)** — because they are producing enough energy for their body requirements, some of which will be
+- **[08:44](https://www.youtube.com/watch?v=MTpnF4V8stA&t=524s)** — sugar. So we respect the fact that our body is multi fuel. And we wanted to show in this
+- **[08:50](https://www.youtube.com/watch?v=MTpnF4V8stA&t=530s)** — 100 mile run that we can safely use ketone bodies and fat as fuel and have no requirement for
+- **[08:59](https://www.youtube.com/watch?v=MTpnF4V8stA&t=539s)** — insulin. Sorry, no requirement for sugar at all. Incredible. Okay, so there are a lot of people
+- **[09:06](https://www.youtube.com/watch?v=MTpnF4V8stA&t=546s)** — that are trying to lose more weight. They're plateaued. I've been telling people
+- **[09:11](https://www.youtube.com/watch?v=MTpnF4V8stA&t=551s)** — the most you can lose for a week is two pounds of fat. That's if you're healthy.
+- **[09:17](https://www.youtube.com/watch?v=MTpnF4V8stA&t=557s)** — But this experiment that you did, if I'm not mistaken, correct me if I'm wrong, but I think
+- **[09:23](https://www.youtube.com/watch?v=MTpnF4V8stA&t=563s)** — on average, all of you lost about what almost almost seven pounds of fat in five days, right?
+- **[09:30](https://www.youtube.com/watch?v=MTpnF4V8stA&t=570s)** — Yes. Okay. So to get into this keto adaptation, obviously, you're going to have to either
+- **[09:38](https://www.youtube.com/watch?v=MTpnF4V8stA&t=578s)** — lower your carbs. And of course, fasting is lowering your carbs. Yes. And, and then on top
+- **[09:45](https://www.youtube.com/watch?v=MTpnF4V8stA&t=585s)** — of everything else you're exercising. So if someone were even to think about doing fast,
+- **[09:52](https://www.youtube.com/watch?v=MTpnF4V8stA&t=592s)** — do you have to work up to it? I mean, you're not going to just start running and not eating
+- **[09:58](https://www.youtube.com/watch?v=MTpnF4V8stA&t=598s)** — right away. I mean, you're going to have to you said it takes weeks to get into the keto
+- **[10:03](https://www.youtube.com/watch?v=MTpnF4V8stA&t=603s)** — adaptation or fat adaptation. Tell us a little bit about how someone can work on getting
+- **[10:10](https://www.youtube.com/watch?v=MTpnF4V8stA&t=610s)** — themselves into the keto adaptation state. Is it just a matter of low carbs? Or do you have
+- **[10:15](https://www.youtube.com/watch?v=MTpnF4V8stA&t=615s)** — maybe combine fasting at the same time? Both are very useful to do. The only way you're
+- **[10:21](https://www.youtube.com/watch?v=MTpnF4V8stA&t=621s)** — going to produce ketones being ketosis is to burn fat. And ketones are a natural product
+- **[10:28](https://www.youtube.com/watch?v=MTpnF4V8stA&t=628s)** — of fat burning. So in order to fat burn, you have to lower your insulin. In order to lower
+- **[10:32](https://www.youtube.com/watch?v=MTpnF4V8stA&t=632s)** — your insulin, you have to reduce the main fuel that stimulates insulin, namely carbohydrates.
+- **[10:38](https://www.youtube.com/watch?v=MTpnF4V8stA&t=638s)** — So carbohydrates are the prime driver in our diet for insulin production. So cutting down
+- **[10:44](https://www.youtube.com/watch?v=MTpnF4V8stA&t=644s)** — carbohydrates is very important and severely restricting your carbohydrates to what we call
+- **[10:49](https://www.youtube.com/watch?v=MTpnF4V8stA&t=649s)** — the ketogenic zone. So your body has then to burn fat, you have to force your body into fat
+- **[10:54](https://www.youtube.com/watch?v=MTpnF4V8stA&t=654s)** — burning. That's around about 30 to 50 grams of carbs a day, which is about a tenth of
+- **[10:59](https://www.youtube.com/watch?v=MTpnF4V8stA&t=659s)** — what most people would naturally eat. It's not difficult to do, but you have to sort of
+- **[11:07](https://www.youtube.com/watch?v=MTpnF4V8stA&t=667s)** — you have to concentrate on it, especially if you're you like sugar or you're a little
+- **[11:12](https://www.youtube.com/watch?v=MTpnF4V8stA&t=672s)** — addicted to sugar, it takes a little bit more willpower. Don't forget when your insulin levels
+- **[11:17](https://www.youtube.com/watch?v=MTpnF4V8stA&t=677s)** — drop naturally as a result of not eating carbohydrates, you will actually urinate a
+- **[11:24](https://www.youtube.com/watch?v=MTpnF4V8stA&t=684s)** — little bit more because your insulin will enable your body to excrete salt or sodium.
+- **[11:29](https://www.youtube.com/watch?v=MTpnF4V8stA&t=689s)** — And with the salt goes the water. So it's important to replace the fluids and just drink
+- **[11:34](https://www.youtube.com/watch?v=MTpnF4V8stA&t=694s)** — more. Some people say constipation is an issue. Fluids are very, very good for that. And it
+- **[11:39](https://www.youtube.com/watch?v=MTpnF4V8stA&t=699s)** — doesn't last, it only lasts a few days if at all. And the other thing is you may need to think
+- **[11:44](https://www.youtube.com/watch?v=MTpnF4V8stA&t=704s)** — about replacing some of your salts, magnesium, sodium table salt or whatever, because of this
+- **[11:50](https://www.youtube.com/watch?v=MTpnF4V8stA&t=710s)** — salt excretion caused by the lower levels of insulin. And after that, it's pretty
+- **[11:55](https://www.youtube.com/watch?v=MTpnF4V8stA&t=715s)** — straightforward. You go into ketosis within days. Type 1, we can go into ketosis after
+- **[12:02](https://www.youtube.com/watch?v=MTpnF4V8stA&t=722s)** — the first meal because we have to inject our insulin so we don't have to wait for it to
+- **[12:05](https://www.youtube.com/watch?v=MTpnF4V8stA&t=725s)** — in some ways. And fasting is useful because it makes you much more insulin sensitive.
+- **[12:14](https://www.youtube.com/watch?v=MTpnF4V8stA&t=734s)** — So if you're fasting, you become more sensitive to the insulin you've got. So you'll naturally
+- **[12:19](https://www.youtube.com/watch?v=MTpnF4V8stA&t=739s)** — be more able to get into ketosis. And that's it really. One of the big breakthroughs I had,
+- **[12:25](https://www.youtube.com/watch?v=MTpnF4V8stA&t=745s)** — so when I learned about the ketogenic diet, just completely by accident, thank goodness
+- **[12:30](https://www.youtube.com/watch?v=MTpnF4V8stA&t=750s)** — through the internet, you know, I'm a medical professional, I've never heard of it in the
+- **[12:33](https://www.youtube.com/watch?v=MTpnF4V8stA&t=753s)** — materials that we're given. I started doing a half marathon a month, I thought that was good
+- **[12:40](https://www.youtube.com/watch?v=MTpnF4V8stA&t=760s)** — for me, because I'm not really an athlete in many ways. I'm just an enthusiastic jogger.
+- **[12:44](https://www.youtube.com/watch?v=MTpnF4V8stA&t=764s)** — And I thought, well, if I do a half marathon a month as a keto, that'd be a great
+- **[12:47](https://www.youtube.com/watch?v=MTpnF4V8stA&t=767s)** — experiment. So the first two, I actually fueled up with protein, bacon, eggs or whatever.
+- **[12:53](https://www.youtube.com/watch?v=MTpnF4V8stA&t=773s)** — And I thought, well, you've got to have some energy before you start running. You know,
+- **[12:57](https://www.youtube.com/watch?v=MTpnF4V8stA&t=777s)** — that's what we're all was told. You've got to carb up, you know, you've got to have your
+- **[13:00](https://www.youtube.com/watch?v=MTpnF4V8stA&t=780s)** — fat mass and your bananas or whatever, if you're carving up. So I thought, well,
+- **[13:03](https://www.youtube.com/watch?v=MTpnF4V8stA&t=783s)** — I'll have that. And then I got involved in the bulletproof coffees, which are a bit of a
+- **[13:06](https://www.youtube.com/watch?v=MTpnF4V8stA&t=786s)** — fad at the time in the sense of butter and coconut oil in your coffee. And then on the
+- **[13:12](https://www.youtube.com/watch?v=MTpnF4V8stA&t=792s)** — third one, finally, finally, you know, stupid me, I thought, well, why am I actually giving
+- **[13:18](https://www.youtube.com/watch?v=MTpnF4V8stA&t=798s)** — myself energy before I'm running, filling my stomach up, and then diverting blood flow away
+- **[13:23](https://www.youtube.com/watch?v=MTpnF4V8stA&t=803s)** — from my muscles, if you like, when I'd worked out that with my body fat mass, I had 85,000
+- **[13:31](https://www.youtube.com/watch?v=MTpnF4V8stA&t=811s)** — calories of fat, and I have a body mass index of 23. Plus I have 85,000 calories, I have
+- **[13:39](https://www.youtube.com/watch?v=MTpnF4V8stA&t=819s)** — 17% fat mass. So it worked out about 85,000, I think. So that's our average sort of fat mass.
+- **[13:46](https://www.youtube.com/watch?v=MTpnF4V8stA&t=826s)** — And so I thought, well, why can't I just burn the fat that I've got? Well, I take it in,
+- **[13:50](https://www.youtube.com/watch?v=MTpnF4V8stA&t=830s)** — if you see what I mean. So it took a while to get out of the habit of doing physical activity for
+- **[13:56](https://www.youtube.com/watch?v=MTpnF4V8stA&t=836s)** — doing sort of fueling up for physical activity. I thought, well, I've got the fuel,
+- **[14:01](https://www.youtube.com/watch?v=MTpnF4V8stA&t=841s)** — all I'm doing is just burning it at probably, you know, my slow jogging speed, twice the rate
+- **[14:06](https://www.youtube.com/watch?v=MTpnF4V8stA&t=846s)** — that I'm burning it when I'm walking. So it wasn't a big deal to think, well, you can fast,
+- **[14:11](https://www.youtube.com/watch?v=MTpnF4V8stA&t=851s)** — actually, when you're doing physical activity. And of course, that was wonderful from the
+- **[14:20](https://www.youtube.com/watch?v=MTpnF4V8stA&t=860s)** — worry about injecting insulin when you're having carbs. So that really freaked things up.
+- **[14:27](https://www.youtube.com/watch?v=MTpnF4V8stA&t=867s)** — So on top of that, I thought, well, let's just extend the half marathon and try to just sort
+- **[14:32](https://www.youtube.com/watch?v=MTpnF4V8stA&t=872s)** — of nudge the envelope to put beyond doubt this concern that type ones need insulin,
+- **[14:39](https://www.youtube.com/watch?v=MTpnF4V8stA&t=879s)** — need carbs, carbohydrates, if they're taking insulin, and put beyond doubt the fact that if
+- **[14:43](https://www.youtube.com/watch?v=MTpnF4V8stA&t=883s)** — you're in nutritional ketosis, it's not a risk for what's called diabetic ketoacidosis,
+- **[14:49](https://www.youtube.com/watch?v=MTpnF4V8stA&t=889s)** — which is a very severe complication of type one diabetes. And the two aren't the same thing,
+- **[14:54](https://www.youtube.com/watch?v=MTpnF4V8stA&t=894s)** — but they're often confused by clinicians as nutritional ketosis will lead to diabetic
+- **[15:01](https://www.youtube.com/watch?v=MTpnF4V8stA&t=901s)** — ketoacidosis. Oh, okay. So let's talk about this because this is a complex topic. We'll
+- **[15:05](https://www.youtube.com/watch?v=MTpnF4V8stA&t=905s)** — simplify it. Tell us in simple terms to a fifth grader, what is ketoacidosis?
+- **[15:12](https://www.youtube.com/watch?v=MTpnF4V8stA&t=912s)** — Okay. So if your body is not producing insulin at all, you cannot then
+- **[15:21](https://www.youtube.com/watch?v=MTpnF4V8stA&t=921s)** — put glucose anywhere. So any food that you eat or any sugar that your body is producing
+- **[15:28](https://www.youtube.com/watch?v=MTpnF4V8stA&t=928s)** — naturally cannot be put into cells effectively. So you can't get rid of sugar in the blood.
+- **[15:35](https://www.youtube.com/watch?v=MTpnF4V8stA&t=935s)** — So if the sugar can't be removed from the blood into the cells, the cells are relatively
+- **[15:41](https://www.youtube.com/watch?v=MTpnF4V8stA&t=941s)** — starved of energy. So then because insulin is not existent, so this is a type one problem,
+- **[15:46](https://www.youtube.com/watch?v=MTpnF4V8stA&t=946s)** — it's purely a type one problem. If insulin is not existent, then you cannot store fat,
+- **[15:52](https://www.youtube.com/watch?v=MTpnF4V8stA&t=952s)** — you have to burn fat. So not only do you build up a blood glucose, but you get a runaway
+- **[15:57](https://www.youtube.com/watch?v=MTpnF4V8stA&t=957s)** — fat burning. Now ketones normally feed back all of this process and stop themselves rising
+- **[16:05](https://www.youtube.com/watch?v=MTpnF4V8stA&t=965s)** — all the time. And they make the body produce more insulin, but if you've got no insulin,
+- **[16:10](https://www.youtube.com/watch?v=MTpnF4V8stA&t=970s)** — you can't stop that process. So you get a combination of high blood sugar, high ketones,
+- **[16:15](https://www.youtube.com/watch?v=MTpnF4V8stA&t=975s)** — which the body tries to vent by getting you to breathe them out or pee them out. And also you
+- **[16:20](https://www.youtube.com/watch?v=MTpnF4V8stA&t=980s)** — pass a lot of urine because your sugars in your kidneys is so concentrated, it drags the
+- **[16:26](https://www.youtube.com/watch?v=MTpnF4V8stA&t=986s)** — fluid out with it. And that makes you thirsty. So that becomes a medical emergency.
+- **[16:33](https://www.youtube.com/watch?v=MTpnF4V8stA&t=993s)** — Even people like myself who are in nutritional ketosis are at risk because sometimes if you
+- **[16:38](https://www.youtube.com/watch?v=MTpnF4V8stA&t=998s)** — get septicemia or a very severe infection, it means you need a huge amount more insulin.
+- **[16:43](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1003s)** — And a lot of us are a little bit resistant to taking that. So for example, when I had COVID,
+- **[16:48](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1008s)** — which was only like a cold for me, luckily, my insulin requirements went up from 20 units
+- **[16:54](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1014s)** — a day to 60 units a day. So a person with no diabetes would have the same insulin
+- **[17:01](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1021s)** — requirement, but they would not go into ketoacidosis because they got natural insulin
+- **[17:06](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1026s)** — on board to protect themselves. We have to inject it. So it's totally different to
+- **[17:10](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1030s)** — nutritional ketosis, which is just a lowering of the insulin that you inject or your natural
+- **[17:16](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1036s)** — insulin. And it's just a regulated process. If you've got insulin in your body, it's
+- **[17:21](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1041s)** — sufficient. You will not go into diabetic ketoacidosis. So the risk of getting ketoacidosis
+- **[17:26](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1046s)** — really is if you're diabetic and you do forget to take your insulin. Yes. An average
+- **[17:33](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1053s)** — a healthy person starts a ketogenic diet and someone mentions, well, usually you're going
+- **[17:38](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1058s)** — to see this in the news. Oh yeah. You might develop ketoacidosis. That's pretty much a
+- **[17:43](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1063s)** — myth. Yes. 100%. It doesn't work with the science. Got it. Yeah, I know. I've seen that
+- **[17:53](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1073s)** — so many times. Now, as far as this adaptation into just keto adapted or fat adapted, you
+- **[18:02](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1082s)** — work with patients, I'm guessing you probably help them with their getting out of ketogenic
+- **[18:07](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1087s)** — diet. I'm guessing. Do you find that some people have a harder time fasting for a
+- **[18:13](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1093s)** — longer period of time than others, or is that dependent on insulin resistance and
+- **[18:16](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1096s)** — it's just a matter of time and doing it over a period of time where they can
+- **[18:20](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1100s)** — go longer and longer without eating? Or what's your experience on that? My personal
+- **[18:24](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1104s)** — experience of fasting was that it was quite difficult in the early stages. It's
+- **[18:28](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1108s)** — difficult getting through the first 24 hours because I think psychologically you're
+- **[18:33](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1113s)** — geared to have a hard time. You think you're going to have a hard time. And I think when
+- **[18:37](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1117s)** — your body suddenly gets this shock of not eating, it makes you hungry. But I think
+- **[18:44](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1124s)** — most of it is psychology. And certainly when I did my first fast, I was lying around in
+- **[18:50](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1130s)** — the afternoon. I started my fast in the morning thinking, oh, pull me. I'm hungry. I
+- **[18:58](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1138s)** — effect and it becomes normal. And from day two onwards with subsequent fasts,
+- **[19:03](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1143s)** — there's no hunger at all. And the choice to break the fast was just really you got to eat
+- **[19:09](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1149s)** — at some point, if you see what I mean. So subsequent fast became much easier to do.
+- **[19:16](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1156s)** — Because you were aware of the changes in your body. The trick was to dial down your insulin
+- **[19:21](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1161s)** — because you were not requiring as much insulin when you were fasting. So the trick was to
+- **[19:26](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1166s)** — insulin levels down to a safe level for you to not have hypose when you're exercising.
+- **[19:32](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1172s)** — But it was not difficult to do. Okay. And then what about... so then we put this layer
+- **[19:39](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1179s)** — on top of the fasting, this exercise. You know, people are... they have this idea that
+- **[19:46](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1186s)** — they have to eat, like you mentioned, they have to eat to get the energy to exercise. But
+- **[19:51](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1191s)** — once you're keto adapted after some weeks, you probably can then exercise and fast at the same
+- **[19:58](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1198s)** — time and get your fuel from fat. That's exactly what I do all the time. It's so much easier to
+- **[20:07](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1207s)** — manage physical activity when you're fasted. I mean, if you think about it, wild animals,
+- **[20:14](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1214s)** — you never see an eagle flying to hunt if it's not hungry. I mean, we tend as humans to go and get
+- **[20:23](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1223s)** — our food when we're hungry, because there's more of a desperation to go and get it.
+- **[20:27](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1227s)** — And then we will eat our food, satiate ourselves, and then we're just naturally
+- **[20:33](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1233s)** — lazy, aren't we, humans? So we wouldn't actually go out if we've got a cupboard full or if our
+- **[20:37](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1237s)** — tummies are full. So I don't think it's unusual to be exercising when you're fasting.
+- **[20:42](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1242s)** — And because you have such a store of fat in your body, it's 85,000 calories compared to say,
+- **[20:50](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1250s)** — 2000 calories of stored sugar, which is there more for some energy requirements.
+- **[20:58](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1258s)** — You don't need to worry about burning a couple of thousand calories of fat, which will be
+- **[21:04](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1264s)** — around 20 miles of walking or running. And you'll put that back on again when you get
+- **[21:10](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1270s)** — food source. So you're not talking of depleting your energy source to any significant amount.
+- **[21:17](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1277s)** — So I think that is the key to it. You just have to understand that nothing's going to
+- **[21:21](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1281s)** — happen in two or three days, five days of fasting. The reason we didn't go further than
+- **[21:26](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1286s)** — five days was because we were starting to worry then about, are we going to start breaking
+- **[21:31](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1291s)** — down protein? Because at some point, you're going to run out of your sugar stores and you're
+- **[21:39](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1299s)** — sugar that your body naturally needs to produce. So we wanted to restrict it to five days.
+- **[21:46](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1306s)** — So we were pretty sure we wouldn't be burning any protein because at some point, you're going
+- **[21:51](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1311s)** — to be burning your muscle mass or your protein stores. And we generally think that muscle mass
+- **[21:57](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1317s)** — is useful to have more of than less of. So we didn't want to get into the situation
+- **[22:02](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1322s)** — where we were criticized for starving ourselves because this wasn't starved. But it was sort
+- **[22:08](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1328s)** — of starvation because we weren't eating. But it wasn't what I would call serious starvation
+- **[22:12](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1332s)** — because we were controlling the fat burning and not encouraging protein degradation.
+- **[22:18](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1338s)** — We had some breath testing to show that we're in fat burning mode at our respiratory
+- **[22:23](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1343s)** — quotient test. And it showed that all of us were in fat burning mode all of the time.
+- **[22:27](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1347s)** — So that was quite good. And then you also tested your ketones. So typically, I know
+- **[22:33](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1353s)** — there's a couple different values. But the values that they use in the US would be probably
+- **[22:40](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1360s)** — a little more helpful. But if you're just doing a low carb diet, you're going to be
+- **[22:43](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1363s)** — within a certain range, like maybe 0.3 to maybe one to maybe two. And then you start fasting,
+- **[22:52](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1372s)** — you're going to be higher. If you had exercise, you're going to go higher. Can you just
+- **[22:55](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1375s)** — tell me roughly kind of how that works a little bit? Yeah. So 75% of people with type
+- **[23:00](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1380s)** — 1 diabetes are in the range 0.5 to 1.5. That's the blood ketones. That's pretty average.
+- **[23:08](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1388s)** — I would argue it's more difficult to get into ketosis as a type 1 because we have to inject
+- **[23:12](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1392s)** — insulin. And we tend to have to use more insulin because we put it into the skin and
+- **[23:16](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1396s)** — it doesn't act as naturally as it does in some of no diabetes. So that does tend to block
+- **[23:21](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1401s)** — a bit of fat burning. But we can get saved into ketosis. When we did the run, my ketones
+- **[23:28](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1408s)** — went up to six, five and a half, six or something like that for a couple of days.
+- **[23:34](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1414s)** — My other friend, John, the other type one who was running with me, he's went up to around
+- **[23:39](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1419s)** — about the same. We wanted to test ketones twice a day for five days. And we wanted every one
+- **[23:45](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1425s)** — of the eight participants to do the same because we wanted to show that you don't go
+- **[23:52](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1432s)** — into deep diabetic ketoacidosis if you're in nutritional ketosis. So when we pulled the
+- **[23:58](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1438s)** — graph of eight people twice a day for five days and just did a bar chart, you could not
+- **[24:05](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1445s)** — tell the type ones from the non type ones out of that group of eight. So we were confident
+- **[24:13](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1453s)** — that we were in the same nutritional ketosis state as our non diabetic peers.
+- **[24:19](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1459s)** — The other interesting thing that I heard or read in your website that as far as you would
+- **[24:25](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1465s)** — think that people would get extremely sore and really have to spend more time recovering.
+- **[24:33](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1473s)** — Wasn't there a point about there was not much soreness going on, which was very unusual?
+- **[24:40](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1480s)** — It was unusual. When we started, we were pretty confident that we'd be okay when we
+- **[24:45](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1485s)** — started. It was a bit tricky in the early stages, but not one of us had any injuries
+- **[24:50](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1490s)** — at all. None of us had recovery problems. We all managed every single day to complete our task.
+- **[24:58](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1498s)** — None of us had any aches or pains the next day, which was remarkable.
+- **[25:04](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1504s)** — Last year, about this time of year, I did a 150 mile run in a week. It was along the
+- **[25:09](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1509s)** — canal network of Britain, so it was flat. Equally, I was on a keto diet then. I wasn't
+- **[25:16](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1516s)** — equally, I had no injuries or no soreness at all. It seems to me that the anti-inflammatory
+- **[25:21](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1521s)** — effect of ketones is very powerful in sport. I've met lots of people. I've interviewed a
+- **[25:28](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1528s)** — professional rugby union player in the UK. He said when he went keto, he had type 1 diabetes.
+- **[25:36](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1536s)** — He had his best year as far as injuries went in the year after he started his diet.
+- **[25:41](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1541s)** — So there's something about keto which is anti-inflammatory and good for recovery.
+- **[25:47](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1547s)** — Fascinating. What's the longest you've ever... like I know,
+- **[25:52](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1552s)** — we're talking about 100 miles or 150 miles. What's the most you've ever ran
+- **[25:56](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1556s)** — in over a period of days? I guess in a row.
+- **[26:02](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1562s)** — Well, the longest distance I've ever run is 35 miles. That's the longest I've ever run.
+- **[26:08](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1568s)** — That's one day.
+- **[26:09](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1569s)** — One day. That was a run walk rather than the run, more like an ultra marathon type of thing.
+- **[26:14](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1574s)** — Mostly I just do 10K, 15K. I'm not a great fan of long distances in that sense.
+- **[26:23](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1583s)** — I'm not worried about doing 20 miles a day. It wouldn't worry me. But it takes a lot of
+- **[26:29](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1589s)** — time to keep practicing for that. So I'm a bit lazy in that sense.
+- **[26:32](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1592s)** — You're pretty a lean guy, right?
+- **[26:33](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1593s)** — Yes.
+- **[26:34](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1594s)** — So you still had how many calories of fat on your body with your lean body mass?
+- **[26:40](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1600s)** — Well, I had a normal body fat mass for my type and it was 85,000 calories.
+- **[26:46](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1606s)** — 85,000 calories and someone who doesn't have a weight problem.
+- **[26:50](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1610s)** — So that's plenty of extra energy to be able to do this activity.
+- **[26:56](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1616s)** — I think that's exactly it, isn't it? It's just getting the mindset right. And as I said,
+- **[26:59](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1619s)** — it took me quite a long time to realize that I can actually do physical activity without
+- **[27:06](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1626s)** — fueling it first. I could fuel it when I was doing it and not have to worry.
+- **[27:10](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1630s)** — And that is so freeing, especially anyone who has type 1 diabetes. You don't have to worry.
+- **[27:15](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1635s)** — So if someone came up to me and said, now, would you like to go for a run or would
+- **[27:19](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1639s)** — you like to go for a cycle ride? I'd say, yes, let's go. I wouldn't say, oh, my goodness,
+- **[27:23](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1643s)** — what am I doing with my insulin? I'd obviously check it and I'll carry sugar,
+- **[27:26](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1646s)** — glucose if I needed it. But I could go. I wouldn't need to prepare for it.
+- **[27:31](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1651s)** — And it's that spontaneity, certainly in type 1, that is so freeing for people.
+- **[27:36](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1656s)** — Wow. When people do marathons, I know they consume, I guess it's called,
+- **[27:41](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1661s)** — is it called goo or this gel? It's some type of starch or glucose. That creates a lot of
+- **[27:47](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1667s)** — digestive issues and a lot of side effects when they're running. I've heard anyway.
+- **[27:51](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1671s)** — I don't know if you've observed that. Certainly. I mean, before I went into the
+- **[27:57](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1677s)** — ketogenic lifestyle diet, I used carbs the same way as everyone else, because no one had told me.
+- **[28:03](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1683s)** — And obviously, the conventional way of managing diabetes with physical activity is to manage
+- **[28:09](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1689s)** — your insulin on board, which is the big problem. So if you've got too much insulin on board,
+- **[28:15](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1695s)** — which most of us have most of the time because of the way we inject it under our skin,
+- **[28:19](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1699s)** — not into a natural space, you're vulnerable to hypos. So the protocol for managing type 1 sports
+- **[28:27](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1707s)** — is to reduce your insulin even the night before and add carbohydrates to your fuelling
+- **[28:34](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1714s)** — regime. 60 grams of carbohydrates per hour is recommended. Imagine trying to eat that
+- **[28:40](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1720s)** — much when you're trying to do physical activity, because our stomachs really should be empty.
+- **[28:45](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1725s)** — My mum told me when I was eight that I shouldn't go swimming after a meal, because our bodies don't...
+- **[28:52](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1732s)** — we can't exercise as well when we've got fuel in our gut. Really, it needs to be in the
+- **[28:57](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1737s)** — right place. So it's so much easier. Yes, and you don't have that anymore. That's not an
+- **[29:03](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1743s)** — issue. If you do happen to go hypo, it's six grams of carbs or something. It's absolutely
+- **[29:09](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1749s)** — nothing. There's a lot of different versions of keto. I'm just curious what kind of
+- **[29:15](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1755s)** — diet you're in. I go from different ideas to different ideas. At the moment, I'm more
+- **[29:22](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1762s)** — carnivore than I have been for a while. I will eat green leafy vegetables and salads.
+- **[29:30](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1770s)** — I do eat fish and dairy. Nuts, I'm a little bit wary of because I think they cause insulin
+- **[29:35](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1775s)** — resistance. Some of the nut oils in me personally, and probably some of the oxalates
+- **[29:41](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1781s)** — joint pains. A little bit wary of that. I avoid all seed oils of any sort. And obviously,
+- **[29:50](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1790s)** — I don't eat sugar or anything like that. And I do take dairy. I find that milk and cream
+- **[29:57](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1797s)** — aren't very good, but cheese is okay. And for some reason, yoghurt seemed to be okay.
+- **[30:02](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1802s)** — So it's a mixed diet. At the moment, tending to carnivore, I can never make my mind up on
+- **[30:08](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1808s)** — protein. I'm still the jury's out for me on protein. I've been doing the Bernstein type of
+- **[30:14](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1814s)** — more protein than fat type of thing for a while. And then I felt that I don't know, I mean,
+- **[30:20](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1820s)** — I've gotten more fat than protein for now. But I always stick roughly within I'm 75 kilograms.
+- **[30:26](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1826s)** — And I last time I estimated the amount of protein over a week, it was 100 grams of
+- **[30:33](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1833s)** — per day. So 1.2 grams of protein per kilogram of ideal body weight. Most people would say 0.75
+- **[30:41](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1841s)** — to one. So it's on the higher side. But yeah, that's what I do. I find that some foods,
+- **[30:49](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1849s)** — certainly the leafy veg can be a little bit carby. And you have to be a little bit more
+- **[30:53](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1853s)** — careful with your blood sugar control. I do find that meat, fish, eggs are the easiest
+- **[31:00](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1860s)** — foods to use. There's no doubt about that. But I do eat a variety of foods as well.
+- **[31:10](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1870s)** — Alcohol, I've gone off it, strangely. I used to drink like red wine, Prosecco. I love beer,
+- **[31:16](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1876s)** — but I can't drink it anymore. I'll have probably two glasses if I'm out on a nice
+- **[31:20](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1880s)** — summer's day with friends or something. Because that's just what you do.
+- **[31:24](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1884s)** — Especially in the UK.
+- **[31:25](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1885s)** — Exactly. You have to live your life. Yeah, that's right. Sunny in the UK.
+- **[31:28](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1888s)** — And but alcohol, I find that it's just my body tells me I don't need it. But I have drunk it
+- **[31:35](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1895s)** — in the past and I will drink it. But it's not something that features heavily in my diet
+- **[31:40](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1900s)** — anymore. You used to more five, six years ago, probably. Yeah, me too. I can't tolerate
+- **[31:46](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1906s)** — any more than a six pack on a weekend. I can't tolerate any more than that. But no,
+- **[31:51](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1911s)** — I don't drink at all anymore. But wow, this has been fascinating. I think I want to send a
+- **[31:58](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1918s)** — lot of people to your website. I'm going to put your link down below. But thank you for coming
+- **[32:02](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1922s)** — on. And I really appreciate this. These insights on this crazy thing you did, which actually is
+- **[32:07](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1927s)** — not very crazy. You know, it goes against what's called what medical wisdom, which I don't
+- **[32:12](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1932s)** — even think is wisdom, right? It's just, again, there's certain fixed ideas that the
+- **[32:18](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1938s)** — medical profession has that end up, you know, not being 100% true. So this has been
+- **[32:23](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1943s)** — fascinating. Thank you so much. Thank you very much. Thank you.
+- **[32:30](https://www.youtube.com/watch?v=MTpnF4V8stA&t=1950s)** — Thank you.

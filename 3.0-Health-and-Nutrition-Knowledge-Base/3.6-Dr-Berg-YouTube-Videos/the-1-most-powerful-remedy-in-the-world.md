@@ -1,0 +1,197 @@
+# The #1 Most POWERFUL Remedy in the World!
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=jpfAAeqggtA](https://www.youtube.com/watch?v=jpfAAeqggtA)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=jpfAAeqggtA&t=0s)** — Let's talk about the number one most powerful remedy in the world.
+- **[00:04](https://www.youtube.com/watch?v=jpfAAeqggtA&t=4s)** — Out of all the natural remedies that you can take, this one has the
+- **[00:08](https://www.youtube.com/watch?v=jpfAAeqggtA&t=8s)** — most broad spectrum benefits.
+- **[00:11](https://www.youtube.com/watch?v=jpfAAeqggtA&t=11s)** — I'm not talking about vitamin D.
+- **[00:13](https://www.youtube.com/watch?v=jpfAAeqggtA&t=13s)** — We're talking about a very powerful compound in turmeric called curcumin.
+- **[00:18](https://www.youtube.com/watch?v=jpfAAeqggtA&t=18s)** — There's such a wide range of effects that curcumin can do to your body.
+- **[00:22](https://www.youtube.com/watch?v=jpfAAeqggtA&t=22s)** — In the end of this, I'm going to show you a recipe that is delicious.
+- **[00:27](https://www.youtube.com/watch?v=jpfAAeqggtA&t=27s)** — And you can just add it to your food.
+- **[00:28](https://www.youtube.com/watch?v=jpfAAeqggtA&t=28s)** — It's keto friendly, but super delicious.
+- **[00:32](https://www.youtube.com/watch?v=jpfAAeqggtA&t=32s)** — Everyone in your family will love it.
+- **[00:33](https://www.youtube.com/watch?v=jpfAAeqggtA&t=33s)** — This plant through evolution developed all sorts of amazing properties.
+- **[00:39](https://www.youtube.com/watch?v=jpfAAeqggtA&t=39s)** — Let's go through the various things that it can do for you.
+- **[00:42](https://www.youtube.com/watch?v=jpfAAeqggtA&t=42s)** — Number one on the list, probably one of the most potent anti-inflammatories.
+- **[00:45](https://www.youtube.com/watch?v=jpfAAeqggtA&t=45s)** — It inhibits five major enzymes involved with inflammation, improving
+- **[00:50](https://www.youtube.com/watch?v=jpfAAeqggtA&t=50s)** — your arthritis, tendonitis, bursitis, anything related to itis, chronic
+- **[00:55](https://www.youtube.com/watch?v=jpfAAeqggtA&t=55s)** — inflammation, whether it's inflammation in your gut.
+- **[00:57](https://www.youtube.com/watch?v=jpfAAeqggtA&t=57s)** — Number two, it's a very powerful antioxidant that it can increase longevity.
+- **[01:02](https://www.youtube.com/watch?v=jpfAAeqggtA&t=62s)** — I'm not going to get too tactical, but I just want to show you this book right here.
+- **[01:06](https://www.youtube.com/watch?v=jpfAAeqggtA&t=66s)** — It's on this drug called Deprenol.
+- **[01:08](https://www.youtube.com/watch?v=jpfAAeqggtA&t=68s)** — Okay, Deprenol, the anti-aging drug.
+- **[01:12](https://www.youtube.com/watch?v=jpfAAeqggtA&t=72s)** — I want to share something with you that's actually very interesting.
+- **[01:15](https://www.youtube.com/watch?v=jpfAAeqggtA&t=75s)** — There's something in her body called MAO-B.
+- **[01:19](https://www.youtube.com/watch?v=jpfAAeqggtA&t=79s)** — This is a compound that eats up certain neurotransmitters in your brain
+- **[01:25](https://www.youtube.com/watch?v=jpfAAeqggtA&t=85s)** — and can put you at risk for Alzheimer's.
+- **[01:27](https://www.youtube.com/watch?v=jpfAAeqggtA&t=87s)** — Deprenol is an inhibitor of MAO-B.
+- **[01:31](https://www.youtube.com/watch?v=jpfAAeqggtA&t=91s)** — What you should know is curcumin is also an inhibitor of that MAO-B.
+- **[01:38](https://www.youtube.com/watch?v=jpfAAeqggtA&t=98s)** — This is why curcumin helps anything related to brain degeneration.
+- **[01:43](https://www.youtube.com/watch?v=jpfAAeqggtA&t=103s)** — I want to just share something with you.
+- **[01:44](https://www.youtube.com/watch?v=jpfAAeqggtA&t=104s)** — They injected these mice three times a week at an older age, which
+- **[01:49](https://www.youtube.com/watch?v=jpfAAeqggtA&t=109s)** — would be equivalent to 65 years in humans.
+- **[01:51](https://www.youtube.com/watch?v=jpfAAeqggtA&t=111s)** — And there was a restoration of sex activity in these animals and
+- **[01:56](https://www.youtube.com/watch?v=jpfAAeqggtA&t=116s)** — labeled them to live far longer than the control animals.
+- **[02:00](https://www.youtube.com/watch?v=jpfAAeqggtA&t=120s)** — The longest living rat in Dr.
+- **[02:02](https://www.youtube.com/watch?v=jpfAAeqggtA&t=122s)** — Null's control group survived for 164 weeks with the longest living
+- **[02:07](https://www.youtube.com/watch?v=jpfAAeqggtA&t=127s)** — rat in the Deprenol group surviving 226 weeks.
+- **[02:12](https://www.youtube.com/watch?v=jpfAAeqggtA&t=132s)** — That's 56.5 months.
+- **[02:14](https://www.youtube.com/watch?v=jpfAAeqggtA&t=134s)** — If we correlated that over to human years, it's 130 years old.
+- **[02:18](https://www.youtube.com/watch?v=jpfAAeqggtA&t=138s)** — Curcumin can decrease neuroinflammation in your brain.
+- **[02:22](https://www.youtube.com/watch?v=jpfAAeqggtA&t=142s)** — There are many chronic degenerative diseases that relate to degeneration
+- **[02:26](https://www.youtube.com/watch?v=jpfAAeqggtA&t=146s)** — of your brain, which can affect your cognitive function, memory, and mood.
+- **[02:31](https://www.youtube.com/watch?v=jpfAAeqggtA&t=151s)** — Curcumin also increases a compound called BDNF, Brain-derived
+- **[02:36](https://www.youtube.com/watch?v=jpfAAeqggtA&t=156s)** — neurotrophic factor.
+- **[02:37](https://www.youtube.com/watch?v=jpfAAeqggtA&t=157s)** — That is a compound that actually helps increase the growth and
+- **[02:41](https://www.youtube.com/watch?v=jpfAAeqggtA&t=161s)** — survival of neurons, AKA brain cells.
+- **[02:44](https://www.youtube.com/watch?v=jpfAAeqggtA&t=164s)** — Lower levels of BDNF were found in people that were depressed
+- **[02:48](https://www.youtube.com/watch?v=jpfAAeqggtA&t=168s)** — and have cognitive decline.
+- **[02:51](https://www.youtube.com/watch?v=jpfAAeqggtA&t=171s)** — There's also some data to show that curcumin can help inhibit
+- **[02:54](https://www.youtube.com/watch?v=jpfAAeqggtA&t=174s)** — beta amyloid placking, which is seen in Alzheimer's.
+- **[02:58](https://www.youtube.com/watch?v=jpfAAeqggtA&t=178s)** — Let's switch to the benefits of the heart.
+- **[03:00](https://www.youtube.com/watch?v=jpfAAeqggtA&t=180s)** — Curcumin directly protects and helps the function of the inside
+- **[03:05](https://www.youtube.com/watch?v=jpfAAeqggtA&t=185s)** — layer of your artery called the endothelial layer.
+- **[03:08](https://www.youtube.com/watch?v=jpfAAeqggtA&t=188s)** — This is where a lot of things happen.
+- **[03:10](https://www.youtube.com/watch?v=jpfAAeqggtA&t=190s)** — The start of clotting, the start of placking in the arteries,
+- **[03:15](https://www.youtube.com/watch?v=jpfAAeqggtA&t=195s)** — the start of high blood pressure.
+- **[03:16](https://www.youtube.com/watch?v=jpfAAeqggtA&t=196s)** — Curcumin protects that layer.
+- **[03:19](https://www.youtube.com/watch?v=jpfAAeqggtA&t=199s)** — Being a powerful anti-inflammatory can decrease scar tissue that can
+- **[03:23](https://www.youtube.com/watch?v=jpfAAeqggtA&t=203s)** — grow inside those arteries.
+- **[03:25](https://www.youtube.com/watch?v=jpfAAeqggtA&t=205s)** — Curcumin also helps the LDL.
+- **[03:28](https://www.youtube.com/watch?v=jpfAAeqggtA&t=208s)** — And I'm talking about the small dense particles that can invade
+- **[03:31](https://www.youtube.com/watch?v=jpfAAeqggtA&t=211s)** — the layer of the inside of the artery.
+- **[03:33](https://www.youtube.com/watch?v=jpfAAeqggtA&t=213s)** — Curcumin protects against that.
+- **[03:35](https://www.youtube.com/watch?v=jpfAAeqggtA&t=215s)** — It also protects against something called oxidative LDL, which is
+- **[03:38](https://www.youtube.com/watch?v=jpfAAeqggtA&t=218s)** — another thing that kind of rusts out the inside of your arteries.
+- **[03:42](https://www.youtube.com/watch?v=jpfAAeqggtA&t=222s)** — Curcumin can decrease the risk of getting a fatty liver, as
+- **[03:44](https://www.youtube.com/watch?v=jpfAAeqggtA&t=224s)** — well as an inflamed liver.
+- **[03:46](https://www.youtube.com/watch?v=jpfAAeqggtA&t=226s)** — Curcumin also has the ability to help stabilize your blood sugar
+- **[03:49](https://www.youtube.com/watch?v=jpfAAeqggtA&t=229s)** — because it increases the sensitivity to insulin.
+- **[03:52](https://www.youtube.com/watch?v=jpfAAeqggtA&t=232s)** — Curcumin can help speed up wound healing, powerful anti-microbial
+- **[03:57](https://www.youtube.com/watch?v=jpfAAeqggtA&t=237s)** — effects, what can help with our gut, but it doesn't affect the
+- **[04:01](https://www.youtube.com/watch?v=jpfAAeqggtA&t=241s)** — good bacteria, just the bad.
+- **[04:03](https://www.youtube.com/watch?v=jpfAAeqggtA&t=243s)** — Curcumin is also good for the eyes.
+- **[04:05](https://www.youtube.com/watch?v=jpfAAeqggtA&t=245s)** — Why?
+- **[04:06](https://www.youtube.com/watch?v=jpfAAeqggtA&t=246s)** — Because it's a good anti-inflammatory.
+- **[04:07](https://www.youtube.com/watch?v=jpfAAeqggtA&t=247s)** — Curcumin is awesome for any type of inflammation in your gut,
+- **[04:11](https://www.youtube.com/watch?v=jpfAAeqggtA&t=251s)** — bloating, and even for ulcers.
+- **[04:13](https://www.youtube.com/watch?v=jpfAAeqggtA&t=253s)** — Curcumin is also good to help allergies, probably because of
+- **[04:17](https://www.youtube.com/watch?v=jpfAAeqggtA&t=257s)** — its effect on your immune system, especially if you have eczema or
+- **[04:21](https://www.youtube.com/watch?v=jpfAAeqggtA&t=261s)** — psoriasis or even acne.
+- **[04:23](https://www.youtube.com/watch?v=jpfAAeqggtA&t=263s)** — Curcumin also can help bind with heavy metals and then allow
+- **[04:27](https://www.youtube.com/watch?v=jpfAAeqggtA&t=267s)** — the liver to help remove it and get it out of the body.
+- **[04:29](https://www.youtube.com/watch?v=jpfAAeqggtA&t=269s)** — One of the problems that people mention about curcumin is
+- **[04:33](https://www.youtube.com/watch?v=jpfAAeqggtA&t=273s)** — its poor bioavailability.
+- **[04:35](https://www.youtube.com/watch?v=jpfAAeqggtA&t=275s)** — If you take it with black pepper, you're going to get better
+- **[04:37](https://www.youtube.com/watch?v=jpfAAeqggtA&t=277s)** — absorption, but taking major, major high doses is not probably
+- **[04:42](https://www.youtube.com/watch?v=jpfAAeqggtA&t=282s)** — what you want to do.
+- **[04:43](https://www.youtube.com/watch?v=jpfAAeqggtA&t=283s)** — Think about what this compound really is.
+- **[04:45](https://www.youtube.com/watch?v=jpfAAeqggtA&t=285s)** — It's something that helps the plant survive.
+- **[04:47](https://www.youtube.com/watch?v=jpfAAeqggtA&t=287s)** — It's a powerful thing that wards off insects, bacteria,
+- **[04:54](https://www.youtube.com/watch?v=jpfAAeqggtA&t=294s)** — viruses, don't necessarily need to take large amounts.
+- **[04:57](https://www.youtube.com/watch?v=jpfAAeqggtA&t=297s)** — In fact, you don't want to do what I did.
+- **[04:58](https://www.youtube.com/watch?v=jpfAAeqggtA&t=298s)** — Right?
+- **[04:58](https://www.youtube.com/watch?v=jpfAAeqggtA&t=298s)** — I grew turmeric in several pots, dried it out in a
+- **[05:02](https://www.youtube.com/watch?v=jpfAAeqggtA&t=302s)** — dehydrator, and then I started to chew it thinking that,
+- **[05:04](https://www.youtube.com/watch?v=jpfAAeqggtA&t=304s)** — wow, I'm just going to take a lot of this.
+- **[05:06](https://www.youtube.com/watch?v=jpfAAeqggtA&t=306s)** — It's probably going to really help me.
+- **[05:07](https://www.youtube.com/watch?v=jpfAAeqggtA&t=307s)** — Big mistake.
+- **[05:08](https://www.youtube.com/watch?v=jpfAAeqggtA&t=308s)** — I got really nauseous after the second day of just
+- **[05:11](https://www.youtube.com/watch?v=jpfAAeqggtA&t=311s)** — chewing on this stuff.
+- **[05:12](https://www.youtube.com/watch?v=jpfAAeqggtA&t=312s)** — Not to mention my tongue and my lips were just stained yellow.
+- **[05:15](https://www.youtube.com/watch?v=jpfAAeqggtA&t=315s)** — This is not about taking large amounts.
+- **[05:17](https://www.youtube.com/watch?v=jpfAAeqggtA&t=317s)** — You just want to take regular amounts of it and you're only
+- **[05:19](https://www.youtube.com/watch?v=jpfAAeqggtA&t=319s)** — going to absorb a small amount, but that's all you need.
+- **[05:22](https://www.youtube.com/watch?v=jpfAAeqggtA&t=322s)** — Just make sure if you're taking with a supplement, take it with
+- **[05:24](https://www.youtube.com/watch?v=jpfAAeqggtA&t=324s)** — black pepper, because you'll get a little bit better absorption.
+- **[05:27](https://www.youtube.com/watch?v=jpfAAeqggtA&t=327s)** — Curcumin also helps you repair.
+- **[05:29](https://www.youtube.com/watch?v=jpfAAeqggtA&t=329s)** — So all night long, you're repairing your body.
+- **[05:32](https://www.youtube.com/watch?v=jpfAAeqggtA&t=332s)** — When you get into these deep sleep cycles, you're actually
+- **[05:34](https://www.youtube.com/watch?v=jpfAAeqggtA&t=334s)** — cleaning the brain of all this toxicity.
+- **[05:37](https://www.youtube.com/watch?v=jpfAAeqggtA&t=337s)** — Taking a turmeric supplement before bed is fine, but there's
+- **[05:42](https://www.youtube.com/watch?v=jpfAAeqggtA&t=342s)** — other ways to get this curcumin as well.
+- **[05:44](https://www.youtube.com/watch?v=jpfAAeqggtA&t=344s)** — You can take a teaspoon, put it in some boiling water, let it
+- **[05:48](https://www.youtube.com/watch?v=jpfAAeqggtA&t=348s)** — cool off and make a tea out of it and sip that before you go to bed.
+- **[05:52](https://www.youtube.com/watch?v=jpfAAeqggtA&t=352s)** — There's something from India called golden milk with turmeric.
+- **[05:55](https://www.youtube.com/watch?v=jpfAAeqggtA&t=355s)** — You can put turmeric in a smoothie or put it on your food.
+- **[05:59](https://www.youtube.com/watch?v=jpfAAeqggtA&t=359s)** — Or what I like to do is make a curry out of it, put it on
+- **[06:02](https://www.youtube.com/watch?v=jpfAAeqggtA&t=362s)** — chicken with other spices and consume that as your last meal of the day.
+- **[06:07](https://www.youtube.com/watch?v=jpfAAeqggtA&t=367s)** — And if you wanted to learn about an amazing recipe, you can make
+- **[06:11](https://www.youtube.com/watch?v=jpfAAeqggtA&t=371s)** — butter chicken without sugar.
+- **[06:13](https://www.youtube.com/watch?v=jpfAAeqggtA&t=373s)** — Let me show you this clip right now.
+- **[06:15](https://www.youtube.com/watch?v=jpfAAeqggtA&t=375s)** — Now while making your butter chicken, you either got to start with the butter
+- **[06:19](https://www.youtube.com/watch?v=jpfAAeqggtA&t=379s)** — or the chicken and we're going to start with the chicken.
+- **[06:22](https://www.youtube.com/watch?v=jpfAAeqggtA&t=382s)** — So we're going to be taking boneless leg meat and cutting it up
+- **[06:26](https://www.youtube.com/watch?v=jpfAAeqggtA&t=386s)** — into nice bite size pieces.
+- **[06:28](https://www.youtube.com/watch?v=jpfAAeqggtA&t=388s)** — Don't use chicken breast because it will dry out.
+- **[06:32](https://www.youtube.com/watch?v=jpfAAeqggtA&t=392s)** — Buy some leg meat, buy some thigh meat, buy any meat except the breast meat.
+- **[06:37](https://www.youtube.com/watch?v=jpfAAeqggtA&t=397s)** — Anyway, once your chicken has been cut into nice small bite
+- **[06:40](https://www.youtube.com/watch?v=jpfAAeqggtA&t=400s)** — size pieces, it's time to marinate it.
+- **[06:42](https://www.youtube.com/watch?v=jpfAAeqggtA&t=402s)** — We're going to marinate the chicken with some salt, some turmeric,
+- **[06:47](https://www.youtube.com/watch?v=jpfAAeqggtA&t=407s)** — some red chilli powder, some garam masala powder, some cumin powder
+- **[06:54](https://www.youtube.com/watch?v=jpfAAeqggtA&t=414s)** — and some dried fenugreek leaves or as we say in India kasuri methi.
+- **[07:00](https://www.youtube.com/watch?v=jpfAAeqggtA&t=420s)** — Then you just give this all a good mix and you want to let this
+- **[07:04](https://www.youtube.com/watch?v=jpfAAeqggtA&t=424s)** — marinate for at least 15 minutes.
+- **[07:07](https://www.youtube.com/watch?v=jpfAAeqggtA&t=427s)** — The next thing we're going to do is take some garlic, some ginger,
+- **[07:14](https://www.youtube.com/watch?v=jpfAAeqggtA&t=434s)** — some onions, some tomatoes and we're going to put it in our
+- **[07:19](https://www.youtube.com/watch?v=jpfAAeqggtA&t=439s)** — blender and make a fresh and delicious puree to use in the butter chicken.
+- **[07:24](https://www.youtube.com/watch?v=jpfAAeqggtA&t=444s)** — Make sure you get that lid on and blitz this till it's a nice fine puree.
+- **[07:29](https://www.youtube.com/watch?v=jpfAAeqggtA&t=449s)** — And that's ready. Keep it aside till we start cooking.
+- **[07:32](https://www.youtube.com/watch?v=jpfAAeqggtA&t=452s)** — Now it's time to make that butter chicken and I'm going to get
+- **[07:35](https://www.youtube.com/watch?v=jpfAAeqggtA&t=455s)** — my pan on the stove.
+- **[07:37](https://www.youtube.com/watch?v=jpfAAeqggtA&t=457s)** — And of course, I'm going to heat up some olive oil, a good whole tablespoon.
+- **[07:42](https://www.youtube.com/watch?v=jpfAAeqggtA&t=462s)** — And now you want to keep your pan on the highest setting and it's
+- **[07:46](https://www.youtube.com/watch?v=jpfAAeqggtA&t=466s)** — time to fry the chicken.
+- **[07:48](https://www.youtube.com/watch?v=jpfAAeqggtA&t=468s)** — So get the chicken in the pan and fry that chicken.
+- **[07:52](https://www.youtube.com/watch?v=jpfAAeqggtA&t=472s)** — Don't touch it. Don't touch it.
+- **[07:54](https://www.youtube.com/watch?v=jpfAAeqggtA&t=474s)** — Just put it down and let it cook and get some color on it.
+- **[07:59](https://www.youtube.com/watch?v=jpfAAeqggtA&t=479s)** — After about two minutes of cooking it on the highest heat, you're
+- **[08:02](https://www.youtube.com/watch?v=jpfAAeqggtA&t=482s)** — going to start flipping that chicken over.
+- **[08:05](https://www.youtube.com/watch?v=jpfAAeqggtA&t=485s)** — And oh yeah, look at that beautiful crust on the chicken.
+- **[08:09](https://www.youtube.com/watch?v=jpfAAeqggtA&t=489s)** — You want to get some nice color.
+- **[08:10](https://www.youtube.com/watch?v=jpfAAeqggtA&t=490s)** — You want those spices to get cooked.
+- **[08:13](https://www.youtube.com/watch?v=jpfAAeqggtA&t=493s)** — You want to create the Maillard reaction or the Maillard reaction.
+- **[08:17](https://www.youtube.com/watch?v=jpfAAeqggtA&t=497s)** — Color is everything on the chicken.
+- **[08:20](https://www.youtube.com/watch?v=jpfAAeqggtA&t=500s)** — And then I'm going to generously drop in butter all around the pan in
+- **[08:26](https://www.youtube.com/watch?v=jpfAAeqggtA&t=506s)** — different places.
+- **[08:27](https://www.youtube.com/watch?v=jpfAAeqggtA&t=507s)** — And we're using about 50 grams of butter.
+- **[08:30](https://www.youtube.com/watch?v=jpfAAeqggtA&t=510s)** — That's almost like four tablespoons.
+- **[08:33](https://www.youtube.com/watch?v=jpfAAeqggtA&t=513s)** — Well, three point something, but you get the idea.
+- **[08:36](https://www.youtube.com/watch?v=jpfAAeqggtA&t=516s)** — 50 grams of delicious salted butter and just let that butter melt into
+- **[08:40](https://www.youtube.com/watch?v=jpfAAeqggtA&t=520s)** — the chicken.
+- **[08:42](https://www.youtube.com/watch?v=jpfAAeqggtA&t=522s)** — Oh yeah, that's food porn right there.
+- **[08:45](https://www.youtube.com/watch?v=jpfAAeqggtA&t=525s)** — Anyway, give it all a good mix.
+- **[08:47](https://www.youtube.com/watch?v=jpfAAeqggtA&t=527s)** — You'll see the chicken has got a lovely color on it.
+- **[08:50](https://www.youtube.com/watch?v=jpfAAeqggtA&t=530s)** — And then we're going to add in that lovely puree that we made
+- **[08:53](https://www.youtube.com/watch?v=jpfAAeqggtA&t=533s)** — with the onions, ginger, garlic and tomatoes.
+- **[08:56](https://www.youtube.com/watch?v=jpfAAeqggtA&t=536s)** — And don't forget to rinse out the blender.
+- **[08:59](https://www.youtube.com/watch?v=jpfAAeqggtA&t=539s)** — Waste none of it.
+- **[09:00](https://www.youtube.com/watch?v=jpfAAeqggtA&t=540s)** — So take a little water, shake that blender and pour it into the
+- **[09:03](https://www.youtube.com/watch?v=jpfAAeqggtA&t=543s)** — pan and give it all a good mix.
+- **[09:07](https://www.youtube.com/watch?v=jpfAAeqggtA&t=547s)** — Once you've mixed everything together nicely, just cover it.
+- **[09:10](https://www.youtube.com/watch?v=jpfAAeqggtA&t=550s)** — And let it cook for a good 10 minutes.
+- **[09:14](https://www.youtube.com/watch?v=jpfAAeqggtA&t=554s)** — You want to cook out the rawness and the darkness of the tomato
+- **[09:18](https://www.youtube.com/watch?v=jpfAAeqggtA&t=558s)** — and the onions and the ginger and the garlic.
+- **[09:21](https://www.youtube.com/watch?v=jpfAAeqggtA&t=561s)** — So after about five minutes, take the lid off, give it all a good mix.
+- **[09:25](https://www.youtube.com/watch?v=jpfAAeqggtA&t=565s)** — Taste your sauce for seasoning and let it cook some more.
+- **[09:30](https://www.youtube.com/watch?v=jpfAAeqggtA&t=570s)** — Once it's cooked for a full 10 minutes, open it up, give it all a
+- **[09:34](https://www.youtube.com/watch?v=jpfAAeqggtA&t=574s)** — good mix because that's what we do here on Headbanger's Kitchen.
+- **[09:38](https://www.youtube.com/watch?v=jpfAAeqggtA&t=578s)** — Then what we're going to do is we're going to turn off the stove
+- **[09:41](https://www.youtube.com/watch?v=jpfAAeqggtA&t=581s)** — and we're going to pour in 100 ml of cream.
+- **[09:46](https://www.youtube.com/watch?v=jpfAAeqggtA&t=586s)** — This is just normal heavy whipping cream.
+- **[09:49](https://www.youtube.com/watch?v=jpfAAeqggtA&t=589s)** — And if you live outside India, you don't need to turn the heat off.
+- **[09:53](https://www.youtube.com/watch?v=jpfAAeqggtA&t=593s)** — This cream that I use, Curdill, so I don't keep the heat on.
+- **[09:56](https://www.youtube.com/watch?v=jpfAAeqggtA&t=596s)** — But anyway, mix that cream in and your butter chicken is almost ready.
+- **[10:01](https://www.youtube.com/watch?v=jpfAAeqggtA&t=601s)** — The only thing left to do is garnish it with some fresh coriander.
+- **[10:05](https://www.youtube.com/watch?v=jpfAAeqggtA&t=605s)** — Because coriander is delicious.
+- **[10:09](https://www.youtube.com/watch?v=jpfAAeqggtA&t=609s)** — Anyway, enough jibber jabber.
+- **[10:10](https://www.youtube.com/watch?v=jpfAAeqggtA&t=610s)** — It looks like our butter chicken is ready and it looks absolutely mouthwatering.
+- **[10:16](https://www.youtube.com/watch?v=jpfAAeqggtA&t=616s)** — Mmm, yum yum.

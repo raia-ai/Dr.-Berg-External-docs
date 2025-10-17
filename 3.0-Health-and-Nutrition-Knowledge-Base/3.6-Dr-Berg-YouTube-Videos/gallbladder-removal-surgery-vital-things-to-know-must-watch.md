@@ -1,0 +1,130 @@
+# Gallbladder Removal (Surgery) - Vital Things to Know: MUST WATCH
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=TCRrD-4G0Ic](https://www.youtube.com/watch?v=TCRrD-4G0Ic)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=0s)** — I want to share some information that every person who had their gallbladder removed should know about.
+- **[00:05](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=5s)** — Unfortunately, they're not told this information. Now, maybe you have a gallbladder problem,
+- **[00:10](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=10s)** — let's say gallstones, and you're considering getting surgery. I also want to cover some
+- **[00:15](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=15s)** — data about that. And I will cover all the complications that can happen once they remove
+- **[00:20](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=20s)** — the gallbladder and then what you can do about it naturally. But you can live a long life and
+- **[00:25](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=25s)** — be perfectly healthy without a gallbladder. Okay, but 40% of the people who had their gallbladder
+- **[00:32](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=32s)** — removed end up having persisting complications and pain and symptoms for at least a year,
+- **[00:39](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=39s)** — sometimes a lot longer, either constipation or diarrhea, anal leakage. And you might even
+- **[00:45](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=45s)** — feel like a full sensation underneath your right rib cage that could refer to the right
+- **[00:49](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=49s)** — shoulder. Or you might have something called Collins sign, which is the discomfort on the
+- **[00:55](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=55s)** — tip of your scapula on the right side. So if you reach your hand back there, it's like you
+- **[00:59](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=59s)** — might feel some weird thing going on. Now, let's say you have gallstones and they're
+- **[01:03](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=63s)** — recommending getting surgery. Well, I'm going to show you some other things that you might want
+- **[01:07](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=67s)** — to look at. But there's also the option of what's called lithotripsy, which is using
+- **[01:13](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=73s)** — sound waves to break up those stones versus doing a surgery to remove the gallbladder.
+- **[01:19](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=79s)** — If anyone tells you that the gallbladder is an extra organ that is not needed, they are lying
+- **[01:26](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=86s)** — to you because we need the gallbladder has a very important function. So the gallbladder is
+- **[01:32](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=92s)** — an extension of the liver. So every time you eat, your gallbladder contracts and it releases
+- **[01:39](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=99s)** — this super concentrated fluid called bile that empties into the small intestine. And so the
+- **[01:47](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=107s)** — gallbladder is just a sack to hold and concentrate the bile. Well, what bile does is it starts to
+- **[01:56](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=116s)** — break down the fats into smaller little bits like detergent. So it's kind of like
+- **[02:05](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=125s)** — dissolving the grease. Okay, I'm just going to break it down into smaller little pieces
+- **[02:09](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=129s)** — until we have these tiny little, you know, this is basically the end product of bile salts
+- **[02:16](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=136s)** — right here. So now the pancreas can come in there and do the rest of the work. It releases
+- **[02:24](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=144s)** — an enzyme to help you dissolve fats called lipase and it'll take these little small little
+- **[02:29](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=149s)** — particles and break them down further because now there's more surface area for the enzyme to
+- **[02:36](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=156s)** — attack to dissolve. So then you have the benefit of certain things in fats like fat
+- **[02:48](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=168s)** — and the essential fatty acids. Omega 3, Omega 6. Without bile you will not be able to extract
+- **[02:56](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=176s)** — the fat nutrients from the fat that you eat. So bile is really important and it's the bile
+- **[03:04](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=184s)** — that also helps you get rid of excess cholesterol. Bile has some other purposes too. Bile
+- **[03:13](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=193s)** — stimulates the bile flow. So in other words, if you don't have enough bile, okay, bile salts,
+- **[03:22](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=202s)** — what will happen is things will kind of, they won't move that well through the ducts
+- **[03:27](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=207s)** — because you see there's a condition which is called bile sludge which is basically a
+- **[03:33](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=213s)** — deficiency of bile that you get this kind of the stagnant flow of bile into the bile ducts.
+- **[03:40](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=220s)** — If we take a look at what is a gall stone, it's basically a super concentrated cholesterol
+- **[03:47](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=227s)** — stone. And the reason why it turned into a cholesterol stone that's super concentrated
+- **[03:52](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=232s)** — is because you didn't have enough bile to keep it loose. And this is why one of the
+- **[03:58](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=238s)** — remedies for dissolving a stone is to take bile salts after you eat. If you're low in
+- **[04:07](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=247s)** — guess what your liver is going to do. It's going to make more bile and make more cholesterol.
+- **[04:14](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=254s)** — 75% of all the cholesterol in your body actually is made by your own body. It's not all diet.
+- **[04:22](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=262s)** — Only 25% is diet. So this is really important to know if you have a cholesterol problem. It
+- **[04:27](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=267s)** — could just be a gallbladder issue or a liver problem because you're not making enough
+- **[04:33](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=273s)** — bile. Now bile is also made by your microbes and so that's called secondary bile.
+- **[04:38](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=278s)** — This bile thing is really important. Bile salts also help get rid of microbes in the
+- **[04:46](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=286s)** — small intestine. So in other words, we don't want a lot of microbes in the small intestine.
+- **[04:51](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=291s)** — So the bile that's dumped into the small intestine kind of clears out the microbes
+- **[04:57](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=297s)** — in the small intestine. And then once the bile gets to the last part of the small intestine,
+- **[05:02](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=302s)** — it gets reabsorbed and gets recycled. So I want to talk about what creates a bile deficiency.
+- **[05:09](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=309s)** — Estrogen is one. That would include birth control pills, being pregnant, you know,
+- **[05:14](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=314s)** — any type of estrogen can do it. And this is probably why women have more gallstones than
+- **[05:18](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=318s)** — men, which is related to stress. But also prednisone, the medication prednisone could also
+- **[05:24](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=324s)** — set you up for this. This is why diabetics have a higher risk of getting gallstones.
+- **[05:30](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=330s)** — And people that have higher carbohydrate diets also are at more risk of getting gallstones.
+- **[05:35](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=335s)** — If someone is overweight, they could actually be at risk because people that are overweight
+- **[05:41](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=341s)** — have higher amounts of fasting insulin. Anyone with liver disease, either a fatty liver,
+- **[05:47](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=347s)** — cirrhosis, or hepatitis, why? Because the very cells that make bile are in your liver.
+- **[05:54](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=354s)** — Being in the low fat diet can set you up for a problem with gallstones too. Why? Because take
+- **[06:01](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=361s)** — a while guess what triggers the release of bile? Fat in the diet. Also, if you're taking
+- **[06:08](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=368s)** — PPIs, okay, and acids, why? Because part of the digestive process involves hydrochloric acid.
+- **[06:15](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=375s)** — And if you don't have enough hydrochloric acid, then there's going to be an alteration
+- **[06:21](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=381s)** — in pH in your small intestine. There's going to be a lack of stimulus of the release of
+- **[06:26](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=386s)** — the gallbladder. Also, if you're low on folate, magnesium, vitamin C, and even calcium,
+- **[06:34](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=394s)** — can all set you up for a gallstone. If you're low in melatonin, you can be at risk
+- **[06:40](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=400s)** — significantly of getting a gallstone. Now, what is this melatonin connection? Melatonin is
+- **[06:45](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=405s)** — used in the mitochondria. The little cells in the bile ducts actually make melatonin.
+- **[06:51](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=411s)** — And melatonin can act as an antioxidant to protect the lining of the bile ducts
+- **[06:58](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=418s)** — from developing inflammation and developing fibrosis within the bile ducts.
+- **[07:06](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=426s)** — Let's say, for example, you had the gallbladder removed and now you have
+- **[07:10](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=430s)** — problems. You have symptoms. There's a couple things that I would highly recommend. Do some
+- **[07:17](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=437s)** — gentle acupressure, not on the scar or not over the gallbladder, but on the opposite
+- **[07:25](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=445s)** — mirror image side, which is over your pancreas. So I'm going to stand up and show you right
+- **[07:30](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=450s)** — here. So this is where the gallbladder is. It's underneath the right rib cage,
+- **[07:33](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=453s)** — right through in here. It's about an inch off the midline, right through in here.
+- **[07:39](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=459s)** — So what you do is you would work on the mirror image side on the opposite side and just press
+- **[07:44](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=464s)** — deep inside here. So what's going to happen is it's actually going to stimulate the pancreas
+- **[07:48](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=468s)** — to work better to help in your digestive flows. Because the problem is that now that you
+- **[07:57](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=477s)** — don't have a gallbladder and you may be deficient in bile, the other organs have to
+- **[08:01](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=481s)** — take up the slack and have to work harder. And the pancreas definitely is the organ that's
+- **[08:06](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=486s)** — going to have to kick in there and produce more enzymes to do the work of what the gallbladder
+- **[08:11](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=491s)** — or a bile should be doing. You'll find when you press into that left side, it's going to be
+- **[08:16](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=496s)** — very tender. Just go at your own pace and then keep working on it like maybe two minutes
+- **[08:21](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=501s)** — twice a day. And you're going to find you're going to have better digestion, less pain,
+- **[08:27](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=507s)** — where the gallbladder was, you'll have more drainage. Also, your stool can tell you a lot
+- **[08:32](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=512s)** — what's going on with your bile. If the stool is gray or pale or white colored, then chances are
+- **[08:40](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=520s)** — you need bile. If the stool floats, that means there's fat in it because you didn't break it
+- **[08:46](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=526s)** — down. That could mean you need more bile. The simple solution is just to take some
+- **[08:51](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=531s)** — bile salts after you eat. You see, they removed the gallbladder, but they didn't really
+- **[08:57](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=537s)** — real problem, which is the concentrated mixture of cholesterol versus the bile.
+- **[09:03](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=543s)** — Let's say, for example, you had your gallbladder out and now you have diarrhea.
+- **[09:08](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=548s)** — In this situation, it's the opposite of constipation. You don't want to take bile
+- **[09:14](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=554s)** — salts. Why? Because taking more bile salts is going to loosen up your stool even more
+- **[09:20](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=560s)** — and give you more diarrhea. There's a certain medication that you have to get with your doctor
+- **[09:26](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=566s)** — to get that kind of slows down this release of bile. And the other thing is, let's say you
+- **[09:32](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=572s)** — start taking bile salts and, oh, wow, that really handled my constipation. But then all of
+- **[09:36](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=576s)** — a sudden you got diarrhea. Well, that could mean that you just back off and take a lot
+- **[09:41](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=581s)** — less. So you really want to evaluate the symptoms, the bowel movements and the stool
+- **[09:48](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=588s)** — as to how much bile, if any, you need. I mentioned bile sludge, right, which is basically a thickened
+- **[09:58](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=598s)** — material of cholesterol. And it's not developed into a stone yet, but it's on its way.
+- **[10:03](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=603s)** — There's a great remedy for that called TUTCA. That is a remedy that should be taken on an
+- **[10:09](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=609s)** — empty stomach because you don't necessarily want that to help you to digest. You want that
+- **[10:14](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=614s)** — to, like I said before, increase the flow of bile through these bile ducts. Any time you take
+- **[10:21](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=621s)** — bile and things get worse, you don't feel right, it doesn't help you, then what that means is
+- **[10:30](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=630s)** — you don't need bile. You need more hydrochloric acid in the stomach. And I would take betaine
+- **[10:36](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=636s)** — hydrochloride. Okay, you can get them in little pills. Now you might say, well, wow,
+- **[10:40](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=640s)** — I just wasted money buying the bile salts. Well, I mean, you could spend a lot of money
+- **[10:43](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=643s)** — on a functional gallbladder test and a certain test to put a scope down your
+- **[10:49](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=649s)** — esophagus to measure the pH of your acid in your stomach. I think spending a little money
+- **[10:53](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=653s)** — on a couple different remedies to see what helps you might be a little bit cheaper.
+- **[10:58](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=658s)** — Now, another thing that I think would be very beneficial is to increase your melatonin in
+- **[11:03](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=663s)** — your body. One way to do that is just to get a good night's sleep and make sure it's
+- **[11:08](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=668s)** — in the room before you go to sleep. But you can also expose yourself to infrared
+- **[11:13](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=673s)** — by going outside more from the sun, you get infrared or candles around at night or a
+- **[11:20](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=680s)** — fireplace or a campfire all gives you this infrared, which will increase melatonin.
+- **[11:25](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=685s)** — And then another remedy that can help increase the production of bile from the
+- **[11:31](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=691s)** — liver is milk thistle. Also, beets can help dandelion greens is another one that can help
+- **[11:39](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=699s)** — artichoke is something that can help increase bile production. And as far as the diet in
+- **[11:44](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=704s)** — general, the macros should be low carb, moderate fat, not low fat, and moderate protein.
+- **[11:53](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=713s)** — And have a salad each day. Now, since we're on the topic of bile salts, I have a very
+- **[11:58](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=718s)** — interesting video on tatka that I think you will really like. So I put that up right here.
+- **[12:03](https://www.youtube.com/watch?v=TCRrD-4G0Ic&t=723s)** — Check it out.

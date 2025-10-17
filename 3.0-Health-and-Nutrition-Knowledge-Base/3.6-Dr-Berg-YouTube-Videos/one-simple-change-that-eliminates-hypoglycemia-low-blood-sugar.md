@@ -1,0 +1,128 @@
+# One Simple Change that Eliminates Hypoglycemia (Low Blood Sugar)
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=roCcBO2l1Bs](https://www.youtube.com/watch?v=roCcBO2l1Bs)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=0s)** — I'm going to show you how to get rid of hypoglycemia with just one tiny, simple change.
+- **[00:08](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=8s)** — Now, what is hypoglycemia? Well, technically, it's a blood sugar that's below 70 milligrams per
+- **[00:14](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=14s)** — deciliter. And it's actually rare to have blood sugar being low when you have hypoglycemic
+- **[00:22](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=22s)** — symptoms. The great majority of time, you have all the symptoms, yet your blood sugars are
+- **[00:27](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=27s)** — normal. And when I talk about symptoms, I'm talking about shakiness, irritable, anxiety,
+- **[00:32](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=32s)** — hungry, sweating, headache, can't concentrate, blurry eyes. And so you hear this a lot where,
+- **[00:38](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=38s)** — oh, my blood sugars are crashing. I need to go eat something, right? But most of the time,
+- **[00:43](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=43s)** — if you were to check your blood sugars, it's just normal. So what is going on? Well,
+- **[00:47](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=47s)** — I want to explain this by using earplugs. Okay, if I were to put these earplugs
+- **[00:53](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=53s)** — in my ears right now, and you were to talk to me, I wouldn't be able to hear you. In fact,
+- **[00:58](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=58s)** — you would have to shout at me for me to hear you to penetrate this resistance. So with
+- **[01:07](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=67s)** — hypoglycemia, you have something going on. You have this resistance. It's called insulin
+- **[01:15](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=75s)** — resistance. Okay, now, insulin is the hormone that helps to lower blood glucose. And just
+- **[01:22](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=82s)** — so you know, regarding blood sugars, your body has this superior, I don't know if it's like a
+- **[01:29](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=89s)** — law in the body or superior principle that no matter what, it's very, very, very important
+- **[01:35](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=95s)** — to keep your blood sugars normal. And it's even more important to keep the blood sugars
+- **[01:39](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=99s)** — higher than lower for survival. Your body will do all sorts of things to prevent this
+- **[01:46](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=106s)** — lowering of your blood sugar. Your brain needs glucose or certain parts of it. And without
+- **[01:50](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=110s)** — glucose, you will not be able to survive. And so insulin is the main hormone that comes in there
+- **[01:55](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=115s)** — and lowers your blood glucose if it's too high after you eat. And insulin is triggered by two
+- **[02:01](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=121s)** — things. It's the carbohydrates that you eat and how refined they are or how much concentrated
+- **[02:07](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=127s)** — sugar. And also it's the frequency of eating. So if you eat a lot of meals, a lot of snacks,
+- **[02:11](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=131s)** — you're going to keep spiking insulin over and over and over. And the problem is that when you
+- **[02:17](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=137s)** — spiking insulin chronically over a period of time, you develop what's called insulin resistance.
+- **[02:23](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=143s)** — It doesn't lower the blood sugars as well as it should because you have these earplugs in here.
+- **[02:29](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=149s)** — So if I had these earplugs in there and you were talking to me, you would literally have to
+- **[02:34](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=154s)** — shout at me with high volume of communication to penetrate so I can hear just a little bit.
+- **[02:40](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=160s)** — Well, that's what happens with hypoglycemia. You have a situation where you may normally
+- **[02:45](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=165s)** — have normal blood sugar, but you have high insulin in the background to try to penetrate
+- **[02:51](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=171s)** — this resistance. So you can at least get some control of that insulin to help lower the blood
+- **[02:57](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=177s)** — glucose. So the body keeps compensating over time to stabilize this blood sugars. Because if
+- **[03:02](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=182s)** — you eat a carb, the blood sugars go up, the insulin kicks in there and pushes it down.
+- **[03:08](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=188s)** — Well, we can't have low blood sugar. So the body will start to develop resistance
+- **[03:12](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=192s)** — against the thing that is pushing the glucose down. Now, what's abnormal about this whole thing
+- **[03:20](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=200s)** — is that a body is not designed to consume the amount of carbohydrates that we consume.
+- **[03:25](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=205s)** — So that's really the underlying root cause. And the glucose in the blood might be normal,
+- **[03:30](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=210s)** — but because insulin controls glucose absorption, you probably have very low amounts of glucose in
+- **[03:37](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=217s)** — the actual cell. In other words, glucose absorption in your cells is dependent on insulin. So the
+- **[03:46](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=226s)** — more insulin resistance you have, the less glucose you're going to have in the cell.
+- **[03:50](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=230s)** — And if you have low insulin in the cell, which I don't even know if they have a way to
+- **[03:55](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=235s)** — test that, but the point is you're going to have hypoglycemia symptoms with normal blood
+- **[03:59](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=239s)** — glucose. And in the background, high insulin. The medical term for this is called hyper
+- **[04:06](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=246s)** — insulinemic. That means high insulin in the blood, hypoglycemia. Hyp meaning low,
+- **[04:12](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=252s)** — glycemia meaning sugar. It's probably one of the most common types of hypoglycemia,
+- **[04:16](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=256s)** — especially for kids and infants. Now, the worst thing you can do for hypoglycemia
+- **[04:24](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=264s)** — is to continue to have these small meals. Even small protein meals to try to
+- **[04:32](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=272s)** — fix it or even worse, some sugar to raise your blood glucose higher. That's the worst
+- **[04:39](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=279s)** — thing you can do because that's going to trigger more insulin. It's going to make things
+- **[04:43](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=283s)** — worse and worse. You'll feel better temporarily, but it's going to be worse and worse over time.
+- **[04:48](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=288s)** — So it's a complete myth or even a lie that you should have small frequent meals to prevent
+- **[04:56](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=296s)** — low blood sugar. And it's also a lie that these frequent small meals somehow stoke the metabolic
+- **[05:03](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=303s)** — fire or stimulate your metabolism. Absolutely not true. And it's also a myth that breakfast is the
+- **[05:10](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=310s)** — most important meal, even though I used to recommend it. I don't recommend it anymore
+- **[05:15](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=315s)** — because actually when you eat, it stimulates more hunger about an hour and a half later. Why?
+- **[05:22](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=322s)** — Because of this whole insulin thing that's going on in the background. How do we fix this? You have
+- **[05:28](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=328s)** — a couple different types of fuel that you can run your body off of. The majority of the
+- **[05:31](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=331s)** — population is running their body off of glucose. And so when you're doing that, oh my gosh,
+- **[05:37](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=337s)** — you are dependent on trying to get glucose all the time. Because we don't store a lot of
+- **[05:42](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=342s)** — glucose, we only have a very small storage of glucose. It's called glycogen. It's in your
+- **[05:46](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=346s)** — liver. And when that runs out, oh my gosh, we need quick energy, right? We need glucose.
+- **[05:53](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=353s)** — But what about fat? Why not just run your body on fat fuel? You have a lot more storage
+- **[05:59](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=359s)** — of fat than you do glucose. An average person who is not skinny has literally a hundred
+- **[06:04](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=364s)** — thousand calories of stored fat on their body. That's enough to last at least three months or
+- **[06:11](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=371s)** — The world record of the person who fasted the longest was over a year without food,
+- **[06:17](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=377s)** — and they survived and they lost a lot of weight. The point is you have almost an unlimited
+- **[06:22](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=382s)** — ability to run your body off fat fuel. And our bodies were designed to do that. And I'm now
+- **[06:28](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=388s)** — going to convince you that that is the best fuel to run your body off of. And when I say
+- **[06:34](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=394s)** — I'm talking about fatty acids and ketones. Ketones are one of the byproducts out of fat. So you can
+- **[06:42](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=402s)** — run the body on a combination of fatty acids and ketones, but they both come from fat.
+- **[06:47](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=407s)** — What's really cool about running your body off of fat is it only takes a few days to
+- **[06:54](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=414s)** — switch over to this new fuel system that your body's going to be like, wow, this is
+- **[07:00](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=420s)** — better than the glucose because my appetite went away and I feel so much better. The big thing
+- **[07:06](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=426s)** — that's so beneficial about ketones and fatty acids is that you don't need insulin as a hormone
+- **[07:14](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=434s)** — to be involved. So this glucose fuel is dependent on insulin. So anything that is
+- **[07:22](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=442s)** — connected with insulin resistance, like all the problems like metabolic syndrome, high blood
+- **[07:28](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=448s)** — pressure, high cholesterol, belly fat, liver fat, inflammation, dementia, all these body problems.
+- **[07:37](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=457s)** — And there's quite a few. And you pretty much bypass any of these problems that are associated
+- **[07:42](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=462s)** — with insulin resistance. They tend to go bye-bye when you start changing over the fuel
+- **[07:47](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=467s)** — system. Now deep inside your cells, you have the mitochondria. That's the energy factory of
+- **[07:53](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=473s)** — And deep inside the mitochondria, you have something called the Krebs cycle.
+- **[07:57](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=477s)** — And it's really complex, but it's basically converting glucose into energy. But when you
+- **[08:03](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=483s)** — run your body on ketones and fatty acids, you don't need to involve all those different
+- **[08:08](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=488s)** — steps that are involved with glucose. You only need to use one or maybe two of these
+- **[08:13](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=493s)** — many different alchemical steps that glucose needs. This saves you a lot of energy. So
+- **[08:20](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=500s)** — it's like running your body off of a much better machine, and it produces a lot more energy.
+- **[08:26](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=506s)** — When you run your body on ketones and fatty acids, you actually take a huge stress off
+- **[08:32](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=512s)** — the mitochondria. And if you don't already know this, the majority of non-infectious
+- **[08:38](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=518s)** — diseases that we experience involve the mitochondria, including cancer at the top of
+- **[08:46](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=526s)** — When you run your body off too much glucose, it destroys the mitochondria with all sorts of
+- **[08:52](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=532s)** — reactive oxygen molecules. I'm not going to get into the weeds with that, but the point is that
+- **[08:57](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=537s)** — there's a lot of side effects when you run your body off too much glucose. You get
+- **[09:02](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=542s)** — enhanced mitochondria function. You have more oxygen involved with the mitochondria. You
+- **[09:07](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=547s)** — need less fuel to run the body. You even need less thyroid hormones to keep your metabolism
+- **[09:13](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=553s)** — up, because the thyroid gland runs more efficiently. And your liver doesn't have to work so hard.
+- **[09:19](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=559s)** — You have to realize that the liver has to do a lot of different things. It's like 500 different
+- **[09:24](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=564s)** — functions. And when you run your body off of fat, and you decrease the need for glucose
+- **[09:30](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=570s)** — in the brain, because the brain can also run on ketones, or most of it can. Only a small
+- **[09:36](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=576s)** — portion needs actual glucose, that your liver can now just focus on that really important
+- **[09:43](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=583s)** — action of producing new glucose for the brain and certain other tissues like red blood cells.
+- **[09:49](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=589s)** — And that's called gluconeogenesis. You basically give your brain a chance to chill out. You
+- **[09:54](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=594s)** — give your heart a chance to work better, because the heart is a muscle, just like your
+- **[09:59](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=599s)** — skeletal muscles. So you actually take a big stress off your muscles. You also take a big
+- **[10:03](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=603s)** — stress off your liver. There's only one thing, just one simple thing you need to do.
+- **[10:06](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=606s)** — And that is this. Lower your carbohydrates below 50 grams per day. That's it. And when you do
+- **[10:16](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=616s)** — that, the body will start to transition over within a few days to this new fuel system.
+- **[10:24](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=624s)** — And in this transition, you're going to have more ketones in your blood, in your urine,
+- **[10:30](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=630s)** — in your breath. And there's ways to test that. And those are extra ketones that are
+- **[10:34](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=634s)** — being burned yet because you're right in the transition phase and your body is adapting
+- **[10:39](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=639s)** — to this new machine to the point where you're going to be burning off these ketones more
+- **[10:43](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=643s)** — efficiently very soon. But in the meantime, you can at least test for these ketones to see
+- **[10:47](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=647s)** — that if you're in ketosis or if you're in this transition stage and when you kind of
+- **[10:54](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=654s)** — graduate from this transition phase. This is why I recommend a urine ketone stick. So you
+- **[10:59](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=659s)** — can measure your urine and you're going to initially see a lot of ketones come from the
+- **[11:03](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=663s)** — urine and then you're going to see less and less and less. And that means that your body is
+- **[11:08](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=668s)** — actually finally adapting to ketones and it's burning more of the ketones. A better test
+- **[11:14](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=674s)** — at that time to switch over to is the blood ketone test. And you can get these kits. So
+- **[11:20](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=680s)** — all you need right now is a simple explanation on how to do this switch. And for that,
+- **[11:27](https://www.youtube.com/watch?v=roCcBO2l1Bs&t=687s)** — I put the video up right here.

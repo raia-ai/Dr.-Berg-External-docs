@@ -1,0 +1,94 @@
+# 7 Warning Signs of a Dangerous Nutrient Deficiency
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=kn_PpwqcQ-I](https://www.youtube.com/watch?v=kn_PpwqcQ-I)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=0s)** — Today I'm going to talk about seven strange signs that your body is begging for iodine.
+- **[00:06](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=6s)** — And the last one, number seven, is going to be the most important and the most interesting.
+- **[00:11](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=11s)** — The iodine in our soils have been depleted over the years. Iodine is not in the soil,
+- **[00:16](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=16s)** — it's not going to end up in the grass. If it's not in the grass, it's not going to be in the
+- **[00:20](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=20s)** — animal. And if it's not going to be in the animal, that's going to create a deficiency in
+- **[00:23](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=23s)** — you. Back in the 40s, there was a huge problem with goiters, where you have this enlarged
+- **[00:28](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=28s)** — thyroid and that was an iodine deficiency in certain parts of the country. This is when they
+- **[00:32](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=32s)** — introduced iodized salt. But then in the 70s, you know, this whole iodized salt kind of
+- **[00:37](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=37s)** — disappeared and it was replaced with sea salt. The problem is there's not a lot of iodine in
+- **[00:43](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=43s)** — sea salt. The combination of not getting enough iodine from our foods, and on top of that,
+- **[00:48](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=48s)** — there's certain things that will deplete iodine, like the fluoride in your water,
+- **[00:52](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=52s)** — the chlorine in the water. Especially if someone is a vegan, they're not consuming foods high
+- **[00:57](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=57s)** — in iodine. The more someone goes more vegetarian or vegan, the less they're going to start
+- **[01:02](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=62s)** — consuming shellfish, dairy, eggs, seafood that normally contain iodine. Let's go through this
+- **[01:08](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=68s)** — list right now. Number one, if someone starts losing the outer one third of their eyebrows,
+- **[01:13](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=73s)** — you can see I'm not losing my eyebrows. They're quite bushy. But if you start losing
+- **[01:18](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=78s)** — this part right here, suspect you are iodine deficient. Number two, hair loss. Iodine is
+- **[01:25](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=85s)** — crucial in making sure you have enough thyroid hormones that support your hair. And one of
+- **[01:30](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=90s)** — the biggest symptoms of a hypo low thyroid situation is hair loss. Number three,
+- **[01:37](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=97s)** — hoarseness. Almost like there's a lump in your throat, and that is because the thyroid is
+- **[01:41](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=101s)** — enlarging because it's trying to reach out and grab on to some iodine. That puts pressure
+- **[01:46](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=106s)** — on your vocal cords, which can not only affect your voice, but it can affect other
+- **[01:51](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=111s)** — areas as well. Number four is an enlarged tongue. Your tongue starts to get bigger.
+- **[01:56](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=116s)** — And the way that you're going to know that it's enlarged is you're going to look on the outer
+- **[02:00](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=120s)** — part of the tongue and you'll see these little indentations. Suspect you are deficient
+- **[02:04](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=124s)** — in iodine. Number five, unexplained weight gain. For no reason, you're just gaining more
+- **[02:09](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=129s)** — weight. You're not doing anything out of the usual. You just find your metabolism is
+- **[02:13](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=133s)** — super slow. Suspect an iodine deficiency because the iodine is not supporting the master
+- **[02:20](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=140s)** — metabolism gland in the body called the thyroid gland. You're going to notice that
+- **[02:24](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=144s)** — you're going to gain weight all over equally, not necessarily in one place. Number six,
+- **[02:31](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=151s)** — your estrogen is going to go up. That can show up as a heavy period or heavy cramping
+- **[02:37](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=157s)** — or headaches that time of the month, even waking in your hips. But then on the flip side,
+- **[02:43](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=163s)** — you might find that your testosterone is low, not just in men, but in women as well.
+- **[02:48](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=168s)** — Without a fully functioning thyroid, your estrogen is going to be high and your testosterone
+- **[02:54](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=174s)** — is going to be low. So many men are deficient in iodine. They can't make enough testosterone.
+- **[03:00](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=180s)** — The testosterone is not activated. A lot of men define that just when they reintroduce iodine
+- **[03:05](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=185s)** — into their diet, that handles their low testosterone route. The testosterone is not
+- **[03:09](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=189s)** — just about libido. Testosterone is a very potent anti-inflammatory. It helps certain things
+- **[03:14](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=194s)** — in your immune system reduce inflammation. Testosterone is all about preventing the loss
+- **[03:20](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=200s)** — of muscle, both in men and women. Testosterone also supports your bone health. So if you're
+- **[03:25](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=205s)** — deficient in testosterone, you may find that you're getting osteoporosis or even osteopenia.
+- **[03:30](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=210s)** — Number seven is the most interesting and most important about iodine. When you are
+- **[03:35](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=215s)** — deficient in iodine, your IQ will be lower. This is not just in small children. It's in
+- **[03:43](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=223s)** — at any age. Iodine affects your cognitive function from different angles. Number one,
+- **[03:49](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=229s)** — the thyroid directly affects the brain. There's two parts of the brain that have a lot of
+- **[03:54](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=234s)** — concentrated receptors for thyroid hormones. One is something called a hippocampus, which
+- **[04:00](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=240s)** — is all about executive function, making decisions, problem solving, giving you enough
+- **[04:06](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=246s)** — attention and focus. Certain people are more susceptible to this problem. If the child is
+- **[04:11](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=251s)** — one, two, three years old in the development, it's very important for them to get enough
+- **[04:16](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=256s)** — iodine. If you're deficient in iodine, you're going to have problems with your cerebral
+- **[04:20](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=260s)** — cortex, as well as your hippocampus. And this is going to show up in the inability
+- **[04:25](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=265s)** — to remember certain things, have a strong amount of attention and focus on certain
+- **[04:29](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=269s)** — things, problem solving functions, overall creativity will be diminished. The interesting
+- **[04:34](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=274s)** — thing about the IQ is that, yes, it's true that over the last 40 years IQ has been
+- **[04:40](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=280s)** — decreasing, but it's very difficult to measure the actual IQ over time, because there's not
+- **[04:46](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=286s)** — just one standard test that everyone does. Over the years, this test has been altered
+- **[04:51](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=291s)** — and changed. The way that we deliver this test has been changed. If we measured the IQ
+- **[04:56](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=296s)** — from someone in the 50s versus now, it's like apples and oranges. The glitch in this whole IQ
+- **[05:02](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=302s)** — test is we're not comparing your IQ with someone from 1950 with the same test. No,
+- **[05:08](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=308s)** — we're comparing your IQ to the average IQ from a random sampling. The IQ has been dropping,
+- **[05:15](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=315s)** — but you're not going to necessarily see it because we keep readjusting the normal. It's
+- **[05:21](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=321s)** — very similar to when you test testosterone. Now we know in 1950, testosterone for someone
+- **[05:29](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=329s)** — at 50 years old was a certain amount. And now it's a lot less. But if you look at
+- **[05:34](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=334s)** — those normal ranges are based on the average of the population. Basically comparing you to a bunch
+- **[05:41](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=341s)** — of unhealthy people. Yes, there are other factors. The school system, the way we're
+- **[05:45](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=345s)** — taught, the screen time, overall nutrition, but we can't forget about iodine. On just some
+- **[05:51](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=351s)** — random assessments, looking at urine iodine levels from 1990 to present time, we're at a
+- **[05:58](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=358s)** — 50% less iodine level. The most important thing about iodine is to provide the thyroid
+- **[06:03](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=363s)** — enough of its trace minerals for these thyroid hormones to work. Thyroid hormones go into every
+- **[06:10](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=370s)** — part of the body. They affect both the ovaries and the testicles. They help regulate or modulate
+- **[06:15](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=375s)** — or control estrogen dominance. Thyroid hormones directly help cognitive function as well as your
+- **[06:21](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=381s)** — mood. People with low thyroid are usually depressed. And if we're just talking about
+- **[06:25](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=385s)** — low thyroid, we're describing a hypothyroid condition. And by the way, hypothyroidism is
+- **[06:31](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=391s)** — one of the most common health problems worldwide. There's another partner trace
+- **[06:36](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=396s)** — mineral that's really important in Hashimoto's, which is the autoimmune hypothyroid condition.
+- **[06:42](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=402s)** — And that partner trace mineral is selenium. Instead of waiting until you get one of these
+- **[06:46](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=406s)** — symptoms, I suggest you just prevent an iodine deficiency by starting to consume foods
+- **[06:52](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=412s)** — in your diet that have enough iodine. And sea salt is not going to cut it. Here are the
+- **[07:01](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=421s)** — fish and fish from the ocean. Now you will get iodine from eggs and dairy, but only if that
+- **[07:07](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=427s)** — chicken or cow has enough iodine in their diet. Last important point about this topic, get a
+- **[07:12](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=432s)** — filter that filters out chlorine and fluoride to make sure both of those do not interfere
+- **[07:18](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=438s)** — with your thyroid. Also be careful of the toothpaste that is filled with fluoride, as
+- **[07:23](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=443s)** — well as getting fluoride treatments at the dentist. That can affect your thyroid as well,
+- **[07:28](https://www.youtube.com/watch?v=kn_PpwqcQ-I&t=448s)** — because it blocks iodine. Thanks for watching and I will see you in the next video.

@@ -1,0 +1,118 @@
+# 7 Stupid Health Mistakes
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=dS3owmZ_QnY](https://www.youtube.com/watch?v=dS3owmZ_QnY)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=0s)** — There are seven stupid mistakes people make regarding their health.
+- **[00:05](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=5s)** — Number one, getting the wrong advice and then accepting that advice as a fact.
+- **[00:11](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=11s)** — You know, you go to the doctor and they might ask you about what you're taking
+- **[00:14](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=14s)** — and you say, I'm taking these vitamins, I'm taking magnesium, etc.
+- **[00:17](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=17s)** — And they're going to just kind of go, oh, you don't need that.
+- **[00:19](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=19s)** — You can get that from your diet. And then you accept it as a fact.
+- **[00:23](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=23s)** — Unfortunately, just because someone has an MD behind their name
+- **[00:26](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=26s)** — or even a PhD behind their name,
+- **[00:28](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=28s)** — doesn't mean they fully evaluated all the information.
+- **[00:31](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=31s)** — They haven't even looked at it.
+- **[00:33](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=33s)** — They just tell you their opinion and then you accept it.
+- **[00:36](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=36s)** — So that would be a big mistake.
+- **[00:38](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=38s)** — And this definitely relates to a vitamin D deficiency.
+- **[00:40](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=40s)** — There is so much valuable information about vitamin D
+- **[00:43](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=43s)** — that's buried deep into the literature.
+- **[00:46](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=46s)** — And if you just do a superficial look at, you know, the first three pages on Google,
+- **[00:51](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=51s)** — you're probably going to find all sorts of bias information and,
+- **[00:54](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=54s)** — Oh yeah, vitamin D doesn't do anything and we get enough from our diet or the sun.
+- **[00:59](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=59s)** — And that is just terrible information because so many people have vitamin D resistance.
+- **[01:04](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=64s)** — So the normal typical amounts, even if it's like 2000 IUs, are not going to do anything.
+- **[01:10](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=70s)** — They'll never be able to achieve this therapeutic effect.
+- **[01:13](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=73s)** — Number two, a person is depending on all their protein requirements from a protein powder.
+- **[01:20](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=80s)** — And it's not complete compared to animal protein.
+- **[01:23](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=83s)** — You're not getting any vitamins or minerals or other things that are in animal meats.
+- **[01:28](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=88s)** — Now, the other thing that comes with that is when you just consume meat
+- **[01:32](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=92s)** — and you're thinking you're getting all of your proteins.
+- **[01:35](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=95s)** — Did you realize that out of all the proteins in your body, 30% is collagen.
+- **[01:41](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=101s)** — There's not a lot of collagen in meat.
+- **[01:43](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=103s)** — Now, if you eat a tender steak, for example, you're only getting like 1-2% collagen.
+- **[01:48](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=108s)** — All right, number three, basically a problem with medicine, the whole system.
+- **[01:51](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=111s)** — You treat the symptom, you don't really get rid of the cause.
+- **[01:54](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=114s)** — Now, I'm not talking about the doctors that are mending a bone from a fracture
+- **[01:59](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=119s)** — or if you go to the doctor for an infection.
+- **[02:01](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=121s)** — I'm talking about how they treat chronic disease, you know, with certain pills.
+- **[02:06](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=126s)** — A really good example is just blood sugar, right?
+- **[02:09](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=129s)** — So normally you should have a certain amount of normal blood sugar.
+- **[02:12](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=132s)** — Even if you do eat carbs, this hormone called insulin comes in there,
+- **[02:16](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=136s)** — takes the sugar out of the blood, so you can have normal blood sugars.
+- **[02:18](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=138s)** — So yes, that whole system of medicine is really stupid.
+- **[02:23](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=143s)** — So the next time you're at your doctor, ask them,
+- **[02:25](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=145s)** — is there going to be any point in this treatment program
+- **[02:28](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=148s)** — that I'm going to come off the medication because the medication fixed it.
+- **[02:31](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=151s)** — All right, number four, the hyper focus on reducing your salt content for high blood pressure.
+- **[02:38](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=158s)** — I mean, in nutrition science, you need like twice as much potassium to sodium.
+- **[02:43](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=163s)** — As far as the ratios, I mean, it would probably be better
+- **[02:45](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=165s)** — if you had four times the potassium to the sodium.
+- **[02:48](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=168s)** — So instead of focusing on lowering your sodium,
+- **[02:51](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=171s)** — which is going to create weakness and other problems,
+- **[02:54](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=174s)** — why not increase the potassium?
+- **[02:56](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=176s)** — And if someone really were to evaluate what potassium does to your arteries,
+- **[03:01](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=181s)** — it keeps them flexible.
+- **[03:04](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=184s)** — All right, number five, having this idea that unsaturated fats
+- **[03:08](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=188s)** — are somehow healthier than saturated fats.
+- **[03:12](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=192s)** — And I'm talking about these unsaturated fats, the heart healthy unsaturated fats.
+- **[03:18](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=198s)** — It is highly refined and it's in pretty much every single junk food,
+- **[03:24](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=204s)** — which is called ultra processed foods.
+- **[03:26](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=206s)** — And yes, it might lower your cholesterol a little bit,
+- **[03:30](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=210s)** — but what about all the other damage that it can do?
+- **[03:33](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=213s)** — I'm talking about like rusting out the inside of your arteries,
+- **[03:36](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=216s)** — creating inflammation, etc.
+- **[03:38](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=218s)** — All right, number six, this idea that red meat is junk food.
+- **[03:44](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=224s)** — We've been eating red meat for a very long time.
+- **[03:46](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=226s)** — It still retains all the vitamins, the minerals,
+- **[03:48](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=228s)** — the other stuff that's in there that can help you.
+- **[03:51](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=231s)** — And yes, there's different levels of processed meat,
+- **[03:54](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=234s)** — but to lump in the red meat with the processed meat
+- **[03:56](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=236s)** — and even state that they are both the same as far as causing cancer is stupid.
+- **[04:02](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=242s)** — Because red meat is one of the most healing things that you can consume,
+- **[04:06](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=246s)** — especially for gut health.
+- **[04:08](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=248s)** — In fact, it was the thing to actually turn me around just within probably minutes.
+- **[04:14](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=254s)** — I remember years ago when I was a junk food junkie,
+- **[04:17](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=257s)** — and then I just started to consume red meat for breakfast
+- **[04:20](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=260s)** — and it was like a miracle overnight.
+- **[04:22](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=262s)** — I just felt like the brain fog went away.
+- **[04:24](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=264s)** — I started feeling better.
+- **[04:25](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=265s)** — All right, and number seven, reading nutrition facts.
+- **[04:27](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=267s)** — This unfortunately is a very stupid mistake
+- **[04:29](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=269s)** — because if you actually started reading the nutrition facts,
+- **[04:33](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=273s)** — you're going to be shocked.
+- **[04:34](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=274s)** — It's very confusing when you focus on the nutritional facts through up here,
+- **[04:40](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=280s)** — all these numbers right here.
+- **[04:41](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=281s)** — I mean, it gives you some data,
+- **[04:42](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=282s)** — but you really can't tell what's going on unless you read the ingredients.
+- **[04:47](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=287s)** — And of course, the first one is sugars.
+- **[04:49](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=289s)** — And of course, they have sugars hidden as other words,
+- **[04:52](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=292s)** — like high fructose corn syrup, things like that.
+- **[04:54](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=294s)** — And that's number one.
+- **[04:55](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=295s)** — And number two is all the seed oils,
+- **[04:57](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=297s)** — like corn oil, canola, soy oil, cotton seed oil.
+- **[05:02](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=302s)** — But number three, starch.
+- **[05:04](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=304s)** — Starch is really the hidden sugar that people don't talk about.
+- **[05:08](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=308s)** — Let's take, for example, this product right here.
+- **[05:11](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=311s)** — If you look at the total carbohydrate,
+- **[05:13](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=313s)** — and this is actually very interesting, 16 grams of carbohydrate.
+- **[05:17](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=317s)** — Guess how much sugar is in here?
+- **[05:18](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=318s)** — Zero.
+- **[05:19](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=319s)** — All right. If we take the 16 grams of carbohydrate,
+- **[05:22](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=322s)** — which is really hidden sugars,
+- **[05:24](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=324s)** — and then we multiply it by the number of serving sizes.
+- **[05:27](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=327s)** — This right here is 56 teaspoons of sugar
+- **[05:33](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=333s)** — and this one bag of Doritos.
+- **[05:36](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=336s)** — These refined starches act on your blood sugars worse than actual sugar.
+- **[05:40](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=340s)** — But it's classified as zero sugars.
+- **[05:44](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=344s)** — You see the problem?
+- **[05:45](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=345s)** — A person is literally going to make stupid choices because it's omitted.
+- **[05:48](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=348s)** — Now, since we're on the topic of starches,
+- **[05:51](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=351s)** — I think this next video on maltodextrin will blow you away.
+- **[05:55](https://www.youtube.com/watch?v=dS3owmZ_QnY&t=355s)** — Check it out. It's right here.

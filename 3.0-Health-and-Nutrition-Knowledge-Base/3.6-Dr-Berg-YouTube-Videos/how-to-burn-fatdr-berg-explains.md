@@ -1,0 +1,112 @@
+# How to Burn Fat–Dr. Berg Explains
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=7mNJF5i8GzU](https://www.youtube.com/watch?v=7mNJF5i8GzU)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=0s)** — Let's talk about the basics of how to burn fat.
+- **[00:03](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=3s)** — It's very important and this is not about cutting calories. This is about your hormones.
+- **[00:08](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=8s)** — If you understand the hormones that burn fat and how to trigger them
+- **[00:12](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=12s)** — versus the hormones that store fat and how to avoid triggering those,
+- **[00:15](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=15s)** — you can be very successful. I mean, it blows me away when someone goes to the doctor.
+- **[00:19](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=19s)** — They go to an endocrinologist and they assess their hormones.
+- **[00:23](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=23s)** — And they might say that you have low testosterone, so we're gonna give you
+- **[00:27](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=27s)** — testosterone. But what about the diet? That is rarely talked about. But today I'm going to
+- **[00:33](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=33s)** — talk about natural things to either increase or decrease your hormones related to one thing,
+- **[00:40](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=40s)** — fat burning. Out of all the hormones related to fat burning is this hormone called insulin.
+- **[00:46](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=46s)** — It's made by the pancreas. It does a lot of things, but one of the main things it does
+- **[00:50](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=50s)** — is it helps you store fat. Let's take a look at this book right here called Medical Physiology.
+- **[00:58](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=58s)** — In the absence of insulin, all of the effects of insulin causing storage of fat are reversed.
+- **[01:06](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=66s)** — So if we want to increase fat burning, we must lower insulin. You cannot burn fat
+- **[01:14](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=74s)** — if insulin is too high. You can be doing all these other things to increase all the fat
+- **[01:19](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=79s)** — burning hormones. But if this fat making hormone called insulin is elevated, it nullifies
+- **[01:25](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=85s)** — all of the other hormones that help you lose weight. This is why this information
+- **[01:29](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=89s)** — is very important because let's say for example you go to the gym or you're exercising,
+- **[01:34](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=94s)** — right? And then you have this pre-workout protein bar that's loaded with sugar.
+- **[01:39](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=99s)** — You basically nullified your ability to burn fat. Or let's say you're working out and you
+- **[01:44](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=104s)** — your gatorade filled with glucose. You just nullified that workout. The other really
+- **[01:50](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=110s)** — interesting thing about insulin is all it takes is a little bit of carb to block a lot of weight
+- **[01:57](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=117s)** — loss for a period of time. So let's say for example, I don't know, every other day you
+- **[02:02](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=122s)** — drink a little bit of wine or maybe you have a piece of bread, just a little bit of
+- **[02:05](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=125s)** — carbohydrate. Your ability to burn fat just went way down. Now it could take 24 hours or
+- **[02:11](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=131s)** — to burn fat. You can't just sort of do it a little bit. You have to just be all in and
+- **[02:17](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=137s)** — do it for a period of time to see the results. When we talk about what triggers insulin, we have
+- **[02:22](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=142s)** — carbohydrates, okay? What are carbohydrates? You have starches, you have fiber and sugars.
+- **[02:28](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=148s)** — Fiber is the only one that will not elevate insulin. So you don't have to worry about
+- **[02:33](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=153s)** — foods very very high in fiber like green vegetables, like salad. They have so much
+- **[02:38](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=158s)** — so little starch that it's not going to elevate insulin hardly at all. But typically you want
+- **[02:45](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=165s)** — to aim for less than 50 grams of carbs per day. Not per meal, per day. But if you really
+- **[02:52](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=172s)** — want to speed it up, I would bring it down to like 20 or even less than 20 carbs per day.
+- **[02:57](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=177s)** — The other thing that elevates insulin is eating in general. It's better to eat less
+- **[03:02](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=182s)** — frequent. So this is called intermittent fasting. It's not just the carbs. It's not
+- **[03:06](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=186s)** — the frequency of eating that causes the elevation of insulin. It is also the seed oils.
+- **[03:13](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=193s)** — They basically trigger insulin resistance. They create a lot of inflammation, cellular damage.
+- **[03:20](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=200s)** — And out of all the things that parallel the trend of obesity, it's the seed oils
+- **[03:27](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=207s)** — that parallel obesity the most, which is interesting. Be careful at restaurants.
+- **[03:32](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=212s)** — It's in salad dressing. The other thing that elevates insulin is MSG. Monosodium glutamate.
+- **[03:40](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=220s)** — There's a debate with monosodium glutamate. I mean, there's... if you look this up, it'll
+- **[03:44](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=224s)** — say, oh yeah, no, it doesn't elevate insulin. It won't cause weight gain. Have you ever been
+- **[03:48](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=228s)** — to a fast food restaurant where they just load you up with MSG or even like a Chinese
+- **[03:53](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=233s)** — restaurant? What you're going to notice is that about an hour later you are hungry
+- **[03:58](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=238s)** — and it's a lot of hidden sodium which is going to make you thirsty. And if we trick the brain
+- **[04:04](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=244s)** — into thinking it's getting some protein when it's really not, you know, within probably an
+- **[04:08](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=248s)** — hour and a half you're going to like start craving something. The next hormone is estrogen.
+- **[04:14](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=254s)** — Estrogen can make you fat too. If you've ever heard about estrogen dominance, that's like
+- **[04:20](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=260s)** — a woman that has excess weight in the lower part of her body. And you can elevate estrogen
+- **[04:25](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=265s)** — by giving someone birth control pills, hormonal placement therapy, things like that. All right,
+- **[04:30](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=270s)** — the third hormone to talk about is cortisol. Very important. I'm going to show you this book
+- **[04:34](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=274s)** — right here. This is called Encyclopedia of Medical Illustration's Endocrine System. Okay,
+- **[04:41](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=281s)** — let's take a look at this right here. You see this guy right here? See that belly?
+- **[04:48](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=288s)** — It's coming from the adrenals. So the adrenal glands are pumping out the stress hormone
+- **[04:53](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=293s)** — called cortisol and it's pushing the fat in the midsection. Let's take a look at this one right
+- **[05:00](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=300s)** — here too. Boom! This is too much cortisol. You can see the belly. So the body is going to
+- **[05:09](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=309s)** — grab protein from the leg and the glutamous maximus, which is your butt muscle, and convert
+- **[05:14](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=314s)** — that into sugar and then fat right in the belly. When you go through stress or you take
+- **[05:21](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=321s)** — prednisone, which is a synthetic version of cortisol, you can gain a lot of weight,
+- **[05:26](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=326s)** — not just in your belly but in your face too, like they call it a moon face. So cortisol
+- **[05:32](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=332s)** — directs the fat more in the midsection, more than any other place around the gut as a
+- **[05:39](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=339s)** — survival mechanism. You also sometimes will get a buffalo hump in the back of your upper
+- **[05:44](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=344s)** — and this cortisol will also nullify the fat burning hormones, which I'm going to talk about
+- **[05:52](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=352s)** — next, like testosterone. And also, and this is very important, insulin will nullify all of your
+- **[06:00](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=360s)** — fat burning hormones. How do we lower insulin? This is like the most important action. Number
+- **[06:06](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=366s)** — one, to lower insulin you must lower your carbohydrate below 50 grams. I would lower it
+- **[06:11](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=371s)** — below 20 grams per day. I would do intermittent fasting, eat less frequently. I would also take
+- **[06:18](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=378s)** — apple cider vinegar in your water. I would consume berberine. It kind of mimics the
+- **[06:24](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=384s)** — medication mitformin, which has to do with controlling insulin resistance but without the
+- **[06:29](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=389s)** — side effects. Cinnamon is another really good herb as well. And then estrogen. It's just
+- **[06:36](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=396s)** — about avoiding estrogen, avoiding things that mimic estrogen. That would be like certain
+- **[06:42](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=402s)** — chemicals in the environment. So you want to do more organic. And then cortisol. How do we
+- **[06:46](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=406s)** — lower cortisol? Stress reduction. Physical work around the house to get your attention off
+- **[06:53](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=413s)** — stress. Go for long walks. Take vitamin B1. All of those are very important. But there's one
+- **[07:02](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=422s)** — vitamin D. Vitamin D will help you lower cortisol. Alright, let's switch over to the fat
+- **[07:09](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=429s)** — burning hormones. There are two main hormones that kind of work together. Growth hormone,
+- **[07:15](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=435s)** — which is also an anti-aging hormone. And another hormone called IGF number one. Insulin-like
+- **[07:21](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=441s)** — growth factor number one. It's a similar function to growth hormone. Probably the best
+- **[07:27](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=447s)** — ultimate workout would be sprinting. With growth hormone and IGF number one. Intense exercise,
+- **[07:34](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=454s)** — good sleeping, moderate protein, and intermittent fasting. The next hormone is testosterone. Here's
+- **[07:43](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=463s)** — a hormone that a lot of men are taking. And you can increase it by making sure that you
+- **[07:49](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=469s)** — either consume foods high in zinc or make sure you're eating enough cholesterol.
+- **[07:56](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=476s)** — Cholesterol is the building block of testosterone and other hormones. So if you're on a statin,
+- **[08:03](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=483s)** — or if you're on a low saturated fat diet, you could be starving off your testosterone.
+- **[08:09](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=489s)** — The next fat burning hormone, glucagon. Glucagon will be nullified when you increase insulin.
+- **[08:19](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=499s)** — Glucagon is triggered by a moderate amount of protein and intense exercise. Very similar
+- **[08:26](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=506s)** — to growth hormone in IGF number one. All right, the next one is adrenaline. Adrenaline is
+- **[08:32](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=512s)** — increased with exercise. Adrenaline is also a neurotransmitter. And then you have the
+- **[08:37](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=517s)** — thyroid hormones. T3, that's the active form of the thyroid hormone. The way that you increase
+- **[08:42](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=522s)** — thyroid hormone is to remove the things that are blocking the thyroid hormone.
+- **[08:47](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=527s)** — Like a fatty liver, like a problem with your kidney, like an iodine deficiency, or a selenium
+- **[08:55](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=535s)** — deficiency, or an estrogen dominant situation. Because if you have too much estrogen, that
+- **[09:00](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=540s)** — can block your thyroid. But the thing you need to know about exercise is that exercise
+- **[09:06](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=546s)** — really only contributes to about 15% of your overall weight loss. However, it can really
+- **[09:13](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=553s)** — greatly lower your stress and help you sleep to really make this whole program work. So even
+- **[09:19](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=559s)** — though it contributes 15%, if you don't exercise, my viewpoint is it's going to
+- **[09:25](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=565s)** — take a lot longer to get where you need to go. Based on this information, you now know
+- **[09:29](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=569s)** — how to burn fat and you know the relative importance between the fat burning hormones
+- **[09:35](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=575s)** — and the fat making hormones. Especially insulin and cortisol. Those are the dominating
+- **[09:41](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=581s)** — hormones that will nullify the rest. Now since we're on the topic of weight loss,
+- **[09:45](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=585s)** — there's one more associated condition that's very important to get a full understanding on
+- **[09:51](https://www.youtube.com/watch?v=7mNJF5i8GzU&t=591s)** — and that is insulin resistance. I put the video up on that right here. Check it out.

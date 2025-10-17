@@ -1,0 +1,167 @@
+# 11 Bad Habits That Damage Your Brain
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=8kB4DY8cWYk](https://www.youtube.com/watch?v=8kB4DY8cWYk)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=0s)** — Today we are going to talk about 11 bad habits that can severely affect your brain.
+- **[00:06](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=6s)** — And most of these are going to be quite surprising. In fact, the last one I am going to talk about
+- **[00:10](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=10s)** — is extremely interesting. Bad habit number one. Chronic exposure to bad news. So do you ever hear
+- **[00:17](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=17s)** — any good things in the news? It's pretty much filled with a lot of fear, doom and gloom,
+- **[00:24](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=24s)** — bad news. It's all going to end. You need to go in your house, go underneath your bed,
+- **[00:28](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=28s)** — and hide because our environment is extremely dangerous to be in. Well, what do you think that
+- **[00:33](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=33s)** — does for your health? Well, it drops your emotional state. Okay. If you were at one time happy and
+- **[00:40](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=40s)** — kind of upbeat, now you're kind of grumpy. You're kind of in anxiety mode and you might
+- **[00:45](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=45s)** — even be in depression. And there's some interesting data that talks about your state
+- **[00:49](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=49s)** — of being can affect the structure and the physiology of your body. You actually lose neurons.
+- **[00:56](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=56s)** — Your brain actually atrophies. So you might want to control the exposure to bad news. And it
+- **[01:04](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=64s)** — also could be people giving you bad news too. We all know a certain personality that tends to
+- **[01:11](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=71s)** — not just give us bad news, but turn good news into bad news. Number two, toxic personalities.
+- **[01:18](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=78s)** — We have all been into these relationships, which basically lower our emotional state, which
+- **[01:23](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=83s)** — would actually affect the physiology of our brains. So sometimes it's good to get a long list
+- **[01:28](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=88s)** — of all the people that you're associated with and isolate those who are a bit toxic and just
+- **[01:34](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=94s)** — put them to the side. You want people that bring you up. You want people that support you.
+- **[01:39](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=99s)** — Number three, you are spending way too much time inside your house or a building.
+- **[01:43](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=103s)** — It's not very healthy to be inside all the time. It's extremely therapeutic to be outside
+- **[01:49](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=109s)** — in the fresh air. And the sun doesn't just necessarily give you vitamin D, which is
+- **[01:53](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=113s)** — essential for brain health. It gives you infrared. Now what is infrared? It's a type of
+- **[02:00](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=120s)** — spectral energy that can actually penetrate your body by actually two inches. It can actually
+- **[02:05](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=125s)** — even go through your skull. And this infrared can stimulate melatonin. The type of melatonin
+- **[02:12](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=132s)** — that's a little bit different than the melatonin that's running through your pituitary.
+- **[02:16](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=136s)** — It's a type of melatonin that's in all of your cells that acts as an antioxidant that is even
+- **[02:23](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=143s)** — more powerful than glutathione. It's the most powerful antioxidant that protects you against
+- **[02:30](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=150s)** — so many things, including stress. So inside we have fluorescent lights, poor ventilation.
+- **[02:36](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=156s)** — We have a lack of sun. And we also have an alteration of the light and dark cycles.
+- **[02:41](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=161s)** — The majority of the population would greatly benefit by taking vitamin D before bed,
+- **[02:49](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=169s)** — especially if they have problems sleeping, especially if they are inside way too much
+- **[02:54](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=174s)** — and can't get outside. So vitamin D is really important for brain health. All right. Number
+- **[02:59](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=179s)** — four, being on a low-fat, low-cholesterol diet. Now, how does that affect the brain?
+- **[03:05](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=185s)** — Well, did you realize that 60% of your brain is fat? Here we have this organ that only makes up
+- **[03:12](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=192s)** — 2% of your weight, yet utilizes 20% of all of your energy. And 60% of it is fat. In fact,
+- **[03:21](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=201s)** — the brain is the fattiest organ of all your organs. You need this fat to make myelin to
+- **[03:27](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=207s)** — help the conductivity of the neurons. The information that goes through your nerve cells
+- **[03:33](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=213s)** — travel at a speed of 268 miles per hour. It's incredibly fast. And things that lower our fats
+- **[03:41](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=221s)** — or cholesterol, like a low-fat diet or statin drugs, can greatly put us at risk for
+- **[03:49](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=229s)** — dementia and a lowered emotional state, whether it's anxiety or even depression.
+- **[03:54](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=234s)** — And one really important point is it takes cholesterol to make bile salts, which actually
+- **[04:00](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=240s)** — you absorb vitamin A, D, E, and K. So without those fat-cycled vitamins,
+- **[04:07](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=247s)** — as well as the other nutrient omega-3 fatty acid, your brain can greatly suffer.
+- **[04:12](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=252s)** — All right, number five, the bad habit of being on a high-grain diet. The recommendation,
+- **[04:18](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=258s)** — pretty much given by all the medical experts, you must consume at least 60% of your diet
+- **[04:23](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=263s)** — in the form of whole grains. Well, there's a problem with whole grains. Okay, first of all,
+- **[04:29](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=269s)** — it's not as nutritious as you might think. It's very high in omega-6. In the book Grain Brain,
+- **[04:36](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=276s)** — there's a lot of new information talking about how grains affect our brains. Now,
+- **[04:42](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=282s)** — when you eat refined grains, you deplete your brain of vitamin B1. And that can create a huge
+- **[04:48](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=288s)** — consequence of atrophy in your hippocampus, the part of the brain that's involved with
+- **[04:55](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=295s)** — cognitive function. Number six, consuming a lot of sugar. Out of all the things that will
+- **[05:01](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=301s)** — destroy your brain, sugar is at the top of the list. It's going to eventually create
+- **[05:07](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=307s)** — insulin resistance. And that is going to cause a starvation of the neurons. Because
+- **[05:14](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=314s)** — when you have insulin resistance, we have the situation where we have this high glucose,
+- **[05:18](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=318s)** — high insulin, but the resistance doesn't allow the insulin or glucose to feed the neurons.
+- **[05:26](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=326s)** — And unless you have ketones floating around, the neurons will starve and you start having all
+- **[05:32](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=332s)** — sorts of neurodegenerative problems. In fact, there's a condition called type 3 diabetes,
+- **[05:38](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=338s)** — which is Alzheimer's, which occurs from severe insulin resistance, not to mention the
+- **[05:45](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=345s)** — B1, which creates atrophy of your hippocampus. All right, number seven, and this might surprise
+- **[05:49](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=349s)** — you too much low stress. If you don't have any stress at all, that can be very unhealthy
+- **[05:54](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=354s)** — for your brain. Why? Because you're not exercising enough. You don't have enough physical
+- **[06:00](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=360s)** — activity that is needed to activate genes for your brain. So there's something called hermetic
+- **[06:04](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=364s)** — stress, which basically it's a moderate amount of stress that can cause the body to become
+- **[06:10](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=370s)** — stronger and more resilient and adapt to a positive state. And that would include the
+- **[06:15](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=375s)** — exercise, heat therapy, cold therapy, hypoxia, which is a lack of oxygen training at a higher
+- **[06:22](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=382s)** — altitude. So there's a lot of therapy in a moderate amount of stress or kind of
+- **[06:27](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=387s)** — intermittent doses of stress. And also intermittent fasting is a form of stress
+- **[06:34](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=394s)** — because you're not feeding your body any food for certain periods of time can greatly
+- **[06:40](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=400s)** — add a positive stress to allow the brain to actually grow neurons. Not enough stress
+- **[06:47](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=407s)** — is just unhealthy as too much stress. And so number eight is high stress. If you're under a
+- **[06:55](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=415s)** — chronic high stress, mainly mental stress, or you have a lot of losses or injuries,
+- **[07:02](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=422s)** — it's very damaging to the brain because this activates certain genes in your brain that can
+- **[07:07](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=427s)** — turn on dementia, degeneration, inflammation. And so high stress, high cortisol can create
+- **[07:13](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=433s)** — atrophy of the hippocampus, the key part of the brain that's involved in cognition.
+- **[07:20](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=440s)** — Okay. And also high stress, cortisol depletes you of B1, which also does the same thing.
+- **[07:26](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=446s)** — All right. Number nine, snacking. Snacking relates to intermittent fasting. Intermittent
+- **[07:37](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=457s)** — And they're unknowingly creating a lot of problems with their brain because in order to
+- **[07:42](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=462s)** — strengthen the brain, especially as we age, we need to do things that can help regenerate
+- **[07:48](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=468s)** — neurons. I would even venture to say that snacking is even worse than eating carbohydrates.
+- **[07:58](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=478s)** — And why is that? Because not only does carbs increase insulin, but eating in general
+- **[08:05](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=485s)** — increases insulin. And when you're eating so frequently, you have these little snacks,
+- **[08:09](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=489s)** — and the mid-afternoon snack and the snack before you go to bed, what you're doing is
+- **[08:13](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=493s)** — you're jacking up insulin, creating more insulin resistance, and you're going to
+- **[08:16](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=496s)** — affect your brain cells. And you're going to find that that's a really bad habit.
+- **[08:19](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=499s)** — And the reason I know that is when a person gives up snacking, boy, do they have a huge
+- **[08:24](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=504s)** — positive change in so many things, including things like getting up in the middle of
+- **[08:31](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=511s)** — night having to urinate. These people that have frequent urination really have insulin
+- **[08:36](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=516s)** — resistance. And the most simple thing they can do is give up snacking, especially the
+- **[08:41](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=521s)** — snacking or grazing late at night. And boom, they can sleep through the whole night. And
+- **[08:46](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=526s)** — they just happen to miraculously get rid of the symptom of frequent urination. Number 10,
+- **[08:52](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=532s)** — anything that decreases the microbes in your gut directly affect your brain, like antibiotics,
+- **[09:00](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=540s)** — like glyphosate in the GMO food. Which by the way, Monsanto got a patent for glyphosate
+- **[09:07](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=547s)** — as being an antibiotic. And unfortunately, the earlier you are exposed to antibiotics in
+- **[09:13](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=553s)** — your life, like as a baby, the worse things are. But that's a completely different topic.
+- **[09:18](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=558s)** — There's a huge connection between your gut and your brain. Whatever happens down here
+- **[09:23](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=563s)** — directly affects here. And you do have a nerve that connects the two, and that's called
+- **[09:27](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=567s)** — vagus nerve. One of the side effects from antibiotics is dementia. Not to mention
+- **[09:35](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=575s)** — the great majority of your neurotransmitters. Okay, many of the B vitamins that are necessary
+- **[09:41](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=581s)** — for brain health are made by these microbes. And number 11, and this is what you've been
+- **[09:47](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=587s)** — waiting for, consuming grain fed animal products versus the grass fed grass finish
+- **[09:54](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=594s)** — animal products. Now you're saying, wait a second, where did you get that, Dr. Burke? Well,
+- **[10:00](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=600s)** — there's some very interesting data that I want to share with you. I just participated in a
+- **[10:04](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=604s)** — very interesting beef nutrient density study. When we send off our beef from my farm,
+- **[10:11](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=611s)** — and they analyze the beef and compared it to many farms across the country. And what this was,
+- **[10:17](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=617s)** — a study comparing the grass fed beef to the grain fed beef, as far as factors that can
+- **[10:25](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=625s)** — contribute to your health and factors that can contribute to disease. Okay, so I want to
+- **[10:31](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=631s)** — show you this. Check this out. In this first slide, you'll see total phytochemicals. These
+- **[10:36](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=636s)** — are phytonutrients. These are plant based chemicals, okay, that are in beef. And it
+- **[10:46](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=646s)** — dominated most other even grass fed samples, which is quite remarkable. And I'm going to share
+- **[10:52](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=652s)** — why I think that is in a minute. So stay tuned. This is going to be interesting. You can see
+- **[10:56](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=656s)** — the grain fed is very low on the phytonutrients. Okay. So in general, phytonutrients
+- **[11:01](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=661s)** — are antioxidants. They have all sorts of amazing properties. They're anti-inflammatory,
+- **[11:06](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=666s)** — anti-cancer, et cetera, et cetera. Here's another slide that shows the fatty acid ratio,
+- **[11:12](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=672s)** — the omega-6 to omega-3 ratios. Okay. And on average, grass fed beef would produce a three to
+- **[11:20](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=680s)** — one. That means there's three times as much omega-6 to omega-3. And the grain fed beef on
+- **[11:27](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=687s)** — average is an eight to one. That's eight times the omega-6 fatty acid to omega-3 fatty acid.
+- **[11:34](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=694s)** — Well, it just so happens that the beef that I sent in there had a 1.5 omega-6 to
+- **[11:41](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=701s)** — one omega-3. And it just so happens that grain fed meats are high in omega-6. And so that
+- **[11:48](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=708s)** — would increase the risk of inflammation. And by the way, salmon, which is high in omega-3,
+- **[11:55](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=715s)** — has a one-to-one ratio of omega-6 to omega-3. And I want to show you a couple other slides
+- **[11:59](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=719s)** — that are very interesting in relationship to what they found in the study with our cattle.
+- **[12:04](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=724s)** — Look at vitamin B3. Just incredible amounts compared to the grass fed as well as the
+- **[12:12](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=732s)** — grain fed. Wow. Interesting. Now I want to show you two other graphs, which are very,
+- **[12:17](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=737s)** — very interesting. In this next graph, you'll see that this value with Dr. Berg's beef is
+- **[12:22](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=742s)** — very low. Okay. And that is because this identifies advanced glycation end products.
+- **[12:30](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=750s)** — This is something that's very, very negative. This is something that contributes to chronic
+- **[12:34](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=754s)** — disease of your brain, of the heart. This is what you see in diabetes. So what does this mean?
+- **[12:40](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=760s)** — It means that if you are consuming animal products that are higher in advanced glycation
+- **[12:47](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=767s)** — end products, this can contribute to a worsening of your health. And the last slide is
+- **[12:54](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=774s)** — homocysteine. Now homocysteine is another biomarker for heart disease risk. Check out
+- **[13:01](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=781s)** — how low homocysteine is in the sample that I provided as well as grass fed, then compare
+- **[13:06](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=786s)** — that to grain fed. Interesting. So this is just another reason why you should consume
+- **[13:14](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=794s)** — grass fed, grass finished. Another name for that would be a hundred percent grass fed. This
+- **[13:19](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=799s)** — is all about the ratios. You see, we're trying to get more omega-3 fatty acids into
+- **[13:24](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=804s)** — our brain, especially because out of all the fats, 20% is in the form of omega-3, DHA,
+- **[13:33](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=813s)** — and especially the gray matter. And so when you have a high ratio of omega-6,
+- **[13:38](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=818s)** — it's competing for the omega-3. So even though you might be consuming like cod liver oil or
+- **[13:45](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=825s)** — omega-3 fatty acids in your diet, if your omega-6 is too high, it's not going to go
+- **[13:52](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=832s)** — And so this is why it's so important to really beef up, no pun intended, the omega-3 fatty acids.
+- **[14:00](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=840s)** — And this could potentially lower inflammation in your brain and greatly support your brain
+- **[14:05](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=845s)** — health. Now here's the question that you might be wondering right now. Why are there
+- **[14:08](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=848s)** — so many phytonutrients in the beef that we have compared to the typical grass fed?
+- **[14:13](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=853s)** — And that is this. The pastures that I raise in my chalaza have a much lower ratio of grass.
+- **[14:20](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=860s)** — They have a much higher ratio of weeds. That's right. And diversity of weeds. I have many
+- **[14:28](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=868s)** — different types of weeds and I have a smaller amount of grass as compared to a typical pasture
+- **[14:34](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=874s)** — with cattle. You're going to have more grasses. And so if you think about it, the more
+- **[14:41](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=881s)** — biodiversity that these cows get to feed on, the more different types of weeds and plants
+- **[14:47](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=887s)** — that have their own microbiome, the more diversified microbiome they're going to
+- **[14:53](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=893s)** — have in their guts. And a lot of these phytochemicals and vitamins are made by
+- **[14:57](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=897s)** — the microbiome. And so my theory, and I'm going to do some studies on this to find out for
+- **[15:02](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=902s)** — sure, it's the diversity of different plants that really created this profile right here,
+- **[15:08](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=908s)** — which could relate to humans. If you were to have a salad and you had the same iceberg
+- **[15:13](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=913s)** — lettuce every single day, that probably wouldn't be good. You might want to try to increase the
+- **[15:17](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=917s)** — range of types of plants in your diet, whether in your salad or on your plate. And there is
+- **[15:25](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=925s)** — some great research on the relationship between the diversity of plants and the diversity of
+- **[15:30](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=930s)** — your own microbiome that can greatly help your health. Now, that being said, since we're on
+- **[15:35](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=935s)** — the topic of brain health, if you haven't seen my other video on the brain, you should
+- **[15:40](https://www.youtube.com/watch?v=8kB4DY8cWYk&t=940s)** — it out. It's really cool. I put it up right here.

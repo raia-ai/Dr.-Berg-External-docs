@@ -1,0 +1,138 @@
+# Dr. Berg Speaking at the Hack Your Health Event (MUST ATTEND)
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=B9TD4aPRd6k](https://www.youtube.com/watch?v=B9TD4aPRd6k)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=0s)** — Hello, everyone. I have a very special short presentation. I'm going to tell you what I'm going to be talking about at an upcoming event that you need to be there.
+- **[00:10](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=10s)** — It's called Hack Your Health. And we have the CEO, the person who's putting this whole thing on, Robin, is here with us.
+- **[00:17](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=17s)** — You know, I've been doing a lot of research. I want to share with you some of the updated things that I'm involved in that you're just going to blow you away.
+- **[00:24](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=24s)** — And it's really going to be good for me to finally meet you in person because I'm sitting in front of this camera and behind a computer all day long.
+- **[00:32](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=32s)** — And I need to get out of the house. I need to go meet people.
+- **[00:36](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=36s)** — So I want to share with you four things I'm going to be talking about that you're not going to want to miss.
+- **[00:42](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=42s)** — OK, so I'm going to talk about hopefully, Robin, if you give me enough time, but I want to talk about cancer.
+- **[00:50](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=50s)** — This is something I can't talk about on YouTube, but there is something very, very new that I stumbled on that is even more powerful than fasting for cancer.
+- **[01:02](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=62s)** — I mean, there is a gentleman who I did a video on who had stage four cancer and his entire success was doing fasting, prolonged fasting.
+- **[01:14](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=74s)** — And he should have been dead six years ago. He's still alive, going well.
+- **[01:19](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=79s)** — We have before and afters of him getting rid of his cancer using fasting. Right.
+- **[01:23](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=83s)** — Well, there's something else that's even more powerful than fasting.
+- **[01:29](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=89s)** — And it is basically the poor man's cure because it involves no surgery, no drugs and no money.
+- **[01:38](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=98s)** — OK, so there's nothing to buy. There's no supplements, anything.
+- **[01:41](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=101s)** — You need to hear what I'm going to talk about on that. The research I stumbled on this was on animals.
+- **[01:47](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=107s)** — OK, so it's true. It's not on humans, but the principles are the same.
+- **[01:53](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=113s)** — So you're not going to want to miss this. This will blow you away.
+- **[01:57](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=117s)** — So I'm going to cover cancer. And the second thing I'm going to cover has to do with autoimmune diseases.
+- **[02:04](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=124s)** — And, Robin, I don't know if you if I mentioned this before, but we know that like heart disease and cancer is probably the two top most things that get people.
+- **[02:15](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=135s)** — Right. But there's a third thing that's even bigger right now that just popped up.
+- **[02:21](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=141s)** — It's an epidemic. And that is autoimmune diseases. Did I did I mention that?
+- **[02:25](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=145s)** — You have. Yes. I'm really interested in this topic.
+- **[02:29](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=149s)** — Yeah, autoimmune diseases are on the rise, like on a massive scale.
+- **[02:33](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=153s)** — But out of all the autoimmune diseases, the thyroid Hashimoto's is number one.
+- **[02:39](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=159s)** — Yeah. And the question is why? I had the answer.
+- **[02:44](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=164s)** — I'm going to share it with people exactly why out of all these autoimmune diseases that are, you know, just trending up.
+- **[02:51](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=171s)** — Why is the Hashimoto's is number one. I'm going to show you some solutions for that.
+- **[02:56](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=176s)** — And we're going to talk about that. That's going to be really interesting.
+- **[03:00](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=180s)** — Number three, I'm going to talk about something that I was involved with a long time ago that involves the heart.
+- **[03:10](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=190s)** — You know, people are really talking about cholesterol, LDL, clogged arteries, et cetera.
+- **[03:16](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=196s)** — But there's more to heart problems than just a clogged artery.
+- **[03:22](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=202s)** — Back, I don't know, maybe this is 20 years ago, I studied the works of Dr. Roy Elite when he had something called the endocardiograph,
+- **[03:31](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=211s)** — which is an older unit of what they have now of a sound recorder for your heart.
+- **[03:37](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=217s)** — And so I had this crazy idea. I wanted to digitize it.
+- **[03:41](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=221s)** — So hired a bunch of acoustic engineers and people to put this thing together and start to have a digital version of this endocardiograph,
+- **[03:51](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=231s)** — which is a very sophisticated heart sound recording system because he developed the technology of using nutrition to evaluate heart sounds.
+- **[04:02](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=242s)** — Because out of all the organ tissues, the heart is the most responsive to nutrition.
+- **[04:07](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=247s)** — I mean, like you could see changes quickly. And so back in the 40s and 50s, Roy Elite had all these doctors using this technology of using the endocardiograph,
+- **[04:20](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=260s)** — which he developed, as well as this method until I think it was like the early 1963-ish timeframe where the FDA came in and shut them down
+- **[04:31](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=271s)** — and confiscated all these units, of course, because it was a big threat.
+- **[04:35](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=275s)** — But that technology was kept alive and is still going today, not in a large scale.
+- **[04:43](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=283s)** — Anyway, what I want to do is I want to share with people what we kind of found when I actually even did that in practice, when I was in practice,
+- **[04:50](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=290s)** — as far as the relationship between how the heart responds to nutrition.
+- **[04:57](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=297s)** — Again, not just about clogged arteries, but about with valvular function.
+- **[05:01](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=301s)** — What's behind murmurs? What's behind angina and a heart attack when someone has no clogged arteries? What's up with that?
+- **[05:15](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=315s)** — What's really behind arrhythmias? What's behind when the heart starts to enlarge, when it starts to work harder and get bigger?
+- **[05:24](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=324s)** — What nutritional factors relate to all this? I'm going to share all that with you.
+- **[05:29](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=329s)** — It's going to be very, very important, especially if you have a heart, which you do.
+- **[05:33](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=333s)** — So you're going to want to know about that.
+- **[05:37](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=337s)** — And the last topic I'm going to talk about has to do with, I think, medicine of the future, which is going to be something called metabolomics.
+- **[05:46](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=346s)** — OK, metabolomics. What is metabolomics? It has to do with metabolism, which the Greek word for metabolism is change or transformation.
+- **[05:55](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=355s)** — So you have food that changes into energy, into body tissue, et cetera, and you have waste coming out.
+- **[06:02](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=362s)** — So metabolism is a very broad term.
+- **[06:05](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=365s)** — But metabolomics has to do with assessing what's called metabolites, which are these all the different chemical things that happen in these biochemical pathways in your biochemistry.
+- **[06:20](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=380s)** — And so there is actually a... it's not really new, but it's new for a lot of people because even doctors don't even know much about it.
+- **[06:30](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=390s)** — But it's a new technology that's coming out that is growing really fast in the research area.
+- **[06:35](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=395s)** — There's like 81,000 studies on it already.
+- **[06:40](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=400s)** — But metabolomics allows a practitioner to look inside your biochemistry to see a picture, to see like a kind of an imprint in time.
+- **[06:53](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=413s)** — And the question is, like, how is it different than a regular blood test?
+- **[06:56](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=416s)** — Well, a blood test will assess a series of biomarkers, maybe, I don't know, six to 13 biomarkers mainly.
+- **[07:04](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=424s)** — And it gives you more data, but it doesn't really tell you what's going on behind the scenes.
+- **[07:10](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=430s)** — It kind of tells you the symptom. It doesn't tell you why.
+- **[07:14](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=434s)** — So metabolomics is a fairly new technology that will show you what's really underneath the hood.
+- **[07:20](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=440s)** — Because where medicine, you know, they treat disease, they diagnose disease, metabolomics looks more at function.
+- **[07:29](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=449s)** — How is the body functioning right now? And what can we do to fix the function? And what can we do to create more health?
+- **[07:36](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=456s)** — So it's a completely different model that I think it's going to disrupt the medical kind of the standards treating these treating symptoms versus like really understanding what's going on.
+- **[07:49](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=469s)** — So I'm going to share with you this topic, especially as it relates to me, because what I'm doing is I'm doing a metabolic test every two weeks now.
+- **[07:59](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=479s)** — And I'm analyzing my own body. I'm learning all this amazing data with some top people that are involved with this, using me as a guinea pig.
+- **[08:08](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=488s)** — And I'm going to share with what we're sharing with you what we're finding that we're discovering.
+- **[08:13](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=493s)** — Because, yeah, you can put everyone on a certain diet, but this allows you to really tailor make and see if what you're doing and eating is working for you.
+- **[08:28](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=508s)** — Because not every person needs the exact same thing that you could do like a blood test to measure, let's say vitamin C, or you can go by the RDAs.
+- **[08:37](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=517s)** — But this test allows us to see if you're using if what the inputs of like vitamin C is being utilized efficiently for these different pathways that need it.
+- **[08:52](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=532s)** — So let's say, for example, your demand is really, really high for a certain nutrient.
+- **[08:57](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=537s)** — You know, who I mean, this will pick that up versus trying to just do a blood test and say you're normal.
+- **[09:05](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=545s)** — Blood test doesn't really tell you what's going on deeper in the cells.
+- **[09:09](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=549s)** — So we're able to look at the biochemical steps between the different steps like the chemistry, like even the Krebs cycle, we have all these different steps.
+- **[09:17](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=557s)** — It's like an assembly line. We're able to see the inputs, the changes that occur.
+- **[09:23](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=563s)** — And then from the changes, we could see bottlenecks, missing cofactors.
+- **[09:28](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=568s)** — Those are like nutrients and really do a deep dive on your true health.
+- **[09:36](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=576s)** — And primarily, my whole focus is on the mitochondria, because if you can just get your mitochondria really healthy, you're going to be healthy.
+- **[09:45](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=585s)** — You know, there's no way you could be sick and have a really healthy mitochondria.
+- **[09:49](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=589s)** — So many diseases stem from the mitochondria, including cancer.
+- **[09:52](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=592s)** — So this allows us to have a way to measure that mitochondrial efficiency and function, which I think is going to be a game changer versus just the blood test.
+- **[10:06](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=606s)** — So I'm going to be getting into that and explaining it.
+- **[10:11](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=611s)** — I mean, like even like there's certain toxins, heavy metals that can block pathways.
+- **[10:16](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=616s)** — But it's almost like, do you want to detox or do we just want to make these pathways work better?
+- **[10:23](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=623s)** — So this you might need more of a certain nutrient to really just push through pollution, chemicals, oxidative stress to just make sure it works.
+- **[10:33](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=633s)** — Right. So it's a better strategy for creating health.
+- **[10:37](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=637s)** — And it gives us the whole whole picture.
+- **[10:40](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=640s)** — And it even allows a practitioner to predict of what could happen down the road or what's going to happen.
+- **[10:46](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=646s)** — But like with diabetes, you can predict it like two decades before you even get it.
+- **[10:51](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=651s)** — So that's going to be. Yeah, it's going to be amazing.
+- **[10:54](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=654s)** — You know, you get a blood test and your blood sugars are normal.
+- **[10:57](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=657s)** — That does not tell you anything about, you know, if you're going to get diabetes tomorrow, whatever, because you want to look at the deeper underneath the hood.
+- **[11:05](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=665s)** — So I'm going to share this technology with and make it really simple, because I think the the reason why it hasn't caught on so far, because I think it's been out in the late 60s, is because we really just the word metabolomics stops you right there.
+- **[11:24](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=684s)** — It's like it puts you to sleep. It's like, what's metabolomics? What's that?
+- **[11:30](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=690s)** — You have so many. I think one of the worst things that's happening now is to get misdiagnosed, right?
+- **[11:38](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=698s)** — They don't have all the information. You got missing information. All of a sudden you get the wrong diagnosis, get the wrong treatment, and you get you go down this path.
+- **[11:45](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=705s)** — So this is going to be a great tool to get the complete picture to make sure there's nothing missing, to be able to look at all aspects to narrow down on someone's problem a lot more than what's happening right now with the typical blood test.
+- **[12:02](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=722s)** — And so you can then over time, test yourself against yourself over time.
+- **[12:07](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=727s)** — So, you know, I was initially interested in the genome and genome and the genetic testing, but that's really only the test the potential of what might happen.
+- **[12:18](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=738s)** — Right. So if we have the genome plus the epigenome, the environment that's interacting on your genes, then we get the the metabolomic testing so we can see how everything is being affecting you and looking at very specific biomarkers.
+- **[12:37](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=757s)** — To be able to see where you're at, and how you're improving, and if you're not and to get prediction. So those are the kind of the four topics that I'm going to be discussing.
+- **[12:49](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=769s)** — I'm going to try to cram that into.
+- **[12:52](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=772s)** — Oh, Robert, how much time do I have?
+- **[12:55](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=775s)** — You have 50 minutes.
+- **[12:57](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=777s)** — Okay, then I'm gonna have to talk fast.
+- **[13:01](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=781s)** — But, so this event is going to be in Austin.
+- **[13:06](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=786s)** — Right. And the date is going to be when?
+- **[13:10](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=790s)** — May 31st through June 2nd.
+- **[13:12](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=792s)** — Awesome. And then also, how much does it cost?
+- **[13:17](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=797s)** — The general attendee ticket is $299, but we created a discount code for your community, Dr. Berg. So the general admission ticket would be $249.
+- **[13:28](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=808s)** — Okay, that's really cheap. So everyone can come to that. That's great.
+- **[13:34](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=814s)** — And we're trying to bring as wide of an audience as we can. We'd like to... the whole goal of this event is to educate as many people as we possibly can.
+- **[13:45](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=825s)** — I love it.
+- **[13:47](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=827s)** — Yeah, there's going to be, I think, several thousand people that are going to attend this. You have a lot of speakers.
+- **[13:52](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=832s)** — And I think, you know, your organization was called KetoCon, but kind of switch it to more hacking your health because, you know, if we look at the whole picture of health, there's a lot... there's additional things other than diet, right?
+- **[14:08](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=848s)** — I mean, there's a whole bunch of things that you can implement.
+- **[14:11](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=851s)** — Yeah, we kind of... we found ourselves in a place where the sole conversation was about the ketogenic diet, which was really wonderful when things were just starting and there was so much research and there was a lot of evidence towards implementing a protocol like this for a lot of different reasons.
+- **[14:33](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=873s)** — And it helped a lot of people, including myself. But as we continued to have this event continue to grow, what I saw is that it became very limited. We were kind of...
+- **[14:45](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=885s)** — I felt that we were limiting the event to only people who were interested in the ketogenic diet. And there's just so much more to health than just your diet. And as you just discussed, it's very personalized.
+- **[14:56](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=896s)** — So what worked for me may not work for another person. They may need to do more or less than what I did. So this enables us to throw a much wider net.
+- **[15:05](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=905s)** — That's great. Yeah. And I always like these events because I get to meet people behind the camera. People have been watching me for a long time. I love to just meet people. So if you're out there, if you're watching my channel, I hope to meet you in person.
+- **[15:21](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=921s)** — We'll have plenty of time to hang out with people and talk to them. But definitely come to the event coming up here very soon. It's going to be what? Is this...
+- **[15:30](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=930s)** — Three months. Three months. Okay, good. So I really hope to see you there and to meet you in person. And this talk is going to literally blow you away. I think you're going to be excited.
+- **[15:44](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=944s)** — And a lot of value in this talk because there's a lot of things I'm working on. I have to work on several things to keep myself interested. And so I want to share some of these research things that I'm involved with.
+- **[15:57](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=957s)** — And I built a whole network of super smart people, way smarter than me, that are consulting and picking their brains and getting some of their research and some of their data from books that are not even published yet.
+- **[16:10](https://www.youtube.com/watch?v=B9TD4aPRd6k&t=970s)** — And so I want to... they gave me permission to share that information with people. So I will reveal this information at the event coming up soon. Very excited to have you there. Awesome. Okay. Thank you, Robin. And we'll talk to you real soon. Thank you.

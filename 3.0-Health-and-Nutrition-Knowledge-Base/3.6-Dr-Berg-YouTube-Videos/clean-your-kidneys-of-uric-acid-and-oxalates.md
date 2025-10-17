@@ -1,0 +1,160 @@
+# Clean Your Kidneys of Uric Acid and Oxalates
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=9D2VwqySGwA](https://www.youtube.com/watch?v=9D2VwqySGwA)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=9D2VwqySGwA&t=0s)** — Let's talk about the kidney and how amazing it is and how to protect it and exactly what you should
+- **[00:06](https://www.youtube.com/watch?v=9D2VwqySGwA&t=6s)** — be taking to minimize any type of toxicity or damage to the kidney, especially long term.
+- **[00:12](https://www.youtube.com/watch?v=9D2VwqySGwA&t=12s)** — The kidney is actually very rugged. It's similar to the liver in that it can take a beating,
+- **[00:18](https://www.youtube.com/watch?v=9D2VwqySGwA&t=18s)** — but it can regenerate. Each kidney is composed of roughly about a million tiny little filters.
+- **[00:25](https://www.youtube.com/watch?v=9D2VwqySGwA&t=25s)** — And these kidneys have to filter all day and all night long, 24-7, constantly. And they filter blood.
+- **[00:32](https://www.youtube.com/watch?v=9D2VwqySGwA&t=32s)** — And so where does the blood come from? Well, it comes from what you eat, right? So all the food
+- **[00:36](https://www.youtube.com/watch?v=9D2VwqySGwA&t=36s)** — that you eat, all the junk food, all the alcohol that you drink, all the medications and the
+- **[00:42](https://www.youtube.com/watch?v=9D2VwqySGwA&t=42s)** — drugs that you're exposed to, all the pollution, all the plastics end up in the blood and then
+- **[00:47](https://www.youtube.com/watch?v=9D2VwqySGwA&t=47s)** — they end up in the kidney. And your kidney just has to be able to differentiate what it
+- **[00:52](https://www.youtube.com/watch?v=9D2VwqySGwA&t=52s)** — recycle and what it needs to get rid of. So there's a high degree of complexity going on
+- **[00:57](https://www.youtube.com/watch?v=9D2VwqySGwA&t=57s)** — in this little filter called the nephron. And as you age, you start losing these little
+- **[01:02](https://www.youtube.com/watch?v=9D2VwqySGwA&t=62s)** — filters to the point where you can actually lose up to 20% of your kidney. Okay. They
+- **[01:06](https://www.youtube.com/watch?v=9D2VwqySGwA&t=66s)** — can shrink as you age. And so it becomes even more important that as you age, you really start
+- **[01:13](https://www.youtube.com/watch?v=9D2VwqySGwA&t=73s)** — eating better and are exposed to less toxins, drugs, and medications. Of course, that's just
+- **[01:19](https://www.youtube.com/watch?v=9D2VwqySGwA&t=79s)** — opposite. As we age, we take more medications and unfortunately, older people, especially
+- **[01:25](https://www.youtube.com/watch?v=9D2VwqySGwA&t=85s)** — if they end up in some type of home, are not eating the right foods. The kidneys also make
+- **[01:32](https://www.youtube.com/watch?v=9D2VwqySGwA&t=92s)** — certain hormones, one being to make red blood cells. The other one is for blood pressure.
+- **[01:37](https://www.youtube.com/watch?v=9D2VwqySGwA&t=97s)** — But let's dive into some things that really destroy the kidney. And there's even so-called
+- **[01:43](https://www.youtube.com/watch?v=9D2VwqySGwA&t=103s)** — healthy foods that are destroying the kidney. We'll talk about those as well.
+- **[01:47](https://www.youtube.com/watch?v=9D2VwqySGwA&t=107s)** — Let's first talk about what makes up a kidney stone, right? Because having a kidney stone can
+- **[01:53](https://www.youtube.com/watch?v=9D2VwqySGwA&t=113s)** — create a lot of damage to your kidney, especially because it has these little crystals
+- **[01:57](https://www.youtube.com/watch?v=9D2VwqySGwA&t=117s)** — that can damage and create scar tissue of the kidney itself, as well as a little tube
+- **[02:02](https://www.youtube.com/watch?v=9D2VwqySGwA&t=122s)** — that connects the kidney to the bladder. So kidney stones most commonly come from what's
+- **[02:07](https://www.youtube.com/watch?v=9D2VwqySGwA&t=127s)** — called oxalate stones, like calcium oxalate stones. But you can also get them in a form
+- **[02:12](https://www.youtube.com/watch?v=9D2VwqySGwA&t=132s)** — of uric acid stones as well. One of the most important things to do, especially if you're
+- **[02:19](https://www.youtube.com/watch?v=9D2VwqySGwA&t=139s)** — prone to kidney stones, is to limit the amount of oxalates that you're exposed to.
+- **[02:24](https://www.youtube.com/watch?v=9D2VwqySGwA&t=144s)** — And if you're on the ketogenic plan, chances are you're probably eating something right now
+- **[02:28](https://www.youtube.com/watch?v=9D2VwqySGwA&t=148s)** — that is very high in oxalates. So almonds, spinach, beet tops, peanuts, grains,
+- **[02:37](https://www.youtube.com/watch?v=9D2VwqySGwA&t=157s)** — beans, sweet potatoes, cassava, tapioca, which comes from cassava, kiwi, chocolate,
+- **[02:46](https://www.youtube.com/watch?v=9D2VwqySGwA&t=166s)** — swiss chard, turmeric has a good amount of oxalates. However, turmeric has a lot of
+- **[02:52](https://www.youtube.com/watch?v=9D2VwqySGwA&t=172s)** — other properties to help decrease inflammation, as well as prevent the binding of calcium
+- **[02:57](https://www.youtube.com/watch?v=9D2VwqySGwA&t=177s)** — in oxalates. But also cinnamon is a bit high in oxalates, as well as clove. Now,
+- **[03:04](https://www.youtube.com/watch?v=9D2VwqySGwA&t=184s)** — other point I want to mention about these oxalates, because they can really create
+- **[03:09](https://www.youtube.com/watch?v=9D2VwqySGwA&t=189s)** — some issues that go beyond just problems in the kidney. They can create arthritis,
+- **[03:16](https://www.youtube.com/watch?v=9D2VwqySGwA&t=196s)** — as well as something called pseudo gout. Gout is normally created by this uric acid crystal
+- **[03:23](https://www.youtube.com/watch?v=9D2VwqySGwA&t=203s)** — that's developing. But with pseudo gout, it's not uric acid. There's some other types of
+- **[03:29](https://www.youtube.com/watch?v=9D2VwqySGwA&t=209s)** — are developing from calcium, and also can be worsened if you have high levels of oxalates,
+- **[03:38](https://www.youtube.com/watch?v=9D2VwqySGwA&t=218s)** — right? Either in the diet or your body is just making them. One point about pseudo gout is
+- **[03:43](https://www.youtube.com/watch?v=9D2VwqySGwA&t=223s)** — that anything that increases the excretion of too much calcium could worsen it. Okay. And
+- **[03:52](https://www.youtube.com/watch?v=9D2VwqySGwA&t=232s)** — enough too much salt can cause a release of this calcium from the kidneys. So if you currently
+- **[04:01](https://www.youtube.com/watch?v=9D2VwqySGwA&t=241s)** — are consuming a lot of salt, and probably not enough potassium, you might want to just make
+- **[04:06](https://www.youtube.com/watch?v=9D2VwqySGwA&t=246s)** — a change and see if that doesn't help you. For the most population, you can handle a lot of
+- **[04:10](https://www.youtube.com/watch?v=9D2VwqySGwA&t=250s)** — salt. But for a select small group of people, especially if they have gout or even pseudo
+- **[04:15](https://www.youtube.com/watch?v=9D2VwqySGwA&t=255s)** — gout, they might do better without excessive salt. I think really the big problem is the
+- **[04:21](https://www.youtube.com/watch?v=9D2VwqySGwA&t=261s)** — ratio of potassium to sodium. And if you had enough potassium, your salt level would be fine.
+- **[04:28](https://www.youtube.com/watch?v=9D2VwqySGwA&t=268s)** — But I would just recommend playing around with the dosage and start lowering the salt and
+- **[04:32](https://www.youtube.com/watch?v=9D2VwqySGwA&t=272s)** — raising the potassium and see if you don't feel better. So by decreasing the salt,
+- **[04:36](https://www.youtube.com/watch?v=9D2VwqySGwA&t=276s)** — you're going to be excreting calcium a lot less, and it won't develop into crystals.
+- **[04:41](https://www.youtube.com/watch?v=9D2VwqySGwA&t=281s)** — The other interesting point about oxlets has to do with malabsorption in your gut. If you
+- **[04:50](https://www.youtube.com/watch?v=9D2VwqySGwA&t=290s)** — have malabsorption, and I'm talking about damage in the gut, let's say you have inflammation,
+- **[04:54](https://www.youtube.com/watch?v=9D2VwqySGwA&t=294s)** — you have celiac or Crohn's or irritable bowel syndrome, gastric bypass, for example. So
+- **[05:00](https://www.youtube.com/watch?v=9D2VwqySGwA&t=300s)** — there's a certain level of damage in your digestive tract that doesn't allow you to
+- **[05:05](https://www.youtube.com/watch?v=9D2VwqySGwA&t=305s)** — absorb certain things, especially fats. And if you're doing the ketogenic diet,
+- **[05:13](https://www.youtube.com/watch?v=9D2VwqySGwA&t=313s)** — or even carnivore, and you have all this fat that's coming into the gut, but you can't really
+- **[05:18](https://www.youtube.com/watch?v=9D2VwqySGwA&t=318s)** — absorb the fat, some of that fat is going to bind with the calcium. And that's going to
+- **[05:24](https://www.youtube.com/watch?v=9D2VwqySGwA&t=324s)** — leave the oxlets free to be reabsorbed, go into your blood, and end up in a kidney.
+- **[05:30](https://www.youtube.com/watch?v=9D2VwqySGwA&t=330s)** — So there is this interesting connection between fat binding to calcium and then freeing up this
+- **[05:36](https://www.youtube.com/watch?v=9D2VwqySGwA&t=336s)** — oxlet. If you're eating foods low in oxlets, you'd have nothing to worry about. Also, another
+- **[05:41](https://www.youtube.com/watch?v=9D2VwqySGwA&t=341s)** — point about that, if you're eating foods high in oxlets and you take more calcium with it,
+- **[05:47](https://www.youtube.com/watch?v=9D2VwqySGwA&t=347s)** — maybe through the dairy, then you're also protected. So if you're going to do some
+- **[05:52](https://www.youtube.com/watch?v=9D2VwqySGwA&t=352s)** — spinach dish and you had cheese with it, that might be helpful. So that's just another way
+- **[05:59](https://www.youtube.com/watch?v=9D2VwqySGwA&t=359s)** — to counter the damage of these oxlets on the kidney. Since the kidney can be very sensitive
+- **[06:04](https://www.youtube.com/watch?v=9D2VwqySGwA&t=364s)** — to too much uric acid and oxlets, when they usually do a urine test for people with gout
+- **[06:11](https://www.youtube.com/watch?v=9D2VwqySGwA&t=371s)** — or kidney stones, they usually always find that there's excessive amounts of calcium in
+- **[06:17](https://www.youtube.com/watch?v=9D2VwqySGwA&t=377s)** — the urine, excessive amounts of uric acid, oxlets, and there's also lower amounts of this
+- **[06:28](https://www.youtube.com/watch?v=9D2VwqySGwA&t=388s)** — Also, you can get it from consuming citrus, like lemons or limes. And citrus is really
+- **[06:37](https://www.youtube.com/watch?v=9D2VwqySGwA&t=397s)** — interesting because it actually binds with the oxlets in a way that prevents the calcium from
+- **[06:43](https://www.youtube.com/watch?v=9D2VwqySGwA&t=403s)** — binding and it can lower your risk of getting kidney stones. And the thing about consuming
+- **[06:49](https://www.youtube.com/watch?v=9D2VwqySGwA&t=409s)** — lemons is that they're alkaline. That's one way to counter gout if you have too much
+- **[06:55](https://www.youtube.com/watch?v=9D2VwqySGwA&t=415s)** — So this is why lemons are really good for the kidney. They protect the kidney.
+- **[07:02](https://www.youtube.com/watch?v=9D2VwqySGwA&t=422s)** — They have potassium in there. They provide some alkalinity, but they also protect against these
+- **[07:08](https://www.youtube.com/watch?v=9D2VwqySGwA&t=428s)** — oxlets. Another interesting natural remedy would be apple cider vinegar. Take like a tablespoon
+- **[07:15](https://www.youtube.com/watch?v=9D2VwqySGwA&t=435s)** — in your water in the morning as a way to prevent stones. Let me just kind of circle back
+- **[07:20](https://www.youtube.com/watch?v=9D2VwqySGwA&t=440s)** — potassium again and talk a little bit more about that. Potassium is probably one of the
+- **[07:26](https://www.youtube.com/watch?v=9D2VwqySGwA&t=446s)** — best minerals to protect the kidney and people are so concerned about taking potassium
+- **[07:33](https://www.youtube.com/watch?v=9D2VwqySGwA&t=453s)** — because they've heard something that potassium is bad for the kidney. It's only bad if you
+- **[07:38](https://www.youtube.com/watch?v=9D2VwqySGwA&t=458s)** — have a stage five kidney disease, like end stage kidney disease, where you wouldn't want
+- **[07:43](https://www.youtube.com/watch?v=9D2VwqySGwA&t=463s)** — to take potassium. But apparently, even if there is some damage to the kidney,
+- **[07:48](https://www.youtube.com/watch?v=9D2VwqySGwA&t=468s)** — potassium can be protective. So since the general population doesn't consume a lot of
+- **[07:52](https://www.youtube.com/watch?v=9D2VwqySGwA&t=472s)** — potassium foods, potassium in a like electrolyte powder or just high potassium foods are very,
+- **[07:58](https://www.youtube.com/watch?v=9D2VwqySGwA&t=478s)** — very beneficial for the kidney and they can help balance it. The sodium, leafy greens,
+- **[08:04](https://www.youtube.com/watch?v=9D2VwqySGwA&t=484s)** — large salads, avocados, very, very high in potassium. Well, but so are beet leaves,
+- **[08:10](https://www.youtube.com/watch?v=9D2VwqySGwA&t=490s)** — but beet leaves are very high in oxlets. So you want to consume vegetables that are high in
+- **[08:17](https://www.youtube.com/watch?v=9D2VwqySGwA&t=497s)** — potassium, but low in oxlets. And so even though spinach is very high in potassium,
+- **[08:23](https://www.youtube.com/watch?v=9D2VwqySGwA&t=503s)** — you wouldn't want to do it because it's high in oxlets as well. But there's other things you
+- **[08:26](https://www.youtube.com/watch?v=9D2VwqySGwA&t=506s)** — can do to counter that damage. You can actually, again, have a little cheese with that.
+- **[08:30](https://www.youtube.com/watch?v=9D2VwqySGwA&t=510s)** — And that way it'll give you the calcium to prevent some of those oxlets from
+- **[08:34](https://www.youtube.com/watch?v=9D2VwqySGwA&t=514s)** — binding. But I probably didn't talk about the most damaging thing to your kidney,
+- **[08:39](https://www.youtube.com/watch?v=9D2VwqySGwA&t=519s)** — which is sugar. Okay. Because the number one cause of end stage kidney disease is
+- **[08:47](https://www.youtube.com/watch?v=9D2VwqySGwA&t=527s)** — diabetes. Right. And that comes from a high carb diet. You know, it's so interesting. If
+- **[08:51](https://www.youtube.com/watch?v=9D2VwqySGwA&t=531s)** — you look at the flips out of that, the ketogenic diet, low carb, you might hear reports
+- **[08:57](https://www.youtube.com/watch?v=9D2VwqySGwA&t=537s)** — that, Oh, the ketogenic diet is really bad for your kidneys. So you need to avoid it
+- **[09:03](https://www.youtube.com/watch?v=9D2VwqySGwA&t=543s)** — because you might develop a ketoacidosis. And well, first of all, we're always recommending
+- **[09:09](https://www.youtube.com/watch?v=9D2VwqySGwA&t=549s)** — the healthy version of the ketogenic diet. So you're not going to develop
+- **[09:13](https://www.youtube.com/watch?v=9D2VwqySGwA&t=553s)** — ketoacidosis. Ketoacidosis occurs when you're a diabetic and you forget to take your insulin
+- **[09:17](https://www.youtube.com/watch?v=9D2VwqySGwA&t=557s)** — and you have super high levels of acidity and ketones, which you're never going to see
+- **[09:24](https://www.youtube.com/watch?v=9D2VwqySGwA&t=564s)** — if you're not a diabetic. Actually ketones are very healthy for the kidney. And a high carb
+- **[09:29](https://www.youtube.com/watch?v=9D2VwqySGwA&t=569s)** — diet is not very healthy to the kidney because you're exposing the kidney, the little filters
+- **[09:34](https://www.youtube.com/watch?v=9D2VwqySGwA&t=574s)** — with so much oxidation. And that's basically kind of rusting out the kidney. And then what
+- **[09:40](https://www.youtube.com/watch?v=9D2VwqySGwA&t=580s)** — happens is once you destroy that filter, then you start seeing glucose in the urine
+- **[09:46](https://www.youtube.com/watch?v=9D2VwqySGwA&t=586s)** — because we're not recycling it anymore. And one test to evaluate what's going on the kidneys
+- **[09:51](https://www.youtube.com/watch?v=9D2VwqySGwA&t=591s)** — is actually to check your blood, like your waste product of protein is called urea. So it's
+- **[09:57](https://www.youtube.com/watch?v=9D2VwqySGwA&t=597s)** — called blood urea nitrogen. So with kidney disease, you'll see excessive amount of protein
+- **[10:03](https://www.youtube.com/watch?v=9D2VwqySGwA&t=603s)** — in the urine, which is not good, but you also see urea or a waste product of protein
+- **[10:08](https://www.youtube.com/watch?v=9D2VwqySGwA&t=608s)** — in the blood. But you also see another compound called creatinine in the urine as well in
+- **[10:16](https://www.youtube.com/watch?v=9D2VwqySGwA&t=616s)** — excessive amounts. And that just indicates there's another protein problem with your
+- **[10:20](https://www.youtube.com/watch?v=9D2VwqySGwA&t=620s)** — muscles not being handled by the kidney. But creatinine can also occur from other
+- **[10:25](https://www.youtube.com/watch?v=9D2VwqySGwA&t=625s)** — reasons as well, because when you eat a lot of cooked meat, when you cook it,
+- **[10:31](https://www.youtube.com/watch?v=9D2VwqySGwA&t=631s)** — you actually convert creatine to creatinine and that can show up in the urine, as well as
+- **[10:36](https://www.youtube.com/watch?v=9D2VwqySGwA&t=636s)** — consuming just large amounts of protein. But typically you're only going to see a problem with
+- **[10:40](https://www.youtube.com/watch?v=9D2VwqySGwA&t=640s)** — that if your kidneys are not healthy. If your kidneys are healthy and you're eating a lot of
+- **[10:44](https://www.youtube.com/watch?v=9D2VwqySGwA&t=644s)** — protein, I think you're not going to see any problem. In fact, I really have not found any
+- **[10:50](https://www.youtube.com/watch?v=9D2VwqySGwA&t=650s)** — really good evidence to show that eating too much protein will do any damage to the kidney.
+- **[10:56](https://www.youtube.com/watch?v=9D2VwqySGwA&t=656s)** — It's usually when someone's eating a lot of protein and a lot of sugar at the same time.
+- **[10:59](https://www.youtube.com/watch?v=9D2VwqySGwA&t=659s)** — But creatinine can also show up if there's liver damage or even as a side effect from taking ACE
+- **[11:04](https://www.youtube.com/watch?v=9D2VwqySGwA&t=664s)** — inhibitors, which are medications for blood pressure, or if you're doing heavy duty exercise,
+- **[11:11](https://www.youtube.com/watch?v=9D2VwqySGwA&t=671s)** — it can show up. So you have to be able to differentiate is a kidney problem or
+- **[11:15](https://www.youtube.com/watch?v=9D2VwqySGwA&t=675s)** — is it something else. So let's just summarize some of the things you can do to really keep
+- **[11:19](https://www.youtube.com/watch?v=9D2VwqySGwA&t=679s)** — these kidneys in check. I would do lemon water every morning. If you can squeeze a lemon,
+- **[11:25](https://www.youtube.com/watch?v=9D2VwqySGwA&t=685s)** — would be best. Put it in the water, add your outside of vinegar, drink your liquids. It's
+- **[11:32](https://www.youtube.com/watch?v=9D2VwqySGwA&t=692s)** — probably a good idea, especially if you're prone to kidney stones to consume two and a
+- **[11:36](https://www.youtube.com/watch?v=9D2VwqySGwA&t=696s)** — half liters of water because kidney stone occurs because there's a super saturated amount
+- **[11:42](https://www.youtube.com/watch?v=9D2VwqySGwA&t=702s)** — of urine and you're getting all these crystals developing. So if you're drinking enough
+- **[11:47](https://www.youtube.com/watch?v=9D2VwqySGwA&t=707s)** — liquids, you're going to be fine with that. Second point is to avoid high oxalate type
+- **[11:52](https://www.youtube.com/watch?v=9D2VwqySGwA&t=712s)** — Of course, there's a lot more to talk about that, but I gave you the ones that are like
+- **[11:55](https://www.youtube.com/watch?v=9D2VwqySGwA&t=715s)** — the most important. And if you do eat foods, high in oxalates, well add some dairy to it or
+- **[12:00](https://www.youtube.com/watch?v=9D2VwqySGwA&t=720s)** — add some calcium to counter that. And of course, a really important point is to go on
+- **[12:05](https://www.youtube.com/watch?v=9D2VwqySGwA&t=725s)** — the low carb ketogenic plan within a minute fasting. And also out of all the sugars,
+- **[12:11](https://www.youtube.com/watch?v=9D2VwqySGwA&t=731s)** — fructose, by the way, and I want to just add this to the mix, can really spike your
+- **[12:16](https://www.youtube.com/watch?v=9D2VwqySGwA&t=736s)** — acid more than a lot of other things. So fructose is really, really bad as in high
+- **[12:22](https://www.youtube.com/watch?v=9D2VwqySGwA&t=742s)** — fructose corn syrup. Also, when you're consuming a lot of vitamin C, and I know there is some
+- **[12:27](https://www.youtube.com/watch?v=9D2VwqySGwA&t=747s)** — benefits of doing high levels of vitamin C for certain things. But if you're trying to
+- **[12:32](https://www.youtube.com/watch?v=9D2VwqySGwA&t=752s)** — get rid of your gout or your pseudo gout and you're consuming massive amounts of vitamin C
+- **[12:38](https://www.youtube.com/watch?v=9D2VwqySGwA&t=758s)** — in the form of the scorpic acid, well, just make some changes, cut that out for a couple
+- **[12:42](https://www.youtube.com/watch?v=9D2VwqySGwA&t=762s)** — days and see if your pain doesn't just go away. I just wanted to, in this video, include a lot
+- **[12:47](https://www.youtube.com/watch?v=9D2VwqySGwA&t=767s)** — of different links to things that could be aggravating your condition. Now, let's say you
+- **[12:53](https://www.youtube.com/watch?v=9D2VwqySGwA&t=773s)** — are a diabetic or you have kidney damage already. There are things you can do to help
+- **[12:58](https://www.youtube.com/watch?v=9D2VwqySGwA&t=778s)** — protect the kidney even more. In addition to potassium, and that would be consuming a lot
+- **[13:03](https://www.youtube.com/watch?v=9D2VwqySGwA&t=783s)** — of the phytonutrients or the antioxidants in certain plant foods, especially in microgreens,
+- **[13:10](https://www.youtube.com/watch?v=9D2VwqySGwA&t=790s)** — which are these little baby plants. They grow a little bit more than sprouts. I recommend the
+- **[13:17](https://www.youtube.com/watch?v=9D2VwqySGwA&t=797s)** — ones grown in soil if you can get them. And the reason I'm saying that is if you're consuming
+- **[13:21](https://www.youtube.com/watch?v=9D2VwqySGwA&t=801s)** — microgreens compared to adult vegetables, you're going to get some of these phytonutrients
+- **[13:27](https://www.youtube.com/watch?v=9D2VwqySGwA&t=807s)** — in levels that are 20, 50 to a hundred times more than the adult vegetables. So
+- **[13:34](https://www.youtube.com/watch?v=9D2VwqySGwA&t=814s)** — all it takes is a small amount of these things to create a big effect. And if you're
+- **[13:39](https://www.youtube.com/watch?v=9D2VwqySGwA&t=819s)** — trying to protect the kidney, this is very doable. It's very easy. Just add it to your salad
+- **[13:45](https://www.youtube.com/watch?v=9D2VwqySGwA&t=825s)** — and it can help protect you. And I'm talking about the phytonutrients like
+- **[13:50](https://www.youtube.com/watch?v=9D2VwqySGwA&t=830s)** — sulforaphane, flavonoids, carotenoids, even chlorophyll. All of those are really good
+- **[13:55](https://www.youtube.com/watch?v=9D2VwqySGwA&t=835s)** — to protect the kidney. But just one last point about that. Turmeric does have high
+- **[13:59](https://www.youtube.com/watch?v=9D2VwqySGwA&t=839s)** — levels of oxalates. So there's mixed reviews on that powerful phytonutrient. Now that you
+- **[14:09](https://www.youtube.com/watch?v=9D2VwqySGwA&t=849s)** — know, the seven warning signs of a toxic kidney, I put that up right here. Check it out.

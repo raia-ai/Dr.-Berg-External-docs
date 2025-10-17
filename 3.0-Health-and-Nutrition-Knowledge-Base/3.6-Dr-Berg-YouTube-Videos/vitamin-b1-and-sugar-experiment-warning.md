@@ -1,0 +1,95 @@
+# Vitamin B1 and SUGAR Experiment: WARNING
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=xxdaLKfFD80](https://www.youtube.com/watch?v=xxdaLKfFD80)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=xxdaLKfFD80&t=0s)** — Warning! Do not try this at home. I'm talking about the experiment between sugar and what sugar does to
+- **[00:06](https://www.youtube.com/watch?v=xxdaLKfFD80&t=6s)** — vitamin B1. And the average person in the U.S. is definitely doing this experiment unknowingly.
+- **[00:12](https://www.youtube.com/watch?v=xxdaLKfFD80&t=12s)** — And so today we're going to talk about what this experiment is in relationship to what high levels
+- **[00:18](https://www.youtube.com/watch?v=xxdaLKfFD80&t=18s)** — of carbohydrates do to certain nutrients, specifically vitamin B1, and all the consequences
+- **[00:24](https://www.youtube.com/watch?v=xxdaLKfFD80&t=24s)** — that occur from that. And of course the sugar I'm talking about at the top of the list
+- **[00:27](https://www.youtube.com/watch?v=xxdaLKfFD80&t=27s)** — is the refined sugars. But not only that, there's hidden sugars like starches. A starch is really
+- **[00:33](https://www.youtube.com/watch?v=xxdaLKfFD80&t=33s)** — sugar if you're consuming the starch that is in most foods in the U.S. So it's a combination of
+- **[00:39](https://www.youtube.com/watch?v=xxdaLKfFD80&t=39s)** — those starches and sugars that will deplete your B1 and create all sorts of symptoms that
+- **[00:43](https://www.youtube.com/watch?v=xxdaLKfFD80&t=43s)** — you might think are connected to something else, but they're merely a vitamin B1 deficiency.
+- **[00:50](https://www.youtube.com/watch?v=xxdaLKfFD80&t=50s)** — But let me just touch on my personal story with sugar and B1. Growing up I lived on a
+- **[00:55](https://www.youtube.com/watch?v=xxdaLKfFD80&t=55s)** — sugar. But further along my 20s I met my future wife. We ended up at a restaurant
+- **[00:59](https://www.youtube.com/watch?v=xxdaLKfFD80&t=59s)** — and we both consumed a tremendous amount of pasta, pizza, wine, and one of the waiters was
+- **[01:07](https://www.youtube.com/watch?v=xxdaLKfFD80&t=67s)** — going past us with a dessert tray. And he said this, before I throw these out,
+- **[01:12](https://www.youtube.com/watch?v=xxdaLKfFD80&t=72s)** — do you want to sample any of these desserts? I was raised, you never want to waste food.
+- **[01:16](https://www.youtube.com/watch?v=xxdaLKfFD80&t=76s)** — So of course we sampled every single dessert. Now as I drove home that night I had this
+- **[01:21](https://www.youtube.com/watch?v=xxdaLKfFD80&t=81s)** — I think I ate too much sugar. I put my head on the pillow and what do I hear?
+- **[01:26](https://www.youtube.com/watch?v=xxdaLKfFD80&t=86s)** — Pounding in my inner ear. Just my heart is just pounding like crazy. But you would think I would
+- **[01:31](https://www.youtube.com/watch?v=xxdaLKfFD80&t=91s)** — learn from that situation. No, I continued to consume pasta, breads, cereals, crackers
+- **[01:38](https://www.youtube.com/watch?v=xxdaLKfFD80&t=98s)** — for several years later. And then of course I had a sleeping problem at that point. So what
+- **[01:42](https://www.youtube.com/watch?v=xxdaLKfFD80&t=102s)** — did I do? I created a sugar coma to sleep every night. I had a pint of Ben and Jerry's
+- **[01:48](https://www.youtube.com/watch?v=xxdaLKfFD80&t=108s)** — before I went to sleep. Now that worked to at least get me to sleep but I woke up
+- **[01:53](https://www.youtube.com/watch?v=xxdaLKfFD80&t=113s)** — completely with fluid retention. Which by the way is a B1 deficiency. But what happens when you
+- **[01:58](https://www.youtube.com/watch?v=xxdaLKfFD80&t=118s)** — eat that much sugar without the B1, you get too much lactic acid. And that developed something
+- **[02:03](https://www.youtube.com/watch?v=xxdaLKfFD80&t=123s)** — called Russ's leg syndrome. As time went on my health started going down, down, down, down,
+- **[02:07](https://www.youtube.com/watch?v=xxdaLKfFD80&t=127s)** — down to the point where I had pre-diabetes. The inside of my eyelids were completely
+- **[02:12](https://www.youtube.com/watch?v=xxdaLKfFD80&t=132s)** — like sandpaper. Bloodshot. I didn't know what that was. Obviously I finally figured things out
+- **[02:18](https://www.youtube.com/watch?v=xxdaLKfFD80&t=138s)** — and here I am today and I don't have a B1 deficiency anymore. But at that time I was in
+- **[02:24](https://www.youtube.com/watch?v=xxdaLKfFD80&t=144s)** — an experiment just like I think a lot of people are in the same experiment right now. An average
+- **[02:29](https://www.youtube.com/watch?v=xxdaLKfFD80&t=149s)** — person's diet is well over 50 to 60 to even 70 percent refined carbohydrates. But I want to
+- **[02:35](https://www.youtube.com/watch?v=xxdaLKfFD80&t=155s)** — kind of hone in on this B1. B1 is a fascinating vitamin and a lot of the complications that
+- **[02:43](https://www.youtube.com/watch?v=xxdaLKfFD80&t=163s)** — from all sorts of diseases, especially type 1 and type 2 diabetes, is a lot with just the
+- **[02:49](https://www.youtube.com/watch?v=xxdaLKfFD80&t=169s)** — B1 deficiency. B1 has everything to do with supporting a healthy nervous system. Also
+- **[02:55](https://www.youtube.com/watch?v=xxdaLKfFD80&t=175s)** — everything to support the fuel to be turned into energy. But I want to kind of hone in
+- **[03:01](https://www.youtube.com/watch?v=xxdaLKfFD80&t=181s)** — on this B1 deficiency. So one of the first symptoms is nervous tension, irritability,
+- **[03:07](https://www.youtube.com/watch?v=xxdaLKfFD80&t=187s)** — restlessness, brain fog, and also something called air hunger where it affects your breathing.
+- **[03:12](https://www.youtube.com/watch?v=xxdaLKfFD80&t=192s)** — You're going to start getting numbness on the bottom of your feet or the fingertips. You might
+- **[03:16](https://www.youtube.com/watch?v=xxdaLKfFD80&t=196s)** — have tremors with the hands. You might be very confused. Also your pulse rate might be low,
+- **[03:22](https://www.youtube.com/watch?v=xxdaLKfFD80&t=202s)** — but then when you actually do just a little bit of something it goes way too high. Personality
+- **[03:26](https://www.youtube.com/watch?v=xxdaLKfFD80&t=206s)** — changes. They have very low tolerance to stress. You see this a lot with alcoholics. Well
+- **[03:31](https://www.youtube.com/watch?v=xxdaLKfFD80&t=211s)** — that's because the alcohol really depletes B1 probably more than sugar does. Loss of
+- **[03:36](https://www.youtube.com/watch?v=xxdaLKfFD80&t=216s)** — manual dexterity. The coordination is off. Headaches, insomnia, constipation. Other than
+- **[03:42](https://www.youtube.com/watch?v=xxdaLKfFD80&t=222s)** — you're going to be perfectly fine. Nothing to worry about. Some people will say, well when I
+- **[03:46](https://www.youtube.com/watch?v=xxdaLKfFD80&t=226s)** — eat my junk food it's enriched with B vitamins. Let's just talk about natural versus synthetic
+- **[03:51](https://www.youtube.com/watch?v=xxdaLKfFD80&t=231s)** — B1. Unfortunately the top one of days are synthetically made. And the name for the
+- **[03:57](https://www.youtube.com/watch?v=xxdaLKfFD80&t=237s)** — synthetic version would be thiamine mononitrate. Extremely cheap. You can buy a
+- **[04:02](https://www.youtube.com/watch?v=xxdaLKfFD80&t=242s)** — kilogram of this stuff for roughly 30 bucks. So when you see a bottle of 100 pills and
+- **[04:08](https://www.youtube.com/watch?v=xxdaLKfFD80&t=248s)** — each one has a hundred milligrams of B1 and it only costs five dollars and fifty cents. You have
+- **[04:13](https://www.youtube.com/watch?v=xxdaLKfFD80&t=253s)** — to realize you're still making a massive profit. The bottle is more expensive than the material.
+- **[04:18](https://www.youtube.com/watch?v=xxdaLKfFD80&t=258s)** — Whereas natural B1 is more expensive because you have to use natural sources. One natural
+- **[04:24](https://www.youtube.com/watch?v=xxdaLKfFD80&t=264s)** — version that I like is called alethamine. It's very different than the synthetic version. It's
+- **[04:29](https://www.youtube.com/watch?v=xxdaLKfFD80&t=269s)** — actually a fat soluble and so it can penetrate a lot of different tissues. Whereas the water
+- **[04:35](https://www.youtube.com/watch?v=xxdaLKfFD80&t=275s)** — is not able to penetrate through some of these fat soluble membranes. The synthetic version is
+- **[04:41](https://www.youtube.com/watch?v=xxdaLKfFD80&t=281s)** — dependent on something called active transport when it gets absorbed. Which means there's a certain
+- **[04:46](https://www.youtube.com/watch?v=xxdaLKfFD80&t=286s)** — protein that allows it to go into the body. Number one it gets saturated pretty quick so
+- **[04:50](https://www.youtube.com/watch?v=xxdaLKfFD80&t=290s)** — only a certain amount goes into your body. Also if you have gut problems. Because I'm
+- **[04:56](https://www.youtube.com/watch?v=xxdaLKfFD80&t=296s)** — talking about the absorption in the small intestine. Anything going on with the GI system
+- **[04:59](https://www.youtube.com/watch?v=xxdaLKfFD80&t=299s)** — or inflammation you're going to have a hard time absorbing the synthetic version of B1.
+- **[05:03](https://www.youtube.com/watch?v=xxdaLKfFD80&t=303s)** — Whereas the natural B1 doesn't need active transport. It can go right in. So you can get
+- **[05:09](https://www.youtube.com/watch?v=xxdaLKfFD80&t=309s)** — a lot of it with just small doses. One thing I like about the natural version. It can penetrate
+- **[05:14](https://www.youtube.com/watch?v=xxdaLKfFD80&t=314s)** — the blood brain barrier. When you're taking the synthetic version and you're also consuming
+- **[05:20](https://www.youtube.com/watch?v=xxdaLKfFD80&t=320s)** — carbs, alcohol, chances are you're not going to get very much absorption. When I talked about
+- **[05:25](https://www.youtube.com/watch?v=xxdaLKfFD80&t=325s)** — B1 helping you make energy. It's this natural version of B1 that really can help the
+- **[05:32](https://www.youtube.com/watch?v=xxdaLKfFD80&t=332s)** — mitochondria produce more energy. Another question that people want to know is what about
+- **[05:36](https://www.youtube.com/watch?v=xxdaLKfFD80&t=336s)** — Benfotamine? Benfotamine is good for something called advanced glycation and products. Now what
+- **[05:43](https://www.youtube.com/watch?v=xxdaLKfFD80&t=343s)** — does that mean? Well that's a situation when you're consuming sugar and carbohydrates at the
+- **[05:48](https://www.youtube.com/watch?v=xxdaLKfFD80&t=348s)** — same time. And the sugar connects to the protein and makes the protein unavailable. So
+- **[05:54](https://www.youtube.com/watch?v=xxdaLKfFD80&t=354s)** — it basically makes a lot of sticky proteins that clog everything up in your body. So if you're
+- **[05:58](https://www.youtube.com/watch?v=xxdaLKfFD80&t=358s)** — diabetic, go with the Benfotamine. The other thing you should really know is in order for
+- **[06:04](https://www.youtube.com/watch?v=xxdaLKfFD80&t=364s)** — B1 to work, you need to have coenzymes and the big one is magnesium. Like I said before,
+- **[06:09](https://www.youtube.com/watch?v=xxdaLKfFD80&t=369s)** — when you consume too much carbohydrate and you don't then compensate by taking more B vitamins,
+- **[06:15](https://www.youtube.com/watch?v=xxdaLKfFD80&t=375s)** — that fuel is not going to be utilized. Of course over time, all that sugar without the B1
+- **[06:21](https://www.youtube.com/watch?v=xxdaLKfFD80&t=381s)** — damages the machine. Now you're going to have a hard time using energy. And this is what's
+- **[06:28](https://www.youtube.com/watch?v=xxdaLKfFD80&t=388s)** — Alzheimer's because the neurons can no longer get energy from glucose and many other tissues. And
+- **[06:34](https://www.youtube.com/watch?v=xxdaLKfFD80&t=394s)** — this is why the ketogenic diet is so important because it bypasses all that and it gives the
+- **[06:39](https://www.youtube.com/watch?v=xxdaLKfFD80&t=399s)** — body a different type of fuel from fat, not sugar. And it's in a form of kind of a packaged
+- **[06:45](https://www.youtube.com/watch?v=xxdaLKfFD80&t=405s)** — fat that we can absorb called ketones. Now we can start supporting these cells.
+- **[06:50](https://www.youtube.com/watch?v=xxdaLKfFD80&t=410s)** — But you better also increase the B1 that's deficient or else you might still have issues.
+- **[06:56](https://www.youtube.com/watch?v=xxdaLKfFD80&t=416s)** — Let's talk about the foods that have the most B1. It's not really vegetables. Vegetables
+- **[07:00](https://www.youtube.com/watch?v=xxdaLKfFD80&t=420s)** — have some but they have anti-B1 nutrients like oxalates. That's an anti-B1. Pork, believe it
+- **[07:06](https://www.youtube.com/watch?v=xxdaLKfFD80&t=426s)** — or not, has the most B1. And then beef, wheat germ, whole grains, but I don't recommend that
+- **[07:11](https://www.youtube.com/watch?v=xxdaLKfFD80&t=431s)** — because that's going to give you the gluten and the other issues with the carbs, organ
+- **[07:15](https://www.youtube.com/watch?v=xxdaLKfFD80&t=435s)** — meats, eggs, fish, nuts, things like that. But fat and dairy don't have a lot of B1.
+- **[07:21](https://www.youtube.com/watch?v=xxdaLKfFD80&t=441s)** — Nutritional yeast that's unfortified has a good amount of B1. So like I said before,
+- **[07:24](https://www.youtube.com/watch?v=xxdaLKfFD80&t=444s)** — do not try this experiment at home. If you are on a high carbohydrate diet,
+- **[07:29](https://www.youtube.com/watch?v=xxdaLKfFD80&t=449s)** — go on a low carbohydrate diet. Also make sure you don't become vitamin B1 deficient.

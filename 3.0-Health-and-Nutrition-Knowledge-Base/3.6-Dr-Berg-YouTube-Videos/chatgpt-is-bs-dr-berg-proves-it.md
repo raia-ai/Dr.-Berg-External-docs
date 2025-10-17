@@ -1,0 +1,358 @@
+# ChatGPT is BS (Dr. Berg Proves It)
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=iV6osRQSbXE](https://www.youtube.com/watch?v=iV6osRQSbXE)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=iV6osRQSbXE&t=0s)** — Yesterday, I got in a heated argument with Chachapiti.
+- **[00:03](https://www.youtube.com/watch?v=iV6osRQSbXE&t=3s)** — My wife actually came in and she said,
+- **[00:04](https://www.youtube.com/watch?v=iV6osRQSbXE&t=4s)** — Who are you talking to?
+- **[00:05](https://www.youtube.com/watch?v=iV6osRQSbXE&t=5s)** — I was really frustrated because I wanted to see
+- **[00:07](https://www.youtube.com/watch?v=iV6osRQSbXE&t=7s)** — if Chachapiti had at least basic truthful information
+- **[00:11](https://www.youtube.com/watch?v=iV6osRQSbXE&t=11s)** — in the area of health.
+- **[00:12](https://www.youtube.com/watch?v=iV6osRQSbXE&t=12s)** — How do they know this information is more truthful
+- **[00:16](https://www.youtube.com/watch?v=iV6osRQSbXE&t=16s)** — than something else?
+- **[00:17](https://www.youtube.com/watch?v=iV6osRQSbXE&t=17s)** — It's basically waded through medical consensus.
+- **[00:20](https://www.youtube.com/watch?v=iV6osRQSbXE&t=20s)** — There's so much medical dogma that ends up being
+- **[00:23](https://www.youtube.com/watch?v=iV6osRQSbXE&t=23s)** — completely false over periods of years.
+- **[00:25](https://www.youtube.com/watch?v=iV6osRQSbXE&t=25s)** — Today, we're gonna take a deep dive
+- **[00:27](https://www.youtube.com/watch?v=iV6osRQSbXE&t=27s)** — and ask Chachapiti various questions
+- **[00:29](https://www.youtube.com/watch?v=iV6osRQSbXE&t=29s)** — and see what it says.
+- **[00:31](https://www.youtube.com/watch?v=iV6osRQSbXE&t=31s)** — Before I do that, I want you to comment down below
+- **[00:34](https://www.youtube.com/watch?v=iV6osRQSbXE&t=34s)** — and tell me, how do you find your health information?
+- **[00:38](https://www.youtube.com/watch?v=iV6osRQSbXE&t=38s)** — Where do you go to get answers on health?
+- **[00:41](https://www.youtube.com/watch?v=iV6osRQSbXE&t=41s)** — The first question that I asked Chachapiti is,
+- **[00:43](https://www.youtube.com/watch?v=iV6osRQSbXE&t=43s)** — How do I lose weight?
+- **[00:44](https://www.youtube.com/watch?v=iV6osRQSbXE&t=44s)** — And of course, it said this.
+- **[00:46](https://www.youtube.com/watch?v=iV6osRQSbXE&t=46s)** — Losing weight comes down to creating
+- **[00:47](https://www.youtube.com/watch?v=iV6osRQSbXE&t=47s)** — a sustainable calorie deficit.
+- **[00:51](https://www.youtube.com/watch?v=iV6osRQSbXE&t=51s)** — Burning more calories than you consume.
+- **[00:53](https://www.youtube.com/watch?v=iV6osRQSbXE&t=53s)** — Of course, this dogma has persisted
+- **[00:55](https://www.youtube.com/watch?v=iV6osRQSbXE&t=55s)** — and it's going on right now.
+- **[00:56](https://www.youtube.com/watch?v=iV6osRQSbXE&t=56s)** — This is what the medical profession tells you to do
+- **[00:59](https://www.youtube.com/watch?v=iV6osRQSbXE&t=59s)** — to lose weight.
+- **[01:00](https://www.youtube.com/watch?v=iV6osRQSbXE&t=60s)** — To give you a tip, a good starting point
+- **[01:02](https://www.youtube.com/watch?v=iV6osRQSbXE&t=62s)** — is to reduce your intake by 300 to 500 calories per day.
+- **[01:05](https://www.youtube.com/watch?v=iV6osRQSbXE&t=65s)** — Let's just say you did reduce 500 calories.
+- **[01:08](https://www.youtube.com/watch?v=iV6osRQSbXE&t=68s)** — You're just gonna be so hungry
+- **[01:09](https://www.youtube.com/watch?v=iV6osRQSbXE&t=69s)** — because you're not gonna actually tap into your fat supply.
+- **[01:12](https://www.youtube.com/watch?v=iV6osRQSbXE&t=72s)** — You're gonna be dependent on the calories
+- **[01:14](https://www.youtube.com/watch?v=iV6osRQSbXE&t=74s)** — from the food coming in
+- **[01:15](https://www.youtube.com/watch?v=iV6osRQSbXE&t=75s)** — because you're running on carbs.
+- **[01:17](https://www.youtube.com/watch?v=iV6osRQSbXE&t=77s)** — Then I asked Chachapiti,
+- **[01:18](https://www.youtube.com/watch?v=iV6osRQSbXE&t=78s)** — what is the best diet for health?
+- **[01:21](https://www.youtube.com/watch?v=iV6osRQSbXE&t=81s)** — Number one, the Mediterranean diet.
+- **[01:23](https://www.youtube.com/watch?v=iV6osRQSbXE&t=83s)** — Of course, it's lots of vegetables,
+- **[01:24](https://www.youtube.com/watch?v=iV6osRQSbXE&t=84s)** — fruits, legumes, and whole grains.
+- **[01:27](https://www.youtube.com/watch?v=iV6osRQSbXE&t=87s)** — Moderate fish, poultry.
+- **[01:29](https://www.youtube.com/watch?v=iV6osRQSbXE&t=89s)** — Of course, you have to limit the red meat,
+- **[01:31](https://www.youtube.com/watch?v=iV6osRQSbXE&t=91s)** — sugar and processed foods.
+- **[01:32](https://www.youtube.com/watch?v=iV6osRQSbXE&t=92s)** — I like how they put that together.
+- **[01:34](https://www.youtube.com/watch?v=iV6osRQSbXE&t=94s)** — Limit red meat, sugar and processed foods.
+- **[01:37](https://www.youtube.com/watch?v=iV6osRQSbXE&t=97s)** — Like they lump those three together
+- **[01:39](https://www.youtube.com/watch?v=iV6osRQSbXE&t=99s)** — because they're all of equal importance to avoid.
+- **[01:42](https://www.youtube.com/watch?v=iV6osRQSbXE&t=102s)** — Look at this, optional, moderate red wine.
+- **[01:45](https://www.youtube.com/watch?v=iV6osRQSbXE&t=105s)** — For women, that's one glass per day.
+- **[01:49](https://www.youtube.com/watch?v=iV6osRQSbXE&t=109s)** — For men, it's two glasses of alcohol per day.
+- **[01:51](https://www.youtube.com/watch?v=iV6osRQSbXE&t=111s)** — First of all, if you're recommending a diet
+- **[01:53](https://www.youtube.com/watch?v=iV6osRQSbXE&t=113s)** — that's good for health,
+- **[01:54](https://www.youtube.com/watch?v=iV6osRQSbXE&t=114s)** — and you're actually recommending alcohol,
+- **[01:56](https://www.youtube.com/watch?v=iV6osRQSbXE&t=116s)** — explain to me how that's gonna make anyone healthy.
+- **[01:59](https://www.youtube.com/watch?v=iV6osRQSbXE&t=119s)** — The second diet is, of course, plant-based.
+- **[02:01](https://www.youtube.com/watch?v=iV6osRQSbXE&t=121s)** — Here we got the same old, same old recommendations.
+- **[02:04](https://www.youtube.com/watch?v=iV6osRQSbXE&t=124s)** — Flexitarian diet.
+- **[02:05](https://www.youtube.com/watch?v=iV6osRQSbXE&t=125s)** — This is mostly plants with a moderate amount of protein.
+- **[02:08](https://www.youtube.com/watch?v=iV6osRQSbXE&t=128s)** — Same thing, lean proteins.
+- **[02:10](https://www.youtube.com/watch?v=iV6osRQSbXE&t=130s)** — And then we have the DASH diet.
+- **[02:12](https://www.youtube.com/watch?v=iV6osRQSbXE&t=132s)** — For blood pressure, more grains, lots of vegetables.
+- **[02:16](https://www.youtube.com/watch?v=iV6osRQSbXE&t=136s)** — Fish and lean meat, same old, same old.
+- **[02:18](https://www.youtube.com/watch?v=iV6osRQSbXE&t=138s)** — But now we're gonna lower your sodium as well.
+- **[02:20](https://www.youtube.com/watch?v=iV6osRQSbXE&t=140s)** — Sodium has been found not to cause high blood pressure
+- **[02:24](https://www.youtube.com/watch?v=iV6osRQSbXE&t=144s)** — unless someone's super sensitive and low in potassium.
+- **[02:28](https://www.youtube.com/watch?v=iV6osRQSbXE&t=148s)** — There's just as many, if not more,
+- **[02:30](https://www.youtube.com/watch?v=iV6osRQSbXE&t=150s)** — problems with low sodium,
+- **[02:32](https://www.youtube.com/watch?v=iV6osRQSbXE&t=152s)** — especially if you're going low carb,
+- **[02:33](https://www.youtube.com/watch?v=iV6osRQSbXE&t=153s)** — because when you lower your sodium,
+- **[02:35](https://www.youtube.com/watch?v=iV6osRQSbXE&t=155s)** — you're gonna have weakness in the muscle
+- **[02:37](https://www.youtube.com/watch?v=iV6osRQSbXE&t=157s)** — and the nervous system.
+- **[02:38](https://www.youtube.com/watch?v=iV6osRQSbXE&t=158s)** — People actually need at least one teaspoon
+- **[02:40](https://www.youtube.com/watch?v=iV6osRQSbXE&t=160s)** — and a half per day of sea salt,
+- **[02:43](https://www.youtube.com/watch?v=iV6osRQSbXE&t=163s)** — just to get enough sodium.
+- **[02:45](https://www.youtube.com/watch?v=iV6osRQSbXE&t=165s)** — Diets to avoid long-term.
+- **[02:46](https://www.youtube.com/watch?v=iV6osRQSbXE&t=166s)** — Here we go. Keto and carnivore.
+- **[02:49](https://www.youtube.com/watch?v=iV6osRQSbXE&t=169s)** — Can show fast results, but hard to sustain.
+- **[02:51](https://www.youtube.com/watch?v=iV6osRQSbXE&t=171s)** — Often lacks fiber and can affect long-term heart health.
+- **[02:55](https://www.youtube.com/watch?v=iV6osRQSbXE&t=175s)** — There is absolutely zero evidence of that data.
+- **[03:00](https://www.youtube.com/watch?v=iV6osRQSbXE&t=180s)** — Again, where Chachapi-T gets her data
+- **[03:02](https://www.youtube.com/watch?v=iV6osRQSbXE&t=182s)** — is from organizations like the American Heart Association,
+- **[03:05](https://www.youtube.com/watch?v=iV6osRQSbXE&t=185s)** — the American Diabetes Association.
+- **[03:07](https://www.youtube.com/watch?v=iV6osRQSbXE&t=187s)** — All of these organizations are heavily funded
+- **[03:10](https://www.youtube.com/watch?v=iV6osRQSbXE&t=190s)** — by certain individuals, certain industries
+- **[03:13](https://www.youtube.com/watch?v=iV6osRQSbXE&t=193s)** — that are gonna make them very biased.
+- **[03:15](https://www.youtube.com/watch?v=iV6osRQSbXE&t=195s)** — I mean, think about keto and carnivore.
+- **[03:18](https://www.youtube.com/watch?v=iV6osRQSbXE&t=198s)** — What kind of threat that is to all sorts of money,
+- **[03:22](https://www.youtube.com/watch?v=iV6osRQSbXE&t=202s)** — medications, junk foods.
+- **[03:24](https://www.youtube.com/watch?v=iV6osRQSbXE&t=204s)** — Basically, they call the keto and carnivore fad diet.
+- **[03:28](https://www.youtube.com/watch?v=iV6osRQSbXE&t=208s)** — Quick results, but often result in rebound weight gain
+- **[03:30](https://www.youtube.com/watch?v=iV6osRQSbXE&t=210s)** — and nutrient deficiencies.
+- **[03:33](https://www.youtube.com/watch?v=iV6osRQSbXE&t=213s)** — Wait a second.
+- **[03:34](https://www.youtube.com/watch?v=iV6osRQSbXE&t=214s)** — The healthy version of the ketogenic diet
+- **[03:36](https://www.youtube.com/watch?v=iV6osRQSbXE&t=216s)** — and carnivore are so nutrient dense.
+- **[03:39](https://www.youtube.com/watch?v=iV6osRQSbXE&t=219s)** — Let's just compare that with the dietary food guidelines,
+- **[03:42](https://www.youtube.com/watch?v=iV6osRQSbXE&t=222s)** — which by the way, do not even measure up
+- **[03:44](https://www.youtube.com/watch?v=iV6osRQSbXE&t=224s)** — to give us our basic nutrients,
+- **[03:46](https://www.youtube.com/watch?v=iV6osRQSbXE&t=226s)** — unless you include the three cups of refined grains
+- **[03:49](https://www.youtube.com/watch?v=iV6osRQSbXE&t=229s)** — from the fortification of the synthetic vitamins
+- **[03:52](https://www.youtube.com/watch?v=iV6osRQSbXE&t=232s)** — put in there just to make it have some nutrients.
+- **[03:55](https://www.youtube.com/watch?v=iV6osRQSbXE&t=235s)** — So again, Chachapi-T is just lying through its teeth.
+- **[03:57](https://www.youtube.com/watch?v=iV6osRQSbXE&t=237s)** — General principles for a healthy diet.
+- **[03:59](https://www.youtube.com/watch?v=iV6osRQSbXE&t=239s)** — Well, you have the mostly plants, whole grains,
+- **[04:02](https://www.youtube.com/watch?v=iV6osRQSbXE&t=242s)** — adequate water, enough protein can be plant or animal.
+- **[04:06](https://www.youtube.com/watch?v=iV6osRQSbXE&t=246s)** — You see what they just did.
+- **[04:06](https://www.youtube.com/watch?v=iV6osRQSbXE&t=246s)** — They just kind of made those two equal each other,
+- **[04:09](https://www.youtube.com/watch?v=iV6osRQSbXE&t=249s)** — which is absolutely not true.
+- **[04:11](https://www.youtube.com/watch?v=iV6osRQSbXE&t=251s)** — If you're trying to get protein from plant,
+- **[04:13](https://www.youtube.com/watch?v=iV6osRQSbXE&t=253s)** — good luck, you're gonna be deficient.
+- **[04:15](https://www.youtube.com/watch?v=iV6osRQSbXE&t=255s)** — Next question, is keto healthy to do?
+- **[04:17](https://www.youtube.com/watch?v=iV6osRQSbXE&t=257s)** — Ketogenic diet can be healthy for some people short term,
+- **[04:21](https://www.youtube.com/watch?v=iV6osRQSbXE&t=261s)** — but it's not ideal for everyone
+- **[04:22](https://www.youtube.com/watch?v=iV6osRQSbXE&t=262s)** — or for long-term health in most cases.
+- **[04:25](https://www.youtube.com/watch?v=iV6osRQSbXE&t=265s)** — But then here we go to the risks and the drawbacks,
+- **[04:28](https://www.youtube.com/watch?v=iV6osRQSbXE&t=268s)** — nutrient deficiencies, fiber.
+- **[04:30](https://www.youtube.com/watch?v=iV6osRQSbXE&t=270s)** — I do a version of the ketogenic diet
+- **[04:33](https://www.youtube.com/watch?v=iV6osRQSbXE&t=273s)** — where I actually eat salad, I'm getting fiber.
+- **[04:36](https://www.youtube.com/watch?v=iV6osRQSbXE&t=276s)** — And with greens, you can get vitamin C,
+- **[04:38](https://www.youtube.com/watch?v=iV6osRQSbXE&t=278s)** — you can get a lot of magnesium, potassium,
+- **[04:41](https://www.youtube.com/watch?v=iV6osRQSbXE&t=281s)** — difficult to sustain, many regain weight after stopping,
+- **[04:45](https://www.youtube.com/watch?v=iV6osRQSbXE&t=285s)** — really?
+- **[04:46](https://www.youtube.com/watch?v=iV6osRQSbXE&t=286s)** — Actually, I know a lot of people
+- **[04:47](https://www.youtube.com/watch?v=iV6osRQSbXE&t=287s)** — who have maintained their weight
+- **[04:48](https://www.youtube.com/watch?v=iV6osRQSbXE&t=288s)** — for a very long period of time,
+- **[04:50](https://www.youtube.com/watch?v=iV6osRQSbXE&t=290s)** — and it's very sustainable.
+- **[04:53](https://www.youtube.com/watch?v=iV6osRQSbXE&t=293s)** — May negatively affect athletic performance?
+- **[04:56](https://www.youtube.com/watch?v=iV6osRQSbXE&t=296s)** — No, it actually will help increase athletic performance.
+- **[05:00](https://www.youtube.com/watch?v=iV6osRQSbXE&t=300s)** — Possible impact on gut health?
+- **[05:02](https://www.youtube.com/watch?v=iV6osRQSbXE&t=302s)** — Yeah, positive impact on gut health.
+- **[05:04](https://www.youtube.com/watch?v=iV6osRQSbXE&t=304s)** — Might be beneficial for type two diabetes
+- **[05:07](https://www.youtube.com/watch?v=iV6osRQSbXE&t=307s)** — or pre-diabetes.
+- **[05:08](https://www.youtube.com/watch?v=iV6osRQSbXE&t=308s)** — That's a lot of people, right?
+- **[05:10](https://www.youtube.com/watch?v=iV6osRQSbXE&t=310s)** — And so many people have blood sugar problems.
+- **[05:11](https://www.youtube.com/watch?v=iV6osRQSbXE&t=311s)** — Why wouldn't this be a powerful tool?
+- **[05:15](https://www.youtube.com/watch?v=iV6osRQSbXE&t=315s)** — What is the best way to lower my cholesterol?
+- **[05:17](https://www.youtube.com/watch?v=iV6osRQSbXE&t=317s)** — More fiber, their version of healthy fats,
+- **[05:20](https://www.youtube.com/watch?v=iV6osRQSbXE&t=320s)** — but replace saturated fats with unsaturated fats.
+- **[05:23](https://www.youtube.com/watch?v=iV6osRQSbXE&t=323s)** — In other words, we're going to recommend
+- **[05:26](https://www.youtube.com/watch?v=iV6osRQSbXE&t=326s)** — to eat heart healthy seed oils
+- **[05:29](https://www.youtube.com/watch?v=iV6osRQSbXE&t=329s)** — instead of the saturated fats.
+- **[05:31](https://www.youtube.com/watch?v=iV6osRQSbXE&t=331s)** — Again, this is just completely outdated dogma.
+- **[05:34](https://www.youtube.com/watch?v=iV6osRQSbXE&t=334s)** — That is, yes, it's general consensus,
+- **[05:37](https://www.youtube.com/watch?v=iV6osRQSbXE&t=337s)** — but that's completely outdated and false.
+- **[05:39](https://www.youtube.com/watch?v=iV6osRQSbXE&t=339s)** — Limit red meat and full fat dairy.
+- **[05:43](https://www.youtube.com/watch?v=iV6osRQSbXE&t=343s)** — That would be a mistake.
+- **[05:45](https://www.youtube.com/watch?v=iV6osRQSbXE&t=345s)** — Replace some animal proteins with plant-based proteins.
+- **[05:47](https://www.youtube.com/watch?v=iV6osRQSbXE&t=347s)** — Plants don't have complete proteins.
+- **[05:51](https://www.youtube.com/watch?v=iV6osRQSbXE&t=351s)** — The protein you get from plants is far inferior
+- **[05:54](https://www.youtube.com/watch?v=iV6osRQSbXE&t=354s)** — than the protein you get from animal products.
+- **[05:57](https://www.youtube.com/watch?v=iV6osRQSbXE&t=357s)** — Reduce dietary cholesterol.
+- **[05:59](https://www.youtube.com/watch?v=iV6osRQSbXE&t=359s)** — Limit foods such as egg yolks, shellfish, organ meats.
+- **[06:02](https://www.youtube.com/watch?v=iV6osRQSbXE&t=362s)** — Just ignore that because cholesterol is needed
+- **[06:04](https://www.youtube.com/watch?v=iV6osRQSbXE&t=364s)** — to make bile.
+- **[06:06](https://www.youtube.com/watch?v=iV6osRQSbXE&t=366s)** — It's needed to make vitamin D.
+- **[06:08](https://www.youtube.com/watch?v=iV6osRQSbXE&t=368s)** — It's needed to make all your cell membranes.
+- **[06:10](https://www.youtube.com/watch?v=iV6osRQSbXE&t=370s)** — It's needed for your brain.
+- **[06:11](https://www.youtube.com/watch?v=iV6osRQSbXE&t=371s)** — It's needed for your hormones.
+- **[06:13](https://www.youtube.com/watch?v=iV6osRQSbXE&t=373s)** — Medications if necessary.
+- **[06:15](https://www.youtube.com/watch?v=iV6osRQSbXE&t=375s)** — Hmm, okay.
+- **[06:16](https://www.youtube.com/watch?v=iV6osRQSbXE&t=376s)** — This is what the experts say, statins.
+- **[06:18](https://www.youtube.com/watch?v=iV6osRQSbXE&t=378s)** — All right.
+- **[06:19](https://www.youtube.com/watch?v=iV6osRQSbXE&t=379s)** — Next question.
+- **[06:20](https://www.youtube.com/watch?v=iV6osRQSbXE&t=380s)** — Are seed oils really that bad
+- **[06:22](https://www.youtube.com/watch?v=iV6osRQSbXE&t=382s)** — when seed oils aren't that bad?
+- **[06:24](https://www.youtube.com/watch?v=iV6osRQSbXE&t=384s)** — When used in moderation?
+- **[06:26](https://www.youtube.com/watch?v=iV6osRQSbXE&t=386s)** — When seed oils might be bad, highly refined.
+- **[06:29](https://www.youtube.com/watch?v=iV6osRQSbXE&t=389s)** — Well, that's the majority of seed oils out there.
+- **[06:31](https://www.youtube.com/watch?v=iV6osRQSbXE&t=391s)** — Oh, I like this, the verdict.
+- **[06:32](https://www.youtube.com/watch?v=iV6osRQSbXE&t=392s)** — Should I avoid seed oils?
+- **[06:34](https://www.youtube.com/watch?v=iV6osRQSbXE&t=394s)** — No need to demonize them completely.
+- **[06:36](https://www.youtube.com/watch?v=iV6osRQSbXE&t=396s)** — The key is balance and moderation.
+- **[06:39](https://www.youtube.com/watch?v=iV6osRQSbXE&t=399s)** — This is a play in their playbook.
+- **[06:42](https://www.youtube.com/watch?v=iV6osRQSbXE&t=402s)** — Everything in moderation.
+- **[06:44](https://www.youtube.com/watch?v=iV6osRQSbXE&t=404s)** — So that way you can keep eating the junk food.
+- **[06:46](https://www.youtube.com/watch?v=iV6osRQSbXE&t=406s)** — There is no bad food.
+- **[06:47](https://www.youtube.com/watch?v=iV6osRQSbXE&t=407s)** — It's just about balance and moderation.
+- **[06:49](https://www.youtube.com/watch?v=iV6osRQSbXE&t=409s)** — Well, when you have a chronic disease,
+- **[06:51](https://www.youtube.com/watch?v=iV6osRQSbXE&t=411s)** — you cannot just solve it by balancing your diet.
+- **[06:56](https://www.youtube.com/watch?v=iV6osRQSbXE&t=416s)** — You have to do something out of balance.
+- **[06:57](https://www.youtube.com/watch?v=iV6osRQSbXE&t=417s)** — And I think this is how they normalize carbohydrates.
+- **[06:59](https://www.youtube.com/watch?v=iV6osRQSbXE&t=419s)** — They started to use arguments that we need carbs
+- **[07:02](https://www.youtube.com/watch?v=iV6osRQSbXE&t=422s)** — for our brain to the point where it's like 65%
+- **[07:06](https://www.youtube.com/watch?v=iV6osRQSbXE&t=426s)** — of our calories are grains.
+- **[07:07](https://www.youtube.com/watch?v=iV6osRQSbXE&t=427s)** — What is the best recommendation, diet and nutrition
+- **[07:10](https://www.youtube.com/watch?v=iV6osRQSbXE&t=430s)** — for someone with type 2 diabetes?
+- **[07:12](https://www.youtube.com/watch?v=iV6osRQSbXE&t=432s)** — Why do they add whole grains and legumes?
+- **[07:15](https://www.youtube.com/watch?v=iV6osRQSbXE&t=435s)** — Think about what causes insulin to spike.
+- **[07:18](https://www.youtube.com/watch?v=iV6osRQSbXE&t=438s)** — It's carbs. So what is diabetes?
+- **[07:20](https://www.youtube.com/watch?v=iV6osRQSbXE&t=440s)** — It's a disease where there's too much blood sugar.
+- **[07:23](https://www.youtube.com/watch?v=iV6osRQSbXE&t=443s)** — Why would you want to add more carbs
+- **[07:25](https://www.youtube.com/watch?v=iV6osRQSbXE&t=445s)** — to increase that sugar if type 2 diabetes
+- **[07:28](https://www.youtube.com/watch?v=iV6osRQSbXE&t=448s)** — is too much sugar already?
+- **[07:30](https://www.youtube.com/watch?v=iV6osRQSbXE&t=450s)** — Wow, look at this.
+- **[07:31](https://www.youtube.com/watch?v=iV6osRQSbXE&t=451s)** — One fourth of your plate should be whole grains
+- **[07:33](https://www.youtube.com/watch?v=iV6osRQSbXE&t=453s)** — and starchy vegetables.
+- **[07:34](https://www.youtube.com/watch?v=iV6osRQSbXE&t=454s)** — Really? Sweet potatoes?
+- **[07:35](https://www.youtube.com/watch?v=iV6osRQSbXE&t=455s)** — Why do you even recommend that for diabetes?
+- **[07:37](https://www.youtube.com/watch?v=iV6osRQSbXE&t=457s)** — This is ridiculous.
+- **[07:39](https://www.youtube.com/watch?v=iV6osRQSbXE&t=459s)** — Avoid large portions of carbs. Be mindful.
+- **[07:41](https://www.youtube.com/watch?v=iV6osRQSbXE&t=461s)** — No, no, don't consume any carbs
+- **[07:43](https://www.youtube.com/watch?v=iV6osRQSbXE&t=463s)** — or keep your carbs really, really low.
+- **[07:46](https://www.youtube.com/watch?v=iV6osRQSbXE&t=466s)** — Also, they say focus on complex carbs.
+- **[07:49](https://www.youtube.com/watch?v=iV6osRQSbXE&t=469s)** — Did you know that maltodextrin, modified food starch,
+- **[07:51](https://www.youtube.com/watch?v=iV6osRQSbXE&t=471s)** — and modified cornstarch is classified chemically
+- **[07:54](https://www.youtube.com/watch?v=iV6osRQSbXE&t=474s)** — as a complex carbohydrate?
+- **[07:57](https://www.youtube.com/watch?v=iV6osRQSbXE&t=477s)** — Yeah, I know. It's bizarre.
+- **[07:59](https://www.youtube.com/watch?v=iV6osRQSbXE&t=479s)** — Limit sugary foods and drinks.
+- **[08:02](https://www.youtube.com/watch?v=iV6osRQSbXE&t=482s)** — Wow. If you do consume fruit juice,
+- **[08:05](https://www.youtube.com/watch?v=iV6osRQSbXE&t=485s)** — make sure it's 100% fruit juice.
+- **[08:07](https://www.youtube.com/watch?v=iV6osRQSbXE&t=487s)** — Oh my gosh, this is so, so outdated.
+- **[08:11](https://www.youtube.com/watch?v=iV6osRQSbXE&t=491s)** — Oh, this is good.
+- **[08:12](https://www.youtube.com/watch?v=iV6osRQSbXE&t=492s)** — Meal timing.
+- **[08:14](https://www.youtube.com/watch?v=iV6osRQSbXE&t=494s)** — Spacing meals evenly through the day
+- **[08:15](https://www.youtube.com/watch?v=iV6osRQSbXE&t=495s)** — can prevent blood sugar spikes.
+- **[08:17](https://www.youtube.com/watch?v=iV6osRQSbXE&t=497s)** — Consider smaller, more frequent meals.
+- **[08:19](https://www.youtube.com/watch?v=iV6osRQSbXE&t=499s)** — No, no, we don't want a lot of spikes.
+- **[08:22](https://www.youtube.com/watch?v=iV6osRQSbXE&t=502s)** — The more you eat anything, the more you spike insulin.
+- **[08:24](https://www.youtube.com/watch?v=iV6osRQSbXE&t=504s)** — So this is going to contribute to diabetes,
+- **[08:27](https://www.youtube.com/watch?v=iV6osRQSbXE&t=507s)** — not inhibit it.
+- **[08:28](https://www.youtube.com/watch?v=iV6osRQSbXE&t=508s)** — With type 2 diabetes, you do not need to balance
+- **[08:31](https://www.youtube.com/watch?v=iV6osRQSbXE&t=511s)** — your carbohydrates. That's bad advice.
+- **[08:33](https://www.youtube.com/watch?v=iV6osRQSbXE&t=513s)** — You need to bring your carbs way, way down
+- **[08:35](https://www.youtube.com/watch?v=iV6osRQSbXE&t=515s)** — to as close to zero as possible.
+- **[08:38](https://www.youtube.com/watch?v=iV6osRQSbXE&t=518s)** — Of course, I asked the question,
+- **[08:39](https://www.youtube.com/watch?v=iV6osRQSbXE&t=519s)** — what about red meat?
+- **[08:39](https://www.youtube.com/watch?v=iV6osRQSbXE&t=519s)** — Is it healthy or unhealthy?
+- **[08:42](https://www.youtube.com/watch?v=iV6osRQSbXE&t=522s)** — So it brings up the risks of red meat,
+- **[08:44](https://www.youtube.com/watch?v=iV6osRQSbXE&t=524s)** — especially processed meat.
+- **[08:45](https://www.youtube.com/watch?v=iV6osRQSbXE&t=525s)** — It's interesting how they always combine
+- **[08:47](https://www.youtube.com/watch?v=iV6osRQSbXE&t=527s)** — red meat with processed meat.
+- **[08:49](https://www.youtube.com/watch?v=iV6osRQSbXE&t=529s)** — You know how many people that go on carnivore
+- **[08:52](https://www.youtube.com/watch?v=iV6osRQSbXE&t=532s)** — that improve their blood pressure, their heart function,
+- **[08:55](https://www.youtube.com/watch?v=iV6osRQSbXE&t=535s)** — how many people come off medications
+- **[08:57](https://www.youtube.com/watch?v=iV6osRQSbXE&t=537s)** — that are related to the heart
+- **[08:59](https://www.youtube.com/watch?v=iV6osRQSbXE&t=539s)** — when they do all animal products.
+- **[09:02](https://www.youtube.com/watch?v=iV6osRQSbXE&t=542s)** — It's a lot. Some studies have shown that higher consumption
+- **[09:06](https://www.youtube.com/watch?v=iV6osRQSbXE&t=546s)** — of red meat and processed meat might be associated
+- **[09:08](https://www.youtube.com/watch?v=iV6osRQSbXE&t=548s)** — with higher risk of developing type 2 diabetes.
+- **[09:10](https://www.youtube.com/watch?v=iV6osRQSbXE&t=550s)** — Well, I would love to see those studies.
+- **[09:12](https://www.youtube.com/watch?v=iV6osRQSbXE&t=552s)** — Well, I actually already looked at them
+- **[09:14](https://www.youtube.com/watch?v=iV6osRQSbXE&t=554s)** — and they're observational studies,
+- **[09:16](https://www.youtube.com/watch?v=iV6osRQSbXE&t=556s)** — which by the way, are only meant to develop theories.
+- **[09:19](https://www.youtube.com/watch?v=iV6osRQSbXE&t=559s)** — They're not meant to prove something
+- **[09:22](https://www.youtube.com/watch?v=iV6osRQSbXE&t=562s)** — as it being causative.
+- **[09:26](https://www.youtube.com/watch?v=iV6osRQSbXE&t=566s)** — So what does the research say?
+- **[09:27](https://www.youtube.com/watch?v=iV6osRQSbXE&t=567s)** — Moderation is the key.
+- **[09:29](https://www.youtube.com/watch?v=iV6osRQSbXE&t=569s)** — We have that word again coming up.
+- **[09:30](https://www.youtube.com/watch?v=iV6osRQSbXE&t=570s)** — For example, serving red meat a few times a week,
+- **[09:34](https://www.youtube.com/watch?v=iV6osRQSbXE&t=574s)** — around three to four ounces per serving.
+- **[09:36](https://www.youtube.com/watch?v=iV6osRQSbXE&t=576s)** — Really?
+- **[09:37](https://www.youtube.com/watch?v=iV6osRQSbXE&t=577s)** — No, I consume red meat almost every single day.
+- **[09:40](https://www.youtube.com/watch?v=iV6osRQSbXE&t=580s)** — How much red meat is healthy?
+- **[09:41](https://www.youtube.com/watch?v=iV6osRQSbXE&t=581s)** — Well, the American Heart Association,
+- **[09:43](https://www.youtube.com/watch?v=iV6osRQSbXE&t=583s)** — which by the way, is a private corporation
+- **[09:46](https://www.youtube.com/watch?v=iV6osRQSbXE&t=586s)** — funded by big food.
+- **[09:49](https://www.youtube.com/watch?v=iV6osRQSbXE&t=589s)** — I'm talking about the junk food industry
+- **[09:51](https://www.youtube.com/watch?v=iV6osRQSbXE&t=591s)** — as well as big pharma.
+- **[09:52](https://www.youtube.com/watch?v=iV6osRQSbXE&t=592s)** — You really think that the American Heart Association
+- **[09:54](https://www.youtube.com/watch?v=iV6osRQSbXE&t=594s)** — can be independent and stay independent?
+- **[09:57](https://www.youtube.com/watch?v=iV6osRQSbXE&t=597s)** — No, they can't.
+- **[09:58](https://www.youtube.com/watch?v=iV6osRQSbXE&t=598s)** — American Heart Association recommends
+- **[09:59](https://www.youtube.com/watch?v=iV6osRQSbXE&t=599s)** — limiting red meat in no more than one to two servings per week,
+- **[10:03](https://www.youtube.com/watch?v=iV6osRQSbXE&t=603s)** — with each serving being around three to four ounces.
+- **[10:05](https://www.youtube.com/watch?v=iV6osRQSbXE&t=605s)** — This is actually valuable information
+- **[10:07](https://www.youtube.com/watch?v=iV6osRQSbXE&t=607s)** — to find out what they're recommending you don't do
+- **[10:10](https://www.youtube.com/watch?v=iV6osRQSbXE&t=610s)** — so you can start doing it.
+- **[10:11](https://www.youtube.com/watch?v=iV6osRQSbXE&t=611s)** — I think that would be the only use.
+- **[10:14](https://www.youtube.com/watch?v=iV6osRQSbXE&t=614s)** — The link between red meat and cancer
+- **[10:15](https://www.youtube.com/watch?v=iV6osRQSbXE&t=615s)** — has been a subject of extensive research.
+- **[10:18](https://www.youtube.com/watch?v=iV6osRQSbXE&t=618s)** — And while red meat does not directly cause cancer,
+- **[10:21](https://www.youtube.com/watch?v=iV6osRQSbXE&t=621s)** — there's evidence that excessive consumption
+- **[10:24](https://www.youtube.com/watch?v=iV6osRQSbXE&t=624s)** — of certain types of red meat, processed meat,
+- **[10:27](https://www.youtube.com/watch?v=iV6osRQSbXE&t=627s)** — may increase the risk of cancer.
+- **[10:29](https://www.youtube.com/watch?v=iV6osRQSbXE&t=629s)** — It's just interesting to me
+- **[10:30](https://www.youtube.com/watch?v=iV6osRQSbXE&t=630s)** — how they have to throw those both into the same category
+- **[10:34](https://www.youtube.com/watch?v=iV6osRQSbXE&t=634s)** — when the truth is there is no credible research on red meat.
+- **[10:39](https://www.youtube.com/watch?v=iV6osRQSbXE&t=639s)** — Then I asked Chet Chappie-Tea
+- **[10:41](https://www.youtube.com/watch?v=iV6osRQSbXE&t=641s)** — from a diet and nutrition consideration,
+- **[10:43](https://www.youtube.com/watch?v=iV6osRQSbXE&t=643s)** — what would you recommend for the following conditions?
+- **[10:47](https://www.youtube.com/watch?v=iV6osRQSbXE&t=647s)** — So I'm talking about like autoimmune diseases,
+- **[10:50](https://www.youtube.com/watch?v=iV6osRQSbXE&t=650s)** — fibroids, cancer, glaucoma, ulcers, heartburn,
+- **[10:53](https://www.youtube.com/watch?v=iV6osRQSbXE&t=653s)** — brain fog, peripheral neuropathy,
+- **[10:55](https://www.youtube.com/watch?v=iV6osRQSbXE&t=655s)** — which is a lack of sensation or pain
+- **[10:58](https://www.youtube.com/watch?v=iV6osRQSbXE&t=658s)** — in the bottom of your feet,
+- **[11:00](https://www.youtube.com/watch?v=iV6osRQSbXE&t=660s)** — heart disease and clogged arteries,
+- **[11:02](https://www.youtube.com/watch?v=iV6osRQSbXE&t=662s)** — just to see what they would recommend.
+- **[11:05](https://www.youtube.com/watch?v=iV6osRQSbXE&t=665s)** — Cause that would tell me a lot about
+- **[11:07](https://www.youtube.com/watch?v=iV6osRQSbXE&t=667s)** — where the recommendations came from.
+- **[11:08](https://www.youtube.com/watch?v=iV6osRQSbXE&t=668s)** — Let's start with autoimmune diseases.
+- **[11:11](https://www.youtube.com/watch?v=iV6osRQSbXE&t=671s)** — And they're recommending, you know,
+- **[11:13](https://www.youtube.com/watch?v=iV6osRQSbXE&t=673s)** — omega-3 fatty acids, fruits, vegetables,
+- **[11:16](https://www.youtube.com/watch?v=iV6osRQSbXE&t=676s)** — curcumin, avoid processed food,
+- **[11:18](https://www.youtube.com/watch?v=iV6osRQSbXE&t=678s)** — gluten, nightshade vegetables.
+- **[11:20](https://www.youtube.com/watch?v=iV6osRQSbXE&t=680s)** — That's fine, but none of that is going to
+- **[11:24](https://www.youtube.com/watch?v=iV6osRQSbXE&t=684s)** — put your autoimmune disease in remission.
+- **[11:26](https://www.youtube.com/watch?v=iV6osRQSbXE&t=686s)** — To put any autoimmune condition into remission,
+- **[11:30](https://www.youtube.com/watch?v=iV6osRQSbXE&t=690s)** — you have to do two things.
+- **[11:31](https://www.youtube.com/watch?v=iV6osRQSbXE&t=691s)** — You have to really raise your vitamin D levels
+- **[11:35](https://www.youtube.com/watch?v=iV6osRQSbXE&t=695s)** — to a therapeutic dose.
+- **[11:37](https://www.youtube.com/watch?v=iV6osRQSbXE&t=697s)** — Because vitamin D helps prevent the immune system
+- **[11:40](https://www.youtube.com/watch?v=iV6osRQSbXE&t=700s)** — from making a mistake and attacking its own tissues
+- **[11:43](https://www.youtube.com/watch?v=iV6osRQSbXE&t=703s)** — instead of a microbe or a pathogen.
+- **[11:46](https://www.youtube.com/watch?v=iV6osRQSbXE&t=706s)** — You need a lot of vitamin D
+- **[11:47](https://www.youtube.com/watch?v=iV6osRQSbXE&t=707s)** — and it's called the Coimbra protocol.
+- **[11:49](https://www.youtube.com/watch?v=iV6osRQSbXE&t=709s)** — Instead they have other things that are okay,
+- **[11:52](https://www.youtube.com/watch?v=iV6osRQSbXE&t=712s)** — but they're not significant in putting your
+- **[11:55](https://www.youtube.com/watch?v=iV6osRQSbXE&t=715s)** — autoimmune disease back in remission.
+- **[11:57](https://www.youtube.com/watch?v=iV6osRQSbXE&t=717s)** — Cancer, they're going to recommend plant-based
+- **[11:59](https://www.youtube.com/watch?v=iV6osRQSbXE&t=719s)** — vegetables, cruciferous, healthy fats, et cetera, et cetera.
+- **[12:03](https://www.youtube.com/watch?v=iV6osRQSbXE&t=723s)** — Depending on how severe your cancer is,
+- **[12:05](https://www.youtube.com/watch?v=iV6osRQSbXE&t=725s)** — yes, you need to clean up the junk food
+- **[12:07](https://www.youtube.com/watch?v=iV6osRQSbXE&t=727s)** — and eat healthier, but fasting,
+- **[12:10](https://www.youtube.com/watch?v=iV6osRQSbXE&t=730s)** — that's not even in here, right?
+- **[12:11](https://www.youtube.com/watch?v=iV6osRQSbXE&t=731s)** — Prolonged fasting is the most powerful thing
+- **[12:14](https://www.youtube.com/watch?v=iV6osRQSbXE&t=734s)** — you can do for cancer, especially stage four.
+- **[12:18](https://www.youtube.com/watch?v=iV6osRQSbXE&t=738s)** — Let's get to ulcers, non-acidic foods,
+- **[12:20](https://www.youtube.com/watch?v=iV6osRQSbXE&t=740s)** — bananas, apples, cooked vegetables, oatmeal, probiotics,
+- **[12:24](https://www.youtube.com/watch?v=iV6osRQSbXE&t=744s)** — slippery elm bark, avoid spicy foods.
+- **[12:26](https://www.youtube.com/watch?v=iV6osRQSbXE&t=746s)** — Again, it's not going to work.
+- **[12:28](https://www.youtube.com/watch?v=iV6osRQSbXE&t=748s)** — You need zinc carnosine.
+- **[12:30](https://www.youtube.com/watch?v=iV6osRQSbXE&t=750s)** — The advantage that I've been fortunate to get
+- **[12:32](https://www.youtube.com/watch?v=iV6osRQSbXE&t=752s)** — is experience working one-on-one
+- **[12:35](https://www.youtube.com/watch?v=iV6osRQSbXE&t=755s)** — with a lot of people over many, many years
+- **[12:38](https://www.youtube.com/watch?v=iV6osRQSbXE&t=758s)** — that have been validated by many, many people.
+- **[12:41](https://www.youtube.com/watch?v=iV6osRQSbXE&t=761s)** — How much ultra-processed foods,
+- **[12:42](https://www.youtube.com/watch?v=iV6osRQSbXE&t=762s)** — aka junk foods, can we eat
+- **[12:44](https://www.youtube.com/watch?v=iV6osRQSbXE&t=764s)** — to still live a healthy life?
+- **[12:47](https://www.youtube.com/watch?v=iV6osRQSbXE&t=767s)** — While eating ultra-processed foods occasionally,
+- **[12:49](https://www.youtube.com/watch?v=iV6osRQSbXE&t=769s)** — won't necessarily derail your health.
+- **[12:53](https://www.youtube.com/watch?v=iV6osRQSbXE&t=773s)** — The key is, can you guess what they're going to say?
+- **[12:56](https://www.youtube.com/watch?v=iV6osRQSbXE&t=776s)** — Moderation.
+- **[12:58](https://www.youtube.com/watch?v=iV6osRQSbXE&t=778s)** — Limit the ultra-processed food calories
+- **[13:00](https://www.youtube.com/watch?v=iV6osRQSbXE&t=780s)** — to less than 20 to 25% of your total calories.
+- **[13:04](https://www.youtube.com/watch?v=iV6osRQSbXE&t=784s)** — If you're doing 2,000 calories per day,
+- **[13:08](https://www.youtube.com/watch?v=iV6osRQSbXE&t=788s)** — they're telling us to consume 500 calories
+- **[13:11](https://www.youtube.com/watch?v=iV6osRQSbXE&t=791s)** — of all ultra-processed foods every single day.
+- **[13:14](https://www.youtube.com/watch?v=iV6osRQSbXE&t=794s)** — Well, we have Pop-Tarts.
+- **[13:16](https://www.youtube.com/watch?v=iV6osRQSbXE&t=796s)** — Let's see, that's 370 calories.
+- **[13:20](https://www.youtube.com/watch?v=iV6osRQSbXE&t=800s)** — So I can actually take two of these
+- **[13:22](https://www.youtube.com/watch?v=iV6osRQSbXE&t=802s)** — and probably another one of these.
+- **[13:25](https://www.youtube.com/watch?v=iV6osRQSbXE&t=805s)** — So three Pop-Tarts every single day
+- **[13:27](https://www.youtube.com/watch?v=iV6osRQSbXE&t=807s)** — and still maintain my healthy lifestyle.
+- **[13:32](https://www.youtube.com/watch?v=iV6osRQSbXE&t=812s)** — Now that you have that information,
+- **[13:33](https://www.youtube.com/watch?v=iV6osRQSbXE&t=813s)** — I think it's really important to have the truth
+- **[13:36](https://www.youtube.com/watch?v=iV6osRQSbXE&t=816s)** — about what to eat to create a healthy body.
+- **[13:40](https://www.youtube.com/watch?v=iV6osRQSbXE&t=820s)** — And for that information,
+- **[13:41](https://www.youtube.com/watch?v=iV6osRQSbXE&t=821s)** — you should watch this video right here.
+- **[13:44](https://www.youtube.com/watch?v=iV6osRQSbXE&t=824s)** — Yeah, click this one right now.

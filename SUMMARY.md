@@ -43,6 +43,10 @@
 
 * [Health Topics Directory](3.0-Health-and-Nutrition-Knowledge-Base/3.5-Specific-Health-Topics/README.md)
 
+### 3.6 Dr. Berg YouTube Videos
+
+* [YouTube Video Directory](3.0-Health-and-Nutrition-Knowledge-Base/3.6-Dr-Berg-YouTube-Videos/README.md)
+
 ## 4.0 Product Information
 
 ### 4.1 Product Catalog
@@ -64,5 +68,5 @@
 * **Policies:** Section 2.1
 * **Procedures:** Section 2.2
 * **Health Education:** Section 3.0
+* **YouTube Videos:** Section 3.6
 * **Products:** Section 4.0
-

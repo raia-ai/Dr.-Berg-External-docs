@@ -1,0 +1,118 @@
+# What Happens if You STOP Using Your Cell Phone Before Bed for 14 Days
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=CozZ1Rcm55E](https://www.youtube.com/watch?v=CozZ1Rcm55E)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=0s)** — What would happen if you were to stop using your cell phone before bed for just 14 days?
+- **[00:06](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=6s)** — This is going to be very interesting. The majority of the population uses their cell phone before bed.
+- **[00:10](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=10s)** — And there's two big reasons why they should not do that. But if they do use a cell phone,
+- **[00:15](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=15s)** — there are several things you can do to minimize the problem with this.
+- **[00:18](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=18s)** — The first problem with your cell phone and other mobile devices is this thing called blue light.
+- **[00:24](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=24s)** — In the spectrum of visible light, the first band of light is the blue light.
+- **[00:29](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=29s)** — Blue light powerfully suppresses melatonin. Melatonin is the hormone that helps you go to
+- **[00:37](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=37s)** — sleep at night. If your melatonin is too low, you're going to have a hard time going to sleep
+- **[00:41](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=41s)** — and the quality of sleep is not going to be that great. And this is going to lead to a
+- **[00:44](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=44s)** — whole bunch of problems the next day. Now you're probably asking yourself like why out of all
+- **[00:48](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=48s)** — the different types of color, why is blue the one that messes with your melatonin? Now in order
+- **[00:54](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=54s)** — bodies to have adapted to the awake and sleep cycles, certain triggers were necessary.
+- **[01:01](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=61s)** — You have light and darkness, right? And during the day, what is the color of the sky? Blue.
+- **[01:07](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=67s)** — Blue is the most powerful color that suppresses melatonin because during the day you need to be
+- **[01:13](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=73s)** — alert. And then when it starts to become nighttime and the sun starts setting,
+- **[01:17](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=77s)** — maybe the reddish sunset type colors, those actually don't suppress melatonin. This is why
+- **[01:22](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=82s)** — you should not be exposed to blue light before you go to bed. But in the LED lighting system,
+- **[01:28](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=88s)** — in your cell phone and the digital devices, you have a more intense version of this blue
+- **[01:35](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=95s)** — light. Then even where the sun is at peak at 12 o'clock noon, only 1.5 minutes of exposure
+- **[01:43](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=103s)** — to this blue light before bed can start to reduce your melatonin. Especially since it's
+- **[01:47](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=107s)** — more intense and it's closer to your eyes. Now with the TV screen, it's giving out blue
+- **[01:52](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=112s)** — light but it's further away. It's not as intense. But there's also a blue light therapy to help
+- **[01:57](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=117s)** — people with seasonal affective disorder during the winter time. Now the first thing that comes
+- **[02:02](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=122s)** — to mind is, well, why don't I just use a blue light blockers and wear that before I go
+- **[02:07](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=127s)** — to bed so I can keep using the cell phone or a mobile device? Well, there's some fascinating
+- **[02:12](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=132s)** — information about blue light blockers. And for that, I'm going to give you a little
+- **[02:17](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=137s)** — demonstration right now. Sunglasses do not filter out blue light. And the problem with
+- **[02:22](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=142s)** — sunglasses is they lower all of the spectral light to a certain degree equally, but they
+- **[02:28](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=148s)** — don't filter the blue. This is a very specific laser that gives just the blue light that we
+- **[02:34](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=154s)** — want to filter. And I want to show you something before we get into the blue light blockers.
+- **[02:39](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=159s)** — We're going to show you what happens with just regular sunglasses, right? So I'm just going
+- **[02:44](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=164s)** — to put this right here and then show you. We go through the sunglasses. Let's test another
+- **[02:51](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=171s)** — pair of sunglasses right here. Doesn't really do much, does it? Here's another pair
+- **[02:54](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=174s)** — of sunglasses. Does not filter it worth a darn. I will say that some of these
+- **[03:00](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=180s)** — sunglasses do help you against the UV. So at least it does something. So here's the
+- **[03:04](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=184s)** — first one right here. This is a blue blocker. I think it's like $30, $32.95. So let's see
+- **[03:11](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=191s)** — what happens with this one. It does not work at all. That would be a waste of money. Let's
+- **[03:17](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=197s)** — look at this one right here. This is a blue light blocker. Okay, this one's better, but not
+- **[03:21](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=201s)** — 100%. Let's check this glasses. So we just bought a bunch of different blue blockers and
+- **[03:26](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=206s)** — you can see this one does not block the blue out. Waste of money. Let's try this one right
+- **[03:32](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=212s)** — here. This one works great. This one completely blocks everything out. All right, now let's
+- **[03:38](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=218s)** — look at the one that costs $2.95. It's this one right here. The cool looking one.
+- **[03:47](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=227s)** — Wow, that blocks it really nicely. See that? For three bucks. So I think this is the winner
+- **[03:52](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=232s)** — right here and it looks cool. So I'm going to put this link down below. Okay, there's one
+- **[03:57](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=237s)** — more test we can do with a spectroscope. This is $10. This is going to just show you
+- **[04:02](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=242s)** — what happens when you look at your cell phone. Okay, if you want to just hold this
+- **[04:05](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=245s)** — right here. So when I look into this, you're going to see there's blue light coming off
+- **[04:10](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=250s)** — this cell phone and this is the problem. It's very intense. It's very close to your face
+- **[04:15](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=255s)** — when you're scrolling along. So if you actually were to add something like this,
+- **[04:21](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=261s)** — if you wanted to use your cell phone at night and put this in front and look through
+- **[04:27](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=267s)** — there, you could see the blue light disappears. So in other words, if you want to sleep at
+- **[04:32](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=272s)** — night, you want to wear some type of blue blocking device that really works so you
+- **[04:37](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=277s)** — cannot suppress melatonin. Blue light also increases cortisol to a certain degree
+- **[04:43](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=283s)** — and blue light can actually damage the eye if you have too much exposure to that spectrum,
+- **[04:49](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=289s)** — especially if you're sitting in front of a computer all day long and then
+- **[04:52](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=292s)** — watching your cell phone at night. Then we get into the topic of the next problem
+- **[04:56](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=296s)** — with this cell phone and that is something called EMF. Electromagnetic fields, an invisible
+- **[05:04](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=304s)** — radiation that affects our whole body. It creates damage within the communication
+- **[05:10](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=310s)** — signals in the cell. It also can increase the risk of certain types of cancer in tumor growth
+- **[05:16](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=316s)** — because it damages part of the cell. Now of course I use a cell phone. A lot of people
+- **[05:22](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=322s)** — It's just a matter of understanding what you can do to reduce that exposure to the EMF.
+- **[05:28](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=328s)** — The one that I like is called the tri-field because it's very simple to use and it doesn't
+- **[05:32](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=332s)** — just measure the electrical fields and the magnetic fields but also the radio frequency,
+- **[05:38](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=338s)** — as in cell tower frequencies, frequencies from routers. And so it's very very accurate,
+- **[05:44](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=344s)** — very very simple to use and I've been using this for several years. So I think it'd be a
+- **[05:52](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=352s)** — good idea to start measuring the places in your environment that you spend a lot of time,
+- **[05:56](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=356s)** — whether it's in front of the computer or it's next to a cell phone. And then you can actually
+- **[06:00](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=360s)** — visualize this hidden radiation that's coming off these devices and know how much is being
+- **[06:08](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=368s)** — emitted. Like for example when I first got this I went through my entire house and I found
+- **[06:13](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=373s)** — there was a tremendous amount of magnetic fields around my bed. I noticed that I had
+- **[06:18](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=378s)** — heart palpitations when I slept and I felt really really tired waking up like more than usual
+- **[06:24](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=384s)** — and that's because I was being bathed in this huge magnetic field. So it's going to affect
+- **[06:29](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=389s)** — the quality of sleep, how deep you sleep, and it's going to affect how you feel the next day.
+- **[06:34](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=394s)** — In fact every minute that you use this before you go to bed there could be a delayed sleep
+- **[06:40](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=400s)** — onset by 3.5 minutes. The other thing I want to talk about is REM sleep. So when you go
+- **[06:45](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=405s)** — sleep you go through deep sleep okay and then you go to a superficial wave sleep which is
+- **[06:51](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=411s)** — called REM sleep. And so it kind of cycles through every 90 minutes up and down up and down
+- **[06:55](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=415s)** — versus deep delta wave sleep has a lot to do with repairing the physical body more than
+- **[07:01](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=421s)** — the mental repair. Let's demo out what happens when your cell phone is close to your skull.
+- **[07:08](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=428s)** — What we're trying to do is we're trying to have you take this cell phone and keep it
+- **[07:12](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=432s)** — as far away from your head as possible under speaker mode so you will not affect melatonin
+- **[07:19](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=439s)** — and you can actually sleep like a baby. Now there's a lot of other things that affect
+- **[07:23](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=443s)** — melatonin, alcohol, caffeine, nicotine, stress before bed, and of course we also have
+- **[07:31](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=451s)** — temperature. If the temperature is higher like 75 degrees Fahrenheit your sleep quality is
+- **[07:37](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=457s)** — going to be very poor. But there's a range between 60 degrees and like 69 degrees that
+- **[07:42](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=462s)** — you're going to find that you're going to have much better sleep because when you go to sleep
+- **[07:45](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=465s)** — your core temperature does drop by one to two points. People that have insomnia have a higher
+- **[07:53](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=473s)** — core temperature. Now what's the problem with crappy sleep? It's the next day. Okay, how you
+- **[07:59](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=479s)** — feel? It's your energy level. It's your ability to be productive, your ability to have
+- **[08:03](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=483s)** — cognitive function and have focus and concentration and creativity. I had a problem with sleep for
+- **[08:10](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=490s)** — I'd say 12 to 15 years. At one time I had restless leg syndrome. The other portion of
+- **[08:15](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=495s)** — the time I just would wake up at two o'clock in the morning and it was my cortisol that was
+- **[08:18](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=498s)** — just way too high. Of course I never really looked at my diet but that was really behind
+- **[08:24](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=504s)** — this whole thing. I didn't even use a cell phone before bed and I used to then try to
+- **[08:28](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=508s)** — do a sugar coma by consuming a pint of Ben and Jerry's before bed so I could sleep. But that
+- **[08:33](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=513s)** — is a very stupid solution because you wake up feeling groggy. So what happens when your sleep
+- **[08:39](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=519s)** — is crappy? You're gonna feel like crap the next day. But also you have a higher risk of
+- **[08:43](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=523s)** — having blood sugar problems. The risk of type 2 diabetes goes up by 48%. There's a risk of
+- **[08:50](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=530s)** — dementia by 33% and a 30% risk of developing a depression probably because you're just exhausted.
+- **[08:56](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=536s)** — So there's many simple things you can do to reduce this effect of blue light and EMF.
+- **[09:03](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=543s)** — Let's say you have to use your cell phone then just wear blue light blockers that actually work.
+- **[09:09](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=549s)** — When you use your cell phone use the speaker phone. Don't hold this thing close to your
+- **[09:14](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=554s)** — brain okay? And just by eliminating that certain blue light that's going to make a
+- **[09:19](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=559s)** — huge difference in your melatonin. And also if you're around a campfire or you have candles
+- **[09:25](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=565s)** — or you have a fireplace all of that gives off infrared which can also increase melatonin.
+- **[09:33](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=573s)** — So there are huge benefits of not using that cell phone before you go to bed. And I gave
+- **[09:37](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=577s)** — you a little introduction to the EMF. There's more to know about that and for that I put
+- **[09:43](https://www.youtube.com/watch?v=CozZ1Rcm55E&t=583s)** — up this video right here. Check it out.

@@ -1,0 +1,119 @@
+# The Supplements That ACTUALLY WORK
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=KHTDAnsSO5k](https://www.youtube.com/watch?v=KHTDAnsSO5k)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=0s)** — Let's talk about a natural antibiotic drink that you can make at home that is really powerful, non-toxic,
+- **[00:07](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=7s)** — and you want to take this at the first sign of a cold or the flu.
+- **[00:11](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=11s)** — But let's first step back for a moment and just take a look at the big picture.
+- **[00:14](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=14s)** — A couple very important things about antibiotics.
+- **[00:17](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=17s)** — Number one, they only kill bacteria. They do not kill viruses.
+- **[00:22](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=22s)** — So if you have a viral infection, it's not going to work.
+- **[00:25](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=25s)** — The problem with that is there is a big over-prescription of antibiotics, especially in the US.
+- **[00:33](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=33s)** — But when you take an antibiotic that you don't need over time, it can start building up this resistance.
+- **[00:39](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=39s)** — So the antibiotic kills a good portion of the good microbes,
+- **[00:44](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=44s)** — but the ones that don't die become stronger. They become more resistant.
+- **[00:49](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=49s)** — They start becoming pathogenic.
+- **[00:52](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=52s)** — So now the next time you take an antibiotic, it doesn't work anymore.
+- **[00:56](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=56s)** — And realize this too. In your microbes, if you're only going to kill the antibiotic off
+- **[01:01](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=61s)** — and you're not going to kill the candida or the yeast or other microbes that are in your
+- **[01:07](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=67s)** — microbiome, now we just threw things off.
+- **[01:11](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=71s)** — So in other words, these bacteria were there to keep other things in check,
+- **[01:16](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=76s)** — like the yeast and the candida.
+- **[01:19](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=79s)** — This is why one of the big side effects of an antibiotic is an overgrowth of candida or yeast.
+- **[01:26](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=86s)** — There's antibiotics that are not as strong. They kind of slow down the growth of microbial reproduction.
+- **[01:34](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=94s)** — Those are usually like penicillin or tetracycline.
+- **[01:38](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=98s)** — Now other types of antibiotics like Cipro or Levoquin, those are more powerful.
+- **[01:44](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=104s)** — They have like a black box warning on them because they create side effects.
+- **[01:48](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=108s)** — Like they can rupture your tendon. Tendonitis? Yeah, not good.
+- **[01:53](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=113s)** — And if you ever have to take those antibiotics, always make sure you take
+- **[01:58](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=118s)** — three things with them. Magnesium, also vitamin E, and probiotics.
+- **[02:05](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=125s)** — But for any antibiotics that you take from the doctor, make sure you always
+- **[02:08](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=128s)** — take a probiotic at the same time.
+- **[02:11](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=131s)** — Antibiotics have been around for a very, very long time, but they weren't necessarily
+- **[02:15](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=135s)** — called antibiotics back then. They were just taken by some bit of wisdom.
+- **[02:20](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=140s)** — I mean even like a thousand years ago they found in this Nubian mummy
+- **[02:24](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=144s)** — significant amounts of tetracycline. Where did that come from?
+- **[02:29](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=149s)** — Antibiotics naturally come from molds and other microorganisms in the soil.
+- **[02:35](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=155s)** — I mean even like there's antibiotics in like the mold and bread.
+- **[02:38](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=158s)** — So I think there's a lot of wisdom in the past as far as us taking
+- **[02:42](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=162s)** — natural remedies for various things. So who knows how that culture got that
+- **[02:48](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=168s)** — tetracycline. But you know it's been there for a thousand years.
+- **[02:52](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=172s)** — Now the other important thing to know about antibiotics is that after taking them,
+- **[02:56](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=176s)** — it could take weeks to years before you get back these original microbes.
+- **[03:03](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=183s)** — I believe 80% of your immune system is your microbiome.
+- **[03:07](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=187s)** — But what I'm going to recommend in this video is to tap into and borrow from
+- **[03:13](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=193s)** — herbs the natural antibiotic chemicals that these plants have developed over eons.
+- **[03:21](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=201s)** — You can actually use them like anti-inflammatory effects,
+- **[03:24](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=204s)** — anti-microbial effects, anti-diabetic effects, anti-cancer effects.
+- **[03:29](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=209s)** — I mean even like garlic for example has like 33 different sulfur antibiotic chemicals.
+- **[03:35](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=215s)** — Now if you compare that to like penicillin which only has one,
+- **[03:40](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=220s)** — you can see very quickly that your microbiome it's going to be easy for them to wipe out
+- **[03:44](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=224s)** — that one antibiotic. It's going to be more difficult to wipe out the complex
+- **[03:49](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=229s)** — group of antibiotics in garlic. In fact it's not going to happen.
+- **[03:53](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=233s)** — Right now they're actually testing and researching using some of these
+- **[03:57](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=237s)** — natural antibiotics that don't create this resistance to microbes
+- **[04:01](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=241s)** — on bacteria that have resistance to you know antibiotics.
+- **[04:05](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=245s)** — So we're borrowing these complex chemicals that have virtually no side effects and we're
+- **[04:10](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=250s)** — going to use them to our advantage. Two quick points before I dive into the actual recipe.
+- **[04:16](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=256s)** — Number one, if you get a fever don't try to automatically suppress the fever because
+- **[04:21](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=261s)** — you're going to increase the duration of the infection.
+- **[04:25](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=265s)** — A better solution would be to dress up really warm bundle up and have all these blankets on
+- **[04:30](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=270s)** — you when you're in bed after maybe you took a hot shower and just start sweating to
+- **[04:35](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=275s)** — increase the temperature to cook off these microbes both bacteria and viruses.
+- **[04:41](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=281s)** — The second thing is stress. Stress, cortisol, paralyzes the immune system.
+- **[04:48](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=288s)** — Your white blood cells go down. They become suppressed.
+- **[04:51](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=291s)** — So I've noticed this in practice with virtually almost 100% of the
+- **[04:56](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=296s)** — people coming in that had an infection. They always had a stress event that occurred
+- **[05:02](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=302s)** — before that made them susceptible to getting the infection. So just realize that and do what
+- **[05:08](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=308s)** — you can to keep that stress at a minimum especially if you're getting run down.
+- **[05:13](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=313s)** — So this particular drink should be taken at the first sign of a cough. The first sign of a
+- **[05:19](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=319s)** — you start sneezing excessively or like a tickle in your throat. Start this because you
+- **[05:24](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=324s)** — can actually stop it in its tracks so you don't have to go through like 10 days of
+- **[05:29](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=329s)** — So the first thing is garlic. You're going to take three cloves of garlic.
+- **[05:34](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=334s)** — Okay, you're going to put those in the blender. Garlic has like I said before 33
+- **[05:37](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=337s)** — different sulfur compounds that have anti-microbial properties. The cool thing
+- **[05:43](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=343s)** — about garlic it's very anti-viral. Then we're going to use echinacea. The cool
+- **[05:47](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=347s)** — thing about echinacea is that it works really good to stop the start of an infection.
+- **[05:54](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=354s)** — And it's really good for strep and staph and sore throat stuff and other pathogens as well.
+- **[06:01](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=361s)** — And you want to consume a good amount of it. So I'm going to recommend in this one 16
+- **[06:06](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=366s)** — ounce drink using 90 drops. Okay, now some people just like use 30 drops in some water
+- **[06:13](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=373s)** — every hour. 90 is not excessive. So we're going to take these 90 drops,
+- **[06:18](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=378s)** — put it into the blender. And the cool thing about echinacea it'll kind of numb your
+- **[06:22](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=382s)** — throat if you have a sore throat. The next thing is you're going to throw a whole
+- **[06:25](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=385s)** — organic lemon in it. Okay, don't just use the juice. Don't use lemon juice. Use the whole
+- **[06:31](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=391s)** — lemon. What's in a lemon? Vitamin C. There's some other things in the lemon too. The lemon
+- **[06:36](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=396s)** — peel. You have all these essential oils that have anti-microbial properties. There's
+- **[06:42](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=402s)** — anti-microbial properties in the seeds. So you're going to blend all that and you're
+- **[06:46](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=406s)** — going to consume it. Now we're going to add one tablespoon of apple cider vinegar. I
+- **[06:52](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=412s)** — like the Braggs because Fairchild's is more concentrated. The Braggs adds water to dilute
+- **[06:57](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=417s)** — it. Anyway, you're going to take this apple cider vinegar. You're going to put a tablespoon
+- **[07:01](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=421s)** — in there. And the apple cider vinegar is going to act as an acid to stimulate something
+- **[07:06](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=426s)** — called the phagocytosis, which is the immune system's cleaning action of certain cells.
+- **[07:13](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=433s)** — It's going to stimulate those, get those guys in action and start cleaning mucus and
+- **[07:19](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=439s)** — things involved, especially pathogens. Then we're going to add one tablespoon of raw honey.
+- **[07:26](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=446s)** — You can also use manuka honey. So with the raw honey, you're going to have all these enzymes.
+- **[07:31](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=451s)** — You're going to have these plant-based chemicals from a wide range of flowers. I mean,
+- **[07:38](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=458s)** — if you think about it, raw honey was the first antibiotic. It has antibiotic properties
+- **[07:44](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=464s)** — unless you heat it and pasteurize it. There's some really interesting things in raw honey. You
+- **[07:48](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=468s)** — have hydrogen peroxide, which can act as an antiseptic. And the pH of it is slightly lower,
+- **[07:54](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=474s)** — so it's kind of acidic. Then you're going to add 16 ounces of water. You're going to blend
+- **[07:58](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=478s)** — it up for about 45 seconds. And you're going to drink one-third of that and then put the
+- **[08:04](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=484s)** — rest in the refrigerator and then wait for several hours and then do the next dosage.
+- **[08:09](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=489s)** — You're going to take one-third three times in one day. And then after the second dosage,
+- **[08:14](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=494s)** — you'll take the last a little bit later in the evening. Now, what you should notice is a
+- **[08:18](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=498s)** — diminishing of the symptoms. You should feel better. You should sleep better. You may want
+- **[08:23](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=503s)** — to do this a second day or a third day. And if you're in the middle of an infection,
+- **[08:27](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=507s)** — I would recommend to do this throughout the entire infection because it will actually speed
+- **[08:31](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=511s)** — up the process of you recovering. Do not forget to take 50,000 IUs of vitamin D3.
+- **[08:39](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=519s)** — I've kind of a quick boost to your immune system because vitamin D3 is awesome for the immune
+- **[08:45](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=525s)** — system. Every part of your immune system needs vitamin D3. I would also add some zinc in there,
+- **[08:50](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=530s)** — maybe 100 to 150 milligrams, to get your system all geared up to fight off this thing
+- **[08:56](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=536s)** — a little bit better. And so just give yourself time to allow yourself to go through this cycle.
+- **[09:00](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=540s)** — And if you do these things, it'll be faster than if you didn't. Now, if you haven't seen
+- **[09:05](https://www.youtube.com/watch?v=KHTDAnsSO5k&t=545s)** — my other really popular video on the antibiotic drink, I put that up right here. Check it out.

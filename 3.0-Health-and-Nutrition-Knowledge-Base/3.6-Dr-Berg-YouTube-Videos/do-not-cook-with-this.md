@@ -1,0 +1,92 @@
+# Do NOT Cook with This!!!
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=hmkoFDMAvkc](https://www.youtube.com/watch?v=hmkoFDMAvkc)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=0s)** — So let's talk about the best oil to deep fry your foods in. Well, you should probably use
+- **[00:05](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=5s)** — something healthy like vegetable oil, right? Because you can see these healthy vegetables here.
+- **[00:11](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=11s)** — And you can see this one is Clover Valley. So it's probably a beautiful farm, rolling hills,
+- **[00:16](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=16s)** — and Clover where they make this vegetable oil. And it's pure vegetable oil. It's actually
+- **[00:22](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=22s)** — considered heart healthy on the label. There's just a little bit of saturated fat in here.
+- **[00:26](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=26s)** — It's two grams. There's no sugar. There's no trans fats. And there's no gluten. And so this
+- **[00:34](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=34s)** — is pretty much the best oil you should use to deep fry your food. And I hope you know that I
+- **[00:39](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=39s)** — am completely and utterly sarcastic today. We're going to talk about seed oils right here.
+- **[00:47](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=47s)** — And then I'm going to show you what I think you should do regarding the deep fried oils.
+- **[00:52](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=52s)** — Seed oils are called polyunsaturated fatty acids. Poly meaning many. Unsaturated
+- **[00:59](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=59s)** — mean a type of oil that it's very, very fragile and unstable. Now the first thing you need to
+- **[01:05](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=65s)** — know is that when they talk about vegetable oils, they're really talking about seed oils.
+- **[01:10](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=70s)** — I know they have pictures of vegetables, but this is not where they're getting the oil from.
+- **[01:13](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=73s)** — It comes from corn, soy, canola, things like that. They're considered one part of the
+- **[01:22](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=82s)** — processing where they're heating, adding hexane, which is a solvent that's in gasoline.
+- **[01:28](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=88s)** — And so they go through this incredible refining process where you end up with this
+- **[01:31](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=91s)** — very refined empty oil. And one of the reasons they do this is so it can sit on the shelf
+- **[01:37](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=97s)** — for a long period of time. We consume like 25 to 30% of our calories with this right here.
+- **[01:45](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=105s)** — Yeah, incredible. You start reading the ingredients and it's in almost everything.
+- **[01:50](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=110s)** — When you fry foods in these oils, you're basically frying other
+- **[01:55](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=115s)** — alter process ingredients in this alter process ingredient. For example, let's say you have a
+- **[02:01](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=121s)** — donut, right? Which is pure alter process food and you're going to deep fry it in the seed
+- **[02:06](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=126s)** — oil. You're going to heat a starch or sugar with a fat. That's going to create
+- **[02:13](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=133s)** — really sticky proteins in our bodies. It's called glycation and that sticky protein is
+- **[02:19](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=139s)** — going to gunk everything up and make it dysfunctional. And let's say, for example,
+- **[02:23](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=143s)** — we're going to deep fry some chicken, right? We're not just going to deep fry chicken. We
+- **[02:26](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=146s)** — have to coat the chicken with an alter process ingredient, maybe with a starch, right?
+- **[02:33](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=153s)** — So now we're combining heat with fat with protein. That's again going to create this
+- **[02:40](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=160s)** — sticky substance that's going to kind of clog everything up. Now, when you go to a fast
+- **[02:45](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=165s)** — food restaurant, they don't just use this oil once. They use it like a hundred times
+- **[02:51](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=171s)** — and they're going to keep reheating it and reheating it and reheating it day after day
+- **[02:55](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=175s)** — cooking your food. And the more they heat it, the more toxic the food is. And a couple
+- **[03:02](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=182s)** — more things I want to bring up about seed oils before I move on. But seed oils were
+- **[03:06](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=186s)** — never meant to be consumed, okay? Even like in 1865, when they kind of found a process to
+- **[03:14](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=194s)** — develop these seed oils, it wasn't meant for human consumption, okay? These polyunsaturated
+- **[03:19](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=199s)** — fatty acids are meant to support our membranes of ourselves. Now the membranes are around our
+- **[03:28](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=208s)** — cells. Also, if you look inside the cell, you have all these little things that do the work.
+- **[03:34](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=214s)** — Each thing has a bag around it, which is a membrane. They allow things to communicate back
+- **[03:40](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=220s)** — and forth. But you also have the mitochondria in here. And the mitochondria is really important
+- **[03:44](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=224s)** — because nearly every disease relates to dysfunctional mitochondria. And the seed oils can actually
+- **[03:50](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=230s)** — get into the membranes and replace the membranes. And so if you're replacing the
+- **[03:54](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=234s)** — membranes with this material, it's not good. So I'm studying a book on membranes right
+- **[04:00](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=240s)** — here, Basic Principle of Membrane Technology. It's fascinating because it goes into the
+- **[04:05](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=245s)** — chemistry of membranes and how amazing they are. And also in this book right here,
+- **[04:11](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=251s)** — The Ancestral Diet Revolution, How Vegetable Oils and Processed Foods
+- **[04:15](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=255s)** — Destroy Our Health and How to Recover. Here's a picture of a kid who's smoking, right? Well,
+- **[04:22](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=262s)** — the oxidative stress that occurs with smoking kind of poisons us for about six months to a
+- **[04:28](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=268s)** — year after quitting. But we consume the seed oils, right? It's going to poison us for about
+- **[04:34](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=274s)** — three years after just one serving in cooking oil. Yeah, there's some fascinating data. So
+- **[04:42](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=282s)** — these oils were never meant for fuel, like other fats. And the biggest damaging effect from
+- **[04:48](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=288s)** — these seed oils is what they do to your mitochondria. And this is why seed oils lead
+- **[04:53](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=293s)** — to insulin resistance. Of course, from there you have a fatty liver, obesity, heart
+- **[04:59](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=299s)** — disease, increase your risk for cancer, etc, etc, etc. So anytime you add heat to seed oils,
+- **[05:04](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=304s)** — and by the way, they're already heated when you get them, you create more toxicity and they
+- **[05:10](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=310s)** — actually give off a lot of byproducts that creates a lot of... it's called oxidation.
+- **[05:16](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=316s)** — You can look at oxidation like rusting out something, but the seed oils are not being
+- **[05:21](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=321s)** — burned up as fuel in the body. So they kind of get lodged and stored in the body. And they
+- **[05:26](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=326s)** — gunk up everything. Now let's look at the oils that you could use if you wanted to deep fry
+- **[05:31](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=331s)** — something. So this graph represents something called the peroxidation. That's that in the
+- **[05:37](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=337s)** — process of being oxidized stage, soybean is the highest, right? So it creates a lot of
+- **[05:44](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=344s)** — problems. And then we have corn oil, then we have sunflower oil, and then canola. And then
+- **[05:50](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=350s)** — beef, tailo, and coconut. So if you wanted to deep fry something, you have options. You have
+- **[05:58](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=358s)** — avocado oil, you have coconut oil, you have palm oil, you have olive oil, then you have
+- **[06:06](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=366s)** — tailo, and then you have butter or ghee. So you could potentially use any one of those
+- **[06:12](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=372s)** — oils. Now here's the problem. You probably shouldn't be deep frying any food at high heat
+- **[06:18](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=378s)** — because no matter what oil that you use, high heat is going to create problems. Avocado oil,
+- **[06:24](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=384s)** — if you get it really refined, it's going to create more damage. If you get it like healthier
+- **[06:29](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=389s)** — when we're actually the color of its green and it's cold process, you probably should just put
+- **[06:34](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=394s)** — on your salad and not use it with heat. But avocado oil does have higher amounts of
+- **[06:40](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=400s)** — monounsaturated, which is going to oxidize less. Just like olive oil, which is high in
+- **[06:44](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=404s)** — monounsaturated fats, you get a lot of the protective factors as well. Same with coconut
+- **[06:49](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=409s)** — oil and palm oil, but those may smoke a lot more when heating. So maybe like a moderate heat
+- **[06:54](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=414s)** — or maybe a stir fry or even pan-fried, that would be a lot better. And then you get to
+- **[07:01](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=421s)** — tailo, beef fat, because that's going to be much better for you. You can also use ghee,
+- **[07:05](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=425s)** — which is a little bit better than butter if you're cooking it to a higher heat. But with
+- **[07:10](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=430s)** — with like eggs and things or stir frying vegetables, you're not going to heat it
+- **[07:16](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=436s)** — to the point where it's so hot that you're going to get smoking. And I think you're going
+- **[07:20](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=440s)** — to enjoy the flavor from just using butter. I think pan-frying is going to be much better.
+- **[07:25](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=445s)** — If you can do an air fryer, that would be awesome because you don't have to use any oils.
+- **[07:31](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=451s)** — And then of course you have stir frying. That's a good one too. Now, since I did
+- **[07:34](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=454s)** — mention this deep fried chicken, I know you're probably hungry right now and you're
+- **[07:40](https://www.youtube.com/watch?v=hmkoFDMAvkc&t=460s)** — up right here. Check it out.

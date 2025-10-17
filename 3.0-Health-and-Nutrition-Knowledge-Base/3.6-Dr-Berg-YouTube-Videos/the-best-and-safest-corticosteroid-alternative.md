@@ -1,0 +1,99 @@
+# The Best and Safest CORTICOSTEROID Alternative
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=hxY43mBVOOc](https://www.youtube.com/watch?v=hxY43mBVOOc)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=hxY43mBVOOc&t=0s)** — I recently did a video on Ozembic, but now I want to do a video on Mongero.
+- **[00:05](https://www.youtube.com/watch?v=hxY43mBVOOc&t=5s)** — Now, Mongero is a very similar medication.
+- **[00:07](https://www.youtube.com/watch?v=hxY43mBVOOc&t=7s)** — Apparently, in several studies, it works a little bit better than Ozembic.
+- **[00:12](https://www.youtube.com/watch?v=hxY43mBVOOc&t=12s)** — More weight loss, less time.
+- **[00:14](https://www.youtube.com/watch?v=hxY43mBVOOc&t=14s)** — Both these medications were primarily used for regulating blood sugars with diabetes,
+- **[00:19](https://www.youtube.com/watch?v=hxY43mBVOOc&t=19s)** — but they also found that it helps you lose weight, which makes sense
+- **[00:23](https://www.youtube.com/watch?v=hxY43mBVOOc&t=23s)** — because anything that improves blood sugars will obviously help you lose weight.
+- **[00:26](https://www.youtube.com/watch?v=hxY43mBVOOc&t=26s)** — So the first thing I want to say is Mongero does create some really interesting effects
+- **[00:31](https://www.youtube.com/watch?v=hxY43mBVOOc&t=31s)** — with weight loss and blood sugars.
+- **[00:34](https://www.youtube.com/watch?v=hxY43mBVOOc&t=34s)** — There's no doubt. Actually, it can even improve insulin resistance
+- **[00:36](https://www.youtube.com/watch?v=hxY43mBVOOc&t=36s)** — and decrease your A1C, which is an average blood sugar for three months.
+- **[00:41](https://www.youtube.com/watch?v=hxY43mBVOOc&t=41s)** — So I'm not going to say that it doesn't work, but it's expensive.
+- **[00:45](https://www.youtube.com/watch?v=hxY43mBVOOc&t=45s)** — It's like $1,000 to $1,300 a month.
+- **[00:48](https://www.youtube.com/watch?v=hxY43mBVOOc&t=48s)** — And it does come with other side effects other than just being expensive.
+- **[00:52](https://www.youtube.com/watch?v=hxY43mBVOOc&t=52s)** — But the big question is what happens when you come off the medication?
+- **[00:54](https://www.youtube.com/watch?v=hxY43mBVOOc&t=54s)** — Does it actually correct the problem?
+- **[00:56](https://www.youtube.com/watch?v=hxY43mBVOOc&t=56s)** — The answer is no. You have to keep taking it for it to work.
+- **[01:01](https://www.youtube.com/watch?v=hxY43mBVOOc&t=61s)** — Do you end up taking it the rest of your life? Is it healthy?
+- **[01:05](https://www.youtube.com/watch?v=hxY43mBVOOc&t=65s)** — What are the long-term effects? Well, we don't know.
+- **[01:08](https://www.youtube.com/watch?v=hxY43mBVOOc&t=68s)** — But the short-term effects are the following nausea, vomiting,
+- **[01:12](https://www.youtube.com/watch?v=hxY43mBVOOc&t=72s)** — diarrhea, constipation, gastroparesis, which is a situation
+- **[01:17](https://www.youtube.com/watch?v=hxY43mBVOOc&t=77s)** — where your stomach is a bit paralyzed. Food goes through very, very slowly.
+- **[01:21](https://www.youtube.com/watch?v=hxY43mBVOOc&t=81s)** — Another side effect would be abdominal pain, dizziness, lethargy,
+- **[01:26](https://www.youtube.com/watch?v=hxY43mBVOOc&t=86s)** — low blood sugar, as in hypoglycemia, various kidney problems.
+- **[01:29](https://www.youtube.com/watch?v=hxY43mBVOOc&t=89s)** — Like kidney disease could happen as well.
+- **[01:31](https://www.youtube.com/watch?v=hxY43mBVOOc&t=91s)** — And even retinopathy, which is a problem with your retina.
+- **[01:35](https://www.youtube.com/watch?v=hxY43mBVOOc&t=95s)** — Let me just kind of touch on that for a second. The slow metabolism.
+- **[01:38](https://www.youtube.com/watch?v=hxY43mBVOOc&t=98s)** — People that have a slow metabolism actually have a very efficient metabolism.
+- **[01:44](https://www.youtube.com/watch?v=hxY43mBVOOc&t=104s)** — Probably from dieting in the past. You go on some diet
+- **[01:47](https://www.youtube.com/watch?v=hxY43mBVOOc&t=107s)** — and then your body adapts and compensates, especially if you go on a lower
+- **[01:53](https://www.youtube.com/watch?v=hxY43mBVOOc&t=113s)** — calorie diet and then becomes more efficient.
+- **[01:56](https://www.youtube.com/watch?v=hxY43mBVOOc&t=116s)** — So now it can run on a smaller amount of fuel.
+- **[02:00](https://www.youtube.com/watch?v=hxY43mBVOOc&t=120s)** — It doesn't want to waste this energy. So it's very conservative.
+- **[02:04](https://www.youtube.com/watch?v=hxY43mBVOOc&t=124s)** — So it's like a car that gets a lot of miles per gallon, right?
+- **[02:07](https://www.youtube.com/watch?v=hxY43mBVOOc&t=127s)** — Versus a very inefficient motor, which is a gas guzzler.
+- **[02:11](https://www.youtube.com/watch?v=hxY43mBVOOc&t=131s)** — So this is really a survival thing that we have in our genetics.
+- **[02:15](https://www.youtube.com/watch?v=hxY43mBVOOc&t=135s)** — So anything like fat storage is survival to the body.
+- **[02:20](https://www.youtube.com/watch?v=hxY43mBVOOc&t=140s)** — And so anytime you try to lose weight, the body will resist it
+- **[02:23](https://www.youtube.com/watch?v=hxY43mBVOOc&t=143s)** — because you're getting rid of this potential survival.
+- **[02:27](https://www.youtube.com/watch?v=hxY43mBVOOc&t=147s)** — So when we use a drug to bypass this whole mechanism to try to help you lose weight,
+- **[02:32](https://www.youtube.com/watch?v=hxY43mBVOOc&t=152s)** — you really have to understand what's happening to the body internally.
+- **[02:36](https://www.youtube.com/watch?v=hxY43mBVOOc&t=156s)** — You're artificially mimicking these two hormones
+- **[02:40](https://www.youtube.com/watch?v=hxY43mBVOOc&t=160s)** — because these drugs act to mimic two different hormones
+- **[02:45](https://www.youtube.com/watch?v=hxY43mBVOOc&t=165s)** — that are in your small intestine. One is called GLP-1
+- **[02:48](https://www.youtube.com/watch?v=hxY43mBVOOc&t=168s)** — and the other one is called GIP. They're drugs that mimic these hormones.
+- **[02:54](https://www.youtube.com/watch?v=hxY43mBVOOc&t=174s)** — So my question is, is it possible to create this similar effect
+- **[02:59](https://www.youtube.com/watch?v=hxY43mBVOOc&t=179s)** — but without the side effects? Can you use something more natural?
+- **[03:03](https://www.youtube.com/watch?v=hxY43mBVOOc&t=183s)** — Is there such a thing as some type of maybe herbal or plant-based
+- **[03:09](https://www.youtube.com/watch?v=hxY43mBVOOc&t=189s)** — agonist for these two hormones? And the answer is yes, there is.
+- **[03:12](https://www.youtube.com/watch?v=hxY43mBVOOc&t=192s)** — And I put a link down below of the research on that.
+- **[03:16](https://www.youtube.com/watch?v=hxY43mBVOOc&t=196s)** — And it's called phytomedicine. You're using plants as medicine.
+- **[03:20](https://www.youtube.com/watch?v=hxY43mBVOOc&t=200s)** — But the cool thing about it is there's very minimal toxicity
+- **[03:23](https://www.youtube.com/watch?v=hxY43mBVOOc&t=203s)** — and there's all sorts of properties, especially things that relate to
+- **[03:28](https://www.youtube.com/watch?v=hxY43mBVOOc&t=208s)** — blood sugar control and many other effects in plants.
+- **[03:32](https://www.youtube.com/watch?v=hxY43mBVOOc&t=212s)** — I mean, there's probably about at least 400 different chemicals
+- **[03:36](https://www.youtube.com/watch?v=hxY43mBVOOc&t=216s)** — that can help blood sugar from different angles.
+- **[03:40](https://www.youtube.com/watch?v=hxY43mBVOOc&t=220s)** — These two hormones that these drugs are mimicking raise insulin
+- **[03:44](https://www.youtube.com/watch?v=hxY43mBVOOc&t=224s)** — to lower the blood sugar and also reduce the production of glucose
+- **[03:49](https://www.youtube.com/watch?v=hxY43mBVOOc&t=229s)** — from the liver. That's called gluconeogenesis.
+- **[03:51](https://www.youtube.com/watch?v=hxY43mBVOOc&t=231s)** — And they also affect the digestive system.
+- **[03:53](https://www.youtube.com/watch?v=hxY43mBVOOc&t=233s)** — They actually make you feel full. They help reduce the appetite.
+- **[03:57](https://www.youtube.com/watch?v=hxY43mBVOOc&t=237s)** — So it's going to curb your hunger and help you eat less.
+- **[04:01](https://www.youtube.com/watch?v=hxY43mBVOOc&t=241s)** — So my question is, number one, is there something non-toxic
+- **[04:04](https://www.youtube.com/watch?v=hxY43mBVOOc&t=244s)** — without the side effects? And is there something you can do long-term
+- **[04:08](https://www.youtube.com/watch?v=hxY43mBVOOc&t=248s)** — to create this same effect to add it as a part of your long-term healthy lifestyle
+- **[04:15](https://www.youtube.com/watch?v=hxY43mBVOOc&t=255s)** — instead of a short-term, very expensive drug approach?
+- **[04:19](https://www.youtube.com/watch?v=hxY43mBVOOc&t=259s)** — And I forgot to mention lowered stomach acids.
+- **[04:23](https://www.youtube.com/watch?v=hxY43mBVOOc&t=263s)** — So when you start lowering your stomach acids,
+- **[04:26](https://www.youtube.com/watch?v=hxY43mBVOOc&t=266s)** — that's going to create all sorts of issues with ability to digest protein,
+- **[04:30](https://www.youtube.com/watch?v=hxY43mBVOOc&t=270s)** — absorb minerals, kill pathogens.
+- **[04:33](https://www.youtube.com/watch?v=hxY43mBVOOc&t=273s)** — So there's a whole series of consequences that can happen just from that.
+- **[04:38](https://www.youtube.com/watch?v=hxY43mBVOOc&t=278s)** — So I always like to think long-term.
+- **[04:40](https://www.youtube.com/watch?v=hxY43mBVOOc&t=280s)** — Is that the best long-term solution for a person?
+- **[04:42](https://www.youtube.com/watch?v=hxY43mBVOOc&t=282s)** — I understand that your metabolism might be very efficient and it's more difficult.
+- **[04:47](https://www.youtube.com/watch?v=hxY43mBVOOc&t=287s)** — And this is part of the phytomedicine data.
+- **[04:50](https://www.youtube.com/watch?v=hxY43mBVOOc&t=290s)** — So there's four herbs that can create this effect.
+- **[04:54](https://www.youtube.com/watch?v=hxY43mBVOOc&t=294s)** — Number one, berberine. Number two, curcumin.
+- **[04:57](https://www.youtube.com/watch?v=hxY43mBVOOc&t=297s)** — Number three, cinnamon. Number four, Panax ginseng.
+- **[05:01](https://www.youtube.com/watch?v=hxY43mBVOOc&t=301s)** — Now, I'm not recommending taking all of these.
+- **[05:04](https://www.youtube.com/watch?v=hxY43mBVOOc&t=304s)** — I would just pick one and try it out.
+- **[05:06](https://www.youtube.com/watch?v=hxY43mBVOOc&t=306s)** — In addition to two other things I would highly recommend,
+- **[05:09](https://www.youtube.com/watch?v=hxY43mBVOOc&t=309s)** — especially if you want to lower your appetite
+- **[05:11](https://www.youtube.com/watch?v=hxY43mBVOOc&t=311s)** — and be able to do something that fits within your lifestyle.
+- **[05:15](https://www.youtube.com/watch?v=hxY43mBVOOc&t=315s)** — And that is this, the healthy version of the ketogenic diet,
+- **[05:18](https://www.youtube.com/watch?v=hxY43mBVOOc&t=318s)** — which is a low carb diet with intermittent fasting.
+- **[05:22](https://www.youtube.com/watch?v=hxY43mBVOOc&t=322s)** — That ultimately is a wonderful way to correct problems with your blood sugar
+- **[05:27](https://www.youtube.com/watch?v=hxY43mBVOOc&t=327s)** — and help you lose weight and keep it off.
+- **[05:30](https://www.youtube.com/watch?v=hxY43mBVOOc&t=330s)** — Now, if you want to know how to do healthy keto with intermittent fasting,
+- **[05:34](https://www.youtube.com/watch?v=hxY43mBVOOc&t=334s)** — in a very simple video, you should watch this one right here.

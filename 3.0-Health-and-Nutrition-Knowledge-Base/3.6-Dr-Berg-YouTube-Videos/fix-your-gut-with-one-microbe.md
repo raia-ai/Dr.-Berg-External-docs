@@ -1,0 +1,293 @@
+# Fix Your Gut with ONE Microbe
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=nZV1oYv5Ddo](https://www.youtube.com/watch?v=nZV1oYv5Ddo)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=0s)** — Is it possible that your depression or anxiety is coming from a missing microbe in your gut?
+- **[00:07](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=7s)** — This video is going to blow you away. I want to share some very new and powerful information
+- **[00:13](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=13s)** — on the gut microbiome and its association with your overall mood. And I have a dynamite solution
+- **[00:19](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=19s)** — that I think you are going to love. And it's a whole recipe and I'm going to walk you through
+- **[00:24](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=24s)** — Let's just take digestive enzymes. Humans make 17 digestive enzymes. The microbiome makes over
+- **[00:33](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=33s)** — 60 digestive enzymes. And these microbes are the only thing that can digest fiber. We as humans do
+- **[00:39](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=39s)** — not have the ability to break down fiber. But microbes do. They take the fiber, they break it
+- **[00:44](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=44s)** — down into this certain fat. And that's called acetic acid that actually helps feed the colon
+- **[00:49](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=49s)** — There's also another breakdown molecule that mimics ketones called butyric acid.
+- **[00:54](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=54s)** — And one of the biggest things that microbes do in relationship to your mood is contribute to the
+- **[00:59](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=59s)** — production of neurotransmitters. Neurotransmitters are like hormones, but they travel through the
+- **[01:05](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=65s)** — nervous system. I'm talking about serotonin, dopamine, GABA. 90% of all the serotonin in your
+- **[01:15](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=75s)** — made in your gut. And so we have also a highway between the gut and our brain. It's called the
+- **[01:20](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=80s)** — vagus nerve and it goes two ways. So in other words, you can have depression or anxiety
+- **[01:26](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=86s)** — if your gut is not right. And if you have depression or anxiety up here, that will affect
+- **[01:33](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=93s)** — the gut microbiome. The gut microbiome also has the ability to break down toxins,
+- **[01:38](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=98s)** — medications. They turn certain antioxidants in your food into other amazing compounds that help
+- **[01:45](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=105s)** — us. And what I really want you to know about this topic is that you have mostly good bacteria.
+- **[01:51](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=111s)** — Okay. And we also have some bad bacteria that's kept in check by the quantity of good bacteria
+- **[01:58](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=118s)** — over here. And the good bacteria maintain and support the gut wall to prevent the bad guys from
+- **[02:05](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=125s)** — crossing over. And so what happens when we have antibiotics, glyphosate, that's an herbicide,
+- **[02:11](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=131s)** — which by the way, it's in a lot of your foods. When we junk foods, medications, we go through
+- **[02:15](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=135s)** — stress, alcohol, smoking, pollution, all of that diminishes the microbiome. We get less
+- **[02:21](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=141s)** — neurotransmitters made. We get an alteration of the blood sugar, but we also get a migration
+- **[02:27](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=147s)** — of certain pathogens that start traveling up into the small intestine, which is about 20 to
+- **[02:33](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=153s)** — 23 feet. So normally we don't want a lot of bacteria in the small intestine. And when these
+- **[02:38](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=158s)** — bad guys go up into the small intestine, there's competition of nutrients. So now we
+- **[02:42](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=162s)** — develop nutrient deficiencies. We get small intestinal bacterial overgrowth. And then
+- **[02:48](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=168s)** — this leads to more inflammation, leaky gut, allergies, inability to eat certain things. All
+- **[02:54](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=174s)** — right. Now I want to talk about something very interesting. The doctor who wrote the book,
+- **[03:00](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=180s)** — Wheat Belly, and also a new book called Super Gut, who I'm going to interview shortly,
+- **[03:06](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=186s)** — came up with the most amazing protocol where you can actually grow your own probiotics in
+- **[03:12](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=192s)** — a certain dairy product, but it's not even a yogurt. It's a super concentrated
+- **[03:18](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=198s)** — probiotic that can do tremendous good for your body. Dr. Davis found a way to grow a very
+- **[03:24](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=204s)** — specific microbe. And I want to share a little bit with you. And then we'll talk to
+- **[03:28](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=208s)** — First of all, this microbe has been highly studied. Quite a few studies relate to
+- **[03:33](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=213s)** — how this microbe can lower depression. And also if someone is on an SSRI for a period of time,
+- **[03:40](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=220s)** — that's one of the side effects as well. So the good news is that there could be a
+- **[03:45](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=225s)** — potential solution for that specific problem. So Dr. Davis talks about this in his book.
+- **[03:50](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=230s)** — When you typically make yogurt, they usually ferment it for like four hours. So what Dr.
+- **[03:55](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=235s)** — Davis did is he found that you have to ferment it for 36 hours. And to grow this specific microbe,
+- **[04:02](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=242s)** — you want to use a certain temperature. You want to use body temperature, which is 98.6,
+- **[04:07](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=247s)** — but we rounded up to 99 degrees Fahrenheit. So what Dr. Davis has put together is a way to
+- **[04:12](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=252s)** — kind of use a yogurt maker. And you're going to use a dairy product, which I'm
+- **[04:17](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=257s)** — going to demonstrate all this. And you're going to put a certain microbe in there.
+- **[04:21](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=261s)** — And then you're going to feed it a little fiber, which I'll explain. And then you're just going to
+- **[04:26](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=266s)** — leave it at 99 degrees for 36 hours. And you come back and it's going to be a very delicious
+- **[04:30](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=270s)** — product. And then he recommends to take a half a cup a day. Now I've been doing this and I've
+- **[04:34](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=274s)** — been taking him right before bed. Wow. I'll share the results with you. But let me just
+- **[04:38](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=278s)** — first complete talking about this microbe. First of all, it survives the stomach acids.
+- **[04:42](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=282s)** — Second thing, it releases a chemical that does not affect any of the good microbes,
+- **[04:48](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=288s)** — just the bad. And a lot of people get benefits by taking antibiotics with their skin. They might
+- **[04:54](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=294s)** — get rid of like rashes and certain infections like styes in the eye and all these things.
+- **[04:59](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=299s)** — But of course they're using a regular antibiotic and that comes with a package. Well, this is
+- **[05:04](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=304s)** — a natural process that you don't develop resistance against. So that's just one thing.
+- **[05:09](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=309s)** — It has this chemical, wipes out the bad guys in the small intestine. It also makes
+- **[05:15](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=315s)** — oxytocin. Oxytocin is an amazing hormone that does a lot more than we thought. It not only
+- **[05:21](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=321s)** — helps with like social bonding, but it really helps to lower cortisol, which is involved
+- **[05:26](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=326s)** — in anxiety and even depression. So it's an amazing stress hormone. There's been some
+- **[05:32](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=332s)** — interesting anecdotal reports of increased muscle mass, great deep delta wave sleep,
+- **[05:39](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=339s)** — thicker hair, better younger skin. But the main thing is an overall better mood. So let's do this.
+- **[05:47](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=347s)** — Let's interview Dr. Davis and then I'm going to roll right into how to make this amazing,
+- **[05:53](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=353s)** — highly concentrated probiotic that you can take every night before you go to sleep or take
+- **[05:57](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=357s)** — it during the day to help you with whatever you're going through. All right, let's go to
+- **[06:01](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=361s)** — Dr. Davis right now. How did you kind of isolate or stumble on this very specific
+- **[06:06](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=366s)** — microbe? I mean, there's other microbes, but I think the main one you talk about a lot is the
+- **[06:11](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=371s)** — L or lactobacillus ruderi. So can you tell me a little bit about how you kind of stumbled
+- **[06:15](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=375s)** — on that microbe versus other ones? Well, it was real simple. I make most of my
+- **[06:21](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=381s)** — ideas by mistake, by making big blunders. So that's how I came to the wheat belly
+- **[06:28](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=388s)** — idea, trying to minimize the expression of small L-veal particles. As you know,
+- **[06:31](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=391s)** — the real cause for heart disease, not this nonsense about L-veal cholesterol.
+- **[06:36](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=396s)** — So I saw people, you and I have a lot of success in helping people regain health. And so
+- **[06:40](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=400s)** — with wheat grain and grain elimination, sugar elimination, and a handful of common nutrients
+- **[06:44](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=404s)** — that are lacking in modern life, we see all kinds of wonderful things like a reversal of
+- **[06:49](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=409s)** — type 2 diabetes, loss of fatty liver, weight loss, etc. But it was clear that was
+- **[06:54](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=414s)** — incomplete. Even when I added some basic microbiome strategies, like a high potency
+- **[06:59](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=419s)** — of multi-species probiotic or prebiotic fibers, fermented foods, I still saw some residual
+- **[07:04](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=424s)** — problems. For instance, somebody says, my rheumatoid arthritis is much better. I got
+- **[07:10](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=430s)** — rid of the biologic injections. I got rid of the prednisone, but I'm still taking the proxen
+- **[07:16](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=436s)** — as needed for occasional mild flare-ups. Why? So I looked for what else was there was.
+- **[07:22](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=442s)** — I started thinking about the hormone oxytocin. I don't remember why.
+- **[07:26](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=446s)** — There's a really crazy set of Frankenstein experiments being conducted by a woman named
+- **[07:33](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=453s)** — Irina Conboy. She's been at Harvard, Stanford, I think she's now at UC Berkeley.
+- **[07:38](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=458s)** — And she did something really creepy. They took an old rat and cloned it so that they
+- **[07:45](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=465s)** — got a young rat that was immunologically and genetically identical and then connected their
+- **[07:51](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=471s)** — circulatory systems. Yuck! Well, then they called it heterochronic parabiosis, two times
+- **[08:00](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=480s)** — next to life. Well, lo and behold, the old rat becomes young. And so they asked,
+- **[08:06](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=486s)** — what are the mediators? That work is ongoing. But the first mediator they isolated,
+- **[08:12](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=492s)** — they're a bunch of peptides. The first media they isolated was oxytocin. What people
+- **[08:17](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=497s)** — regard as the hormone of love and empathy. What some ladies regard as the drug they get to
+- **[08:22](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=502s)** — induce labor when they're pregnant at term delivery, term pregnancy. Well, then an MIT
+- **[08:29](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=509s)** — group, a cancer group, were exploring the anti-cancer effects of lactobacillus rhodoride.
+- **[08:35](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=515s)** — And they discovered all kinds of unexpected effects. The first thing they observed was
+- **[08:39](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=519s)** — that their fur, in their words, became rich and luxurious. Wow. So they started doing
+- **[08:45](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=525s)** — crazy things to these mice, like inflicting wounds in their skin and watch healing time cut
+- **[08:51](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=531s)** — by half. They watched old mice become young again. So for instance, if you look at muscle,
+- **[08:57](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=537s)** — that's atrophied in older mice, young muscle cells come back. Their libido, their mating
+- **[09:03](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=543s)** — behavior comes back. The immune system is amplified. In other words, it changed. They
+- **[09:10](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=550s)** — did this. They did crazy study. They gave two groups of mice a lousy diet, purposefully meant
+- **[09:16](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=556s)** — to mimic fast food. The mice that got just fast food got fat and old, lost their hair, stopped
+- **[09:23](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=563s)** — mating. They got old and died. The mice who got the same crappy diet, but with rhodoride,
+- **[09:29](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=569s)** — stayed slender, rich fur, mated. They stayed young until death. So, okay, so this experiment
+- **[09:37](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=577s)** — I think that was the missing point. They gave them a certain microbe, l-rhodoride, because of
+- **[09:43](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=583s)** — oxytocin. They wanted to increase it. They did, but they didn't set out to do just that.
+- **[09:49](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=589s)** — They kind of stumbled on that. So like a lot of things I do, this was by accident. So they
+- **[09:54](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=594s)** — wanted to understand, first of all, why that rich, luxuriant fur issue. It became clear they
+- **[09:59](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=599s)** — opened a whole Pandora's box of effects. Well, I got that same microbe. It was available
+- **[10:06](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=606s)** — commercially from a Swedish company, but it was available as tablets for infants. So very
+- **[10:13](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=613s)** — teensy weensy dose. So I simply reasoned, let's ferment it as something that looks like
+- **[10:18](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=618s)** — yogurt, but we're going to ferment it using prolonged fermentation. So rhodoride will,
+- **[10:23](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=623s)** — you know, as you recall, microbes don't have sex. There's no mommy, daddy, male, female,
+- **[10:27](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=627s)** — microbes. They just double. So rhodoride doubles every three hours at human body temperature.
+- **[10:33](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=633s)** — So I made yogurts, not yogurt, of course. It looks and smells like yogurt, but I used
+- **[10:38](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=638s)** — prolonged fermentation. I allowed 12 doublings. I performed something called flow cytometry,
+- **[10:44](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=644s)** — just a way to count microbes. And we get 300 billion. So far more, about a thousandfold
+- **[10:50](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=650s)** — more than the original tablets for babies. I just started talking about it. Gave it to
+- **[10:55](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=655s)** — my neighbors. I started eating it. Okay. So the question I have is, so when you,
+- **[11:01](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=661s)** — did you initially know how to do that? Or you just go, okay, let me try something. And
+- **[11:06](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=666s)** — I guess that didn't work. Did you, how did you know to ferment it for 36 hours?
+- **[11:10](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=670s)** — Hit and miss. Okay. And then I did repeated flow cytometry counts. It became clear.
+- **[11:16](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=676s)** — The number I first picked 36 hours was the sweet spot. That's where you get
+- **[11:20](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=680s)** — maximum number, at least as yogurt. And if you go to 48 hours, you get a plateau. You actually
+- **[11:26](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=686s)** — get an increase in dead microbes. So 36 hours, which by the way is very different than what they
+- **[11:31](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=691s)** — do in commercial yogurt making, which is six to 12 hours. It's ridiculous. So I guess the reason,
+- **[11:38](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=698s)** — at first did you think, well, I think we'll just take this microbe as a supplement, right?
+- **[11:43](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=703s)** — Were you thinking at first like, oh, we'll just take it and it'll work just by taking it?
+- **[11:47](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=707s)** — You know, you can, but the quantity of in the original product, which called
+- **[11:52](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=712s)** — bio-gaiogastrous, G-A-S-T-R-U-S, the infant tablets. So when you take it, nothing happens.
+- **[12:00](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=720s)** — When I called the company, I talked to the exact, I said, Hey, I'm playing with this,
+- **[12:04](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=724s)** — your tablet is making yogurt. They said, you can't, no one's ever made yogurt from it.
+- **[12:08](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=728s)** — And they said, we don't know anything about that MIT nonsense. Don't call us again.
+- **[12:12](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=732s)** — They essentially shut it all down. So I thought, okay, fine. So I made the yogurt
+- **[12:16](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=736s)** — and now we have thousands and thousands of people doing it. And the crazy thing is,
+- **[12:21](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=741s)** — so as elegant as that MIT work was, we're learning new lessons, both from human experience
+- **[12:28](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=748s)** — and some limited efforts in clinical trials. We're seeing all kinds of things happen. But you
+- **[12:33](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=753s)** — know what? As you know, usually when you see stuff happen in mice, it's usually not
+- **[12:38](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=758s)** — corroborated in humans. It falls apart. In this instance, to my great surprise, everything
+- **[12:43](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=763s)** — seen in mice has proven true in humans. So we see a restoration of youthful musculature,
+- **[12:51](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=771s)** — an increase in strength, guys, older guys over 50 get about a 50% rise in testosterone.
+- **[12:57](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=777s)** — Ladies get a rest, older ladies get a restoration of vaginal moisture and sensation.
+- **[13:02](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=782s)** — There's an increase in libido, which leads some very embarrassing stories. There is a presumptive
+- **[13:08](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=788s)** — increase in the immune responses. People seem to get better faster. There's an acceleration
+- **[13:12](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=792s)** — of healing from minor wounds. And I tell this to ladies, and you know, I'm sure your audience
+- **[13:19](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=799s)** — is a lot like mine. My audience is 87% female. They all say this to me, incredibly. They say,
+- **[13:26](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=806s)** — oh, we don't care about muscle and the immune response. We just want better skin.
+- **[13:33](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=813s)** — I said, what? Fine. So I did a little clinical trial on ladies, big ladies. I said,
+- **[13:40](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=820s)** — don't change your diet. Don't change your exercise program. Just take these. That was
+- **[13:44](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=824s)** — the Rhoeteri. I added some other things to amplify the skin effects, collagen peptides,
+- **[13:49](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=829s)** — hyaluronic acid, and the carotenoid acesanthin. And we did high resolution skin ultrasound.
+- **[13:54](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=834s)** — And we showed a big increase in dermal thickness. Ladies are thrilled because they lose
+- **[13:57](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=837s)** — their crows feet and their smile lines. But I happen to measure their waist circumference.
+- **[14:03](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=843s)** — It's free. You and I don't have the budget of pharma. We don't have billions of dollars
+- **[14:07](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=847s)** — to spend. We have maybe tens or hundreds of thousands of dollars to spend in our
+- **[14:11](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=851s)** — clinical trials. So I measured waist circumference free. And to my great surprise,
+- **[14:16](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=856s)** — this was Christmas Eve, I get the waist circumference. I said, no way. They lost
+- **[14:21](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=861s)** — huge amount of waist circumference, up to eight and a half inches. No change in diet.
+- **[14:26](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=866s)** — Even more remarkably, they didn't lose weight. Well, how can that be? Well, I think consistent
+- **[14:32](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=872s)** — with the animal evidence and what I'm seeing anecdotally play out in thousands of people
+- **[14:36](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=876s)** — is you lose abdominal fat, but you restore youthful muscle. We're seeing that play out. So I don't
+- **[14:43](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=883s)** — believe what I stumbled on by accident is a way to shift body composition. The complete opposite,
+- **[14:51](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=891s)** — by the way, of these garbage GLP-1 agonist drugs that of course cause huge loss of muscle,
+- **[14:59](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=899s)** — guarantees weight regain. So a person has a choice, stop the drug and see your health
+- **[15:04](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=904s)** — deteriorate when you regain all the weight as fat or stay on the drug forever and be held
+- **[15:10](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=910s)** — hostage by the pharmaceutical industries. I think even one of your videos you mentioned,
+- **[15:14](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=914s)** — you personally gained how much muscle mass? So in my 60s, I gained about 13 pounds of muscle
+- **[15:23](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=923s)** — and fit my strength increased by 50%. And I mentioned to you in emails, I hate going to
+- **[15:31](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=931s)** — gym. I can't stand it. So I go 15 minutes on a busy week. I go 15 minutes once a week. I have
+- **[15:38](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=938s)** — been to the gym five months, but I do other things. But so that's what I'm seeing. Now,
+- **[15:43](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=943s)** — I don't know if that happens to everybody. I do see ladies, they get mad at me. They say,
+- **[15:49](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=949s)** — hey, I'm doing your program in the rotor. I gained eight pounds. I asked them, have you
+- **[15:54](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=954s)** — looked in the mirror? Have you measured your waist? I said, well, yeah, my waist is
+- **[15:57](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=957s)** — smaller. My shoulders are firmer. My thighs and buttocks and neck are firmer. So presumptive,
+- **[16:03](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=963s)** — we got to do this more formally, like do a DEXA study or something like that,
+- **[16:07](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=967s)** — formally quantify the shift in muscle and all that business. But you know, all we're doing
+- **[16:11](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=971s)** — though, right, is replacing things that you should have had in your body all along.
+- **[16:17](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=977s)** — So I just wanted to stop at that one point. Okay, so this microbe, obviously,
+- **[16:23](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=983s)** — we're supposed to have it initially, and I'm guessing some past antibiotic wiped it out or
+- **[16:28](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=988s)** — bad food or something. And I think you mentioned even in your book or another video that
+- **[16:34](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=994s)** — what percentage of the population just doesn't have this microbe anymore.
+- **[16:38](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=998s)** — About 96%. So it is very susceptible, as are many lactobacilli, to common antibiotics. So
+- **[16:46](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1006s)** — if you took Amoxicillin 30 years ago for an upper respiratory, if they wiped out all your
+- **[16:52](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1012s)** — right, which is so fascinating about that, is if we sequence the microbiomes of some living
+- **[16:57](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1017s)** — the highlands of New Guinea, or the Brazilian rainforest and the Amazon,
+- **[17:03](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1023s)** — people unexposed to antibiotics, etc. They all have right, they all have sequence wild mammals,
+- **[17:11](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1031s)** — like deer or giraffes or lions, they all have right, suggesting it's necessary for
+- **[17:17](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1037s)** — mammalian health. It's us who've lost it. The original discoverer, Dr. Gerhard Reuter,
+- **[17:23](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1043s)** — said it was everywhere in the 1960s. He got it from the breast milk of a German breastfeeding
+- **[17:27](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1047s)** — mom, and he found it in stool and other body fluids. Over his 40-year academic career,
+- **[17:32](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1052s)** — he found it increasingly difficult to find it started to disappear. And since then,
+- **[17:36](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1056s)** — it's been corroborated. It's virtually disappeared from the human microbiome.
+- **[17:40](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1060s)** — And I think that's why we're seeing such over the top effects, restoring something people
+- **[17:44](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1064s)** — have lost, and doing so at very high counts. Wow. So then what happens, you lose this microbe,
+- **[17:53](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1073s)** — which also, by the way, tends to protect against small intestinal bacteria overgrowth,
+- **[17:58](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1078s)** — right? It does a lot of things in the small intestine too. And then it probably,
+- **[18:03](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1083s)** — because it's not there, then you start getting this invasion from the large intestine
+- **[18:08](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1088s)** — climbing up to the small intestine. Is that what happens too sometimes?
+- **[18:12](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1092s)** — Exactly. Yes. So loss of those beneficial species, this species of lactobacillus and others,
+- **[18:19](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1099s)** — allow the over-proliferation of proteobacterium, fecal microbes like E. coli and Klebsiella,
+- **[18:25](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1105s)** — that have taken up residence in virtually half the U.S. population. So it's probably the
+- **[18:31](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1111s)** — worst epidemic to ever occur in our species. And there's science behind that. So we have 24
+- **[18:39](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1119s)** — feet of small intestine infested by fecal microbes. Now, as you recall, the small
+- **[18:44](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1124s)** — intestine is very permeable. That's where we absorb nutrients. So when those microbes that
+- **[18:49](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1129s)** — live and die over just a period of a few hours, they don't live very long, they release some
+- **[18:53](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1133s)** — of the components of their cell wall, such as the endotoxin component. And that gains access
+- **[18:57](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1137s)** — to your bloodstream. That's called endotoxemia, of course, and that is a major driver of
+- **[19:02](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1142s)** — weight gain, dementia. It's probably one of the most important factors causing multiple forms
+- **[19:07](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1147s)** — of cancer, type 2 diabetes, cognitive impairment. So in other words, it's going to cause us to
+- **[19:14](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1154s)** — reconsider virtually all human disease in light of the contribution, initiation or exacerbation
+- **[19:20](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1160s)** — of endotoxemia. So just on the topic of endotoxemia. So there's somehow some of these
+- **[19:27](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1167s)** — bad microbes, these pathogens, they either leak off or release something negative about
+- **[19:34](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1174s)** — that that then forms this infection that gets into the bloodstream that starts creating a
+- **[19:40](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1180s)** — cascade of bad effects. Yes. So people have suspected this issue of gut leak for many
+- **[19:47](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1187s)** — decades, but it finally got corroborated by Patrice Canney and his Belgian group in 2007,
+- **[19:52](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1192s)** — and since corroborated numerous times since. It is a major driver. It terrifies me to think
+- **[19:58](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1198s)** — how we didn't know about this thing. The great thing about Rhetoride is,
+- **[20:03](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1203s)** — so most microbes colonize the colon only. Right, the large intestine. Yeah.
+- **[20:08](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1208s)** — The Rhetoride colonize the 24 feet of small intestine and the colon. Wow. Where it takes
+- **[20:14](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1214s)** — up residence and does something wonderful. It produces what are called bacteriocins,
+- **[20:19](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1219s)** — natural antibiotics effective against fecal microbes. So the loss of Rhetoride probably
+- **[20:25](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1225s)** — big part of the reason why this happened and restoring Rhetoride is a big part of the solution
+- **[20:30](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1230s)** — to correct that problem. So we're seeing SIBO recede via normalization of breath hydrogen gas
+- **[20:36](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1236s)** — with restoration of lactobacillus Rhetoride, but I've combined it with
+- **[20:40](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1240s)** — lactobacillus gasseri because that's another big bacteriocin producer and small intestinal
+- **[20:46](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1246s)** — colonizer. And then we've thrown in a strand of bacillus subtilis or subtilis
+- **[20:50](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1250s)** — because of its extraordinary bacteriocin. And so far making yogurt, yogurt out of those three,
+- **[20:59](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1259s)** — we get about 90% normalization of breath hydrogen gas and all the wonderful effects that accompany
+- **[21:04](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1264s)** — that weight loss, plateaus are broken, hemoglobin A1c finally goes below five,
+- **[21:10](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1270s)** — all that kind of great stuff happens just by restoring these keystone, what I think are
+- **[21:15](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1275s)** — keystone microbes via something that looks and smells like yogurt. And also your sleep,
+- **[21:20](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1280s)** — and oh, I'm a chronic insomniac, terrible for decades. With Rhetoride, I sleep wonderfully.
+- **[21:30](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1290s)** — Not everybody gets that. Maybe half the people get that. And by the way,
+- **[21:34](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1294s)** — there are some other microbes that have magnificent effects on sleep. Another one
+- **[21:38](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1298s)** — is lactobacillus KCI-Sherota strain that's available as this goofy little product called
+- **[21:44](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1304s)** — Yakult. It's an awful little product, it's skin, milk and sugar, but it's a good source.
+- **[21:50](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1310s)** — Of that microbe. And so as a chronic insomniac, I take the Rhetoride sleeping eight, nine hours
+- **[21:55](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1315s)** — straight through rare awakenings. I add the KCI-Sherota as yogurt, I sleep 12 hours a night,
+- **[22:02](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1322s)** — I had to stop it because it was so overwhelming. That varies among people.
+- **[22:08](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1328s)** — And these are effects not yet described in the scientific literature,
+- **[22:13](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1333s)** — because we're experiencing it on a large scale.
+- **[22:17](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1337s)** — You stumbled on something that's so fascinating to me, because I'm into the farming and the soil
+- **[22:22](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1342s)** — and the microbes. This is like, but this is all human body stuff. I definitely want to stay
+- **[22:26](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1346s)** — connected and keep picking your brain. But so there's a book that I highly recommend everyone
+- **[22:32](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1352s)** — go out and get. It's SuperGut. And also, I'm going to put your website down below. And you
+- **[22:38](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1358s)** — also have a course. I'll put some information about what the specific microbe that you
+- **[22:45](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1365s)** — recommend because there's different strains. And you have you figured out the right strains.
+- **[22:49](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1369s)** — So that's going to be really key to get that I'll put that link down below. But,
+- **[22:54](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1374s)** — wow, this is huge. I'm so interested in this topic. I'm just blown away. But anyway,
+- **[23:02](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1382s)** — I wanted to just pull you on and don't take too much of your time. But I want to thank
+- **[23:06](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1386s)** — you for that data. And, and also, I'm gonna, I'll just gonna roll right into next to how to
+- **[23:13](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1393s)** — make this if someone wants to make it. And if they want details, they can go to your blog site.
+- **[23:19](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1399s)** — How about that? Terrific. Yeah, you know, my one of my interests is this is all happening,
+- **[23:24](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1404s)** — right? Yeah. At a time of record social isolation. Right. Of course. Suicide is
+- **[23:31](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1411s)** — at record levels. 36% increase between 2000, 2020. And I did not know this, the psychology
+- **[23:40](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1420s)** — community has been formally measuring and tabulating the rise of narcissistic behavior.
+- **[23:45](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1425s)** — And that curve looks like this 45 degree incline. So now we have a way, perhaps,
+- **[23:53](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1433s)** — we can address all social ills, of course, with yogurt. Perhaps we can have an impact
+- **[23:57](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1437s)** — because of the restoration. What I'm seeing is a restoration of the intensity of love
+- **[24:02](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1442s)** — and affection for other people, desire for human companionship, increase in generosity,
+- **[24:07](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1447s)** — and acceptance of other people's opinions. So that's my goal in doing all this. I think we
+- **[24:13](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1453s)** — can change human behavior in a good way. I can get behind that. That's awesome. Well done.
+- **[24:20](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1460s)** — Thank you so much. Thank you. This is very simple how we make this. We're going to take
+- **[24:25](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1465s)** — the probiotic, one capsule, and then we will open it up. And then we're going to take
+- **[24:32](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1472s)** — inulin. This is a tablespoon. Take two. Take organic half and a half.
+- **[24:43](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1483s)** — Just to make a paste. Mix it up really good. Don't put too much of that
+- **[24:48](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1488s)** — half and half in there right off the bat. Just about two tablespoons. And then we can
+- **[24:53](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1493s)** — pour the rest of this half and half in there. One quart. We're going to mix this up really
+- **[25:00](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1500s)** — good. Take a container. Two containers. We'll pour some of this in here.
+- **[25:09](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1509s)** — Even it out pretty good.
+- **[25:13](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1513s)** — Okay, we're putting this mixture into the yogurt maker. We have two of them,
+- **[25:18](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1518s)** — right? Very carefully. Okay, now we have to add water to it. So I'm going to pour the
+- **[25:26](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1526s)** — water like so. And I want that level to be at the same level as the mixture inside the
+- **[25:38](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1538s)** — containers. We now have the water at the level of a little bit more than I wanted, so
+- **[25:45](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1545s)** — that's fine. Okay, here's the next part. And of course, if you have a different machine,
+- **[25:50](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1550s)** — you're going to have to just do the same type of thing. On the left, we have temperature
+- **[25:54](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1554s)** — and time. So we can press this once. Okay, and then we want this at 99 degrees Fahrenheit. So
+- **[26:01](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1561s)** — we're going to bring this down. Okay, and then press start on that. And then now what we're
+- **[26:07](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1567s)** — going to do, we have eight hours. We're going to go up to 36 hours. Okay, and then we press
+- **[26:14](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1574s)** — start again. And guess what? We're done. We're going to put the top on it. And then we're
+- **[26:23](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1583s)** — done. We are going to then put it in the refrigerator for storage. Okay, we're pulling
+- **[26:31](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1591s)** — it out of the refrigerator after 36 hours and leaving in the fridge for a couple
+- **[26:35](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1595s)** — hours to cool down. And now we're going to consume a half of a cup of this every single
+- **[26:43](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1603s)** — day. It's amazing. It's rich. It's delicious. You can add berries to it. If you need to add
+- **[26:49](https://www.youtube.com/watch?v=nZV1oYv5Ddo&t=1609s)** — sweetener, go ahead. But I think you'll find it quite delicious. A half a cup a day.

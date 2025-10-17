@@ -1,0 +1,116 @@
+# The Fastest Way to Lose Belly Fat
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=x3vnCKivCjs](https://www.youtube.com/watch?v=x3vnCKivCjs)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=x3vnCKivCjs&t=0s)** — Today I'm going to share with you the absolute fastest way to lose your belly.
+- **[00:06](https://www.youtube.com/watch?v=x3vnCKivCjs&t=6s)** — Now you could have the best willpower, the best discipline, really want it, really bad,
+- **[00:12](https://www.youtube.com/watch?v=x3vnCKivCjs&t=12s)** — and never really see any results because you're missing the technique, you're missing the strategy.
+- **[00:17](https://www.youtube.com/watch?v=x3vnCKivCjs&t=17s)** — I'm the perfect example. I took guitar lessons for six years, right? As a teenager.
+- **[00:23](https://www.youtube.com/watch?v=x3vnCKivCjs&t=23s)** — And I never really progressed or never really went anywhere because the techniques that were taught to me
+- **[00:28](https://www.youtube.com/watch?v=x3vnCKivCjs&t=28s)** — were just not that great. The same thing happened with tennis in college. I was never taught the
+- **[00:33](https://www.youtube.com/watch?v=x3vnCKivCjs&t=33s)** — right technique and so I would use force and I would keep practicing but practice incorrectly.
+- **[00:40](https://www.youtube.com/watch?v=x3vnCKivCjs&t=40s)** — Never went anywhere. And this really applies with weight loss too because if you have the
+- **[00:44](https://www.youtube.com/watch?v=x3vnCKivCjs&t=44s)** — right way of doing something you don't have to put so much effort into it. So what I'm
+- **[00:49](https://www.youtube.com/watch?v=x3vnCKivCjs&t=49s)** — going to show you is the fastest way to achieve your goal. Number one, when you do
+- **[00:54](https://www.youtube.com/watch?v=x3vnCKivCjs&t=54s)** — a ketogenic diet it's not differentiated what type of fats you should be eating.
+- **[01:00](https://www.youtube.com/watch?v=x3vnCKivCjs&t=60s)** — In other words, keto is really about low carb. You assume it's high fat but there's certain
+- **[01:06](https://www.youtube.com/watch?v=x3vnCKivCjs&t=66s)** — ketogenic diets that are actually low fat like ideal protein for example and others are very
+- **[01:13](https://www.youtube.com/watch?v=x3vnCKivCjs&t=73s)** — high in fat. But in this first tip we're going to talk about the type of fats. This is so, so
+- **[01:20](https://www.youtube.com/watch?v=x3vnCKivCjs&t=80s)** — important because I've done a deep dive into chronic disease and chronic obesity and as you
+- **[01:25](https://www.youtube.com/watch?v=x3vnCKivCjs&t=85s)** — know obesity keeps going higher and higher and higher and higher. There's really only one thing
+- **[01:30](https://www.youtube.com/watch?v=x3vnCKivCjs&t=90s)** — that I know that perfectly parallels this rise in obesity. It's actually seed oils, omega-6
+- **[01:38](https://www.youtube.com/watch?v=x3vnCKivCjs&t=98s)** — fatty acids. I'm talking about the rise of corn oil, the soy oil, the cotton seed, the
+- **[01:50](https://www.youtube.com/watch?v=x3vnCKivCjs&t=110s)** — ultra-processed highly inflammatory oils. And by the way, as a side note, it's very, very
+- **[01:56](https://www.youtube.com/watch?v=x3vnCKivCjs&t=116s)** — unnatural to consume this concentrated refined oil from seeds. And it's hidden in your dressing
+- **[02:03](https://www.youtube.com/watch?v=x3vnCKivCjs&t=123s)** — that you use on your salad. You're going to get it in fast food restaurants. In fact,
+- **[02:06](https://www.youtube.com/watch?v=x3vnCKivCjs&t=126s)** — you're probably going to get it with any restaurant that you go to. Also, it's in
+- **[02:11](https://www.youtube.com/watch?v=x3vnCKivCjs&t=131s)** — animal feeds. And if they feed the chicken this grain, omega-6 fatty acids, you're going
+- **[02:16](https://www.youtube.com/watch?v=x3vnCKivCjs&t=136s)** — to get a profile that's pretty high in omega-6. This also includes eggs. Okay,
+- **[02:21](https://www.youtube.com/watch?v=x3vnCKivCjs&t=141s)** — eggs might be high in the omega-6. This also includes pork. This also includes grain fed beef.
+- **[02:29](https://www.youtube.com/watch?v=x3vnCKivCjs&t=149s)** — Now, why is this so important? Because I have data, which I'm going to do a separate video
+- **[02:33](https://www.youtube.com/watch?v=x3vnCKivCjs&t=153s)** — on this, that shows that consuming these oils will produce more weight gain than sugar. If we
+- **[02:41](https://www.youtube.com/watch?v=x3vnCKivCjs&t=161s)** — look at this massive trend of obesity, the only thing that parallels it is seed oils. So it would
+- **[02:48](https://www.youtube.com/watch?v=x3vnCKivCjs&t=168s)** — just make sense to avoid those if you want to lose weight. And so this also relates to the
+- **[02:53](https://www.youtube.com/watch?v=x3vnCKivCjs&t=173s)** — type of protein that you should be eating. Grass fed grass finished beef and wild caught
+- **[02:59](https://www.youtube.com/watch?v=x3vnCKivCjs&t=179s)** — fish. That's tip number one. Very important. All right, so number two. Consume a very large
+- **[03:06](https://www.youtube.com/watch?v=x3vnCKivCjs&t=186s)** — salad, one a day, unless you have gut inflammation, in which case you would either do
+- **[03:13](https://www.youtube.com/watch?v=x3vnCKivCjs&t=193s)** — fermented vegetables in the form of sauerkraut or kimchi or eliminate the vegetables all
+- **[03:19](https://www.youtube.com/watch?v=x3vnCKivCjs&t=199s)** — together. Now, why would I even recommend a salad? I mean, what's that going to do?
+- **[03:23](https://www.youtube.com/watch?v=x3vnCKivCjs&t=203s)** — Yes, it does have some nutrients. Potassium, magnesium, folate, vitamin C,
+- **[03:30](https://www.youtube.com/watch?v=x3vnCKivCjs&t=210s)** — a lot of different phytonutrients. But if you get salad that's grown on living soil,
+- **[03:36](https://www.youtube.com/watch?v=x3vnCKivCjs&t=216s)** — you're going to get a really good probiotic. That's right, there's microbes in this raw salad
+- **[03:41](https://www.youtube.com/watch?v=x3vnCKivCjs&t=221s)** — that can help fortify your gut. Plus the fiber can actually feed your microbiome. So one
+- **[03:49](https://www.youtube.com/watch?v=x3vnCKivCjs&t=229s)** — huge benefit of consuming salads is to help your microbiome as far as the diversity and
+- **[03:56](https://www.youtube.com/watch?v=x3vnCKivCjs&t=236s)** — quantity of microbes in your gut, which directly help you lose weight. The microbiome in an obese
+- **[04:03](https://www.youtube.com/watch?v=x3vnCKivCjs&t=243s)** — person versus someone who's thin is completely different. And of course, what you're going to
+- **[04:07](https://www.youtube.com/watch?v=x3vnCKivCjs&t=247s)** — put on the salad is not going to be seed oils. You're going to put extra virgin olive oil.
+- **[04:12](https://www.youtube.com/watch?v=x3vnCKivCjs&t=252s)** — And you can also use balsamic vinegar rad and other things as well. And the cool thing
+- **[04:17](https://www.youtube.com/watch?v=x3vnCKivCjs&t=257s)** — about salads is that you don't have to count the carbs because they're so tiny. All right,
+- **[04:25](https://www.youtube.com/watch?v=x3vnCKivCjs&t=265s)** — test yourself for ketones on a blood test. There's a certain reading that can tell you
+- **[04:30](https://www.youtube.com/watch?v=x3vnCKivCjs&t=270s)** — how deep or how much ketosis you're in. Just by getting on a ketogenic diet is not going to
+- **[04:35](https://www.youtube.com/watch?v=x3vnCKivCjs&t=275s)** — do it alone. There's two other things you have to do. One is called intermittent fasting.
+- **[04:40](https://www.youtube.com/watch?v=x3vnCKivCjs&t=280s)** — Okay, now I have a lot of videos on this, but very simply I'm going to recommend you do
+- **[04:44](https://www.youtube.com/watch?v=x3vnCKivCjs&t=284s)** — one meal per day. And this will give you 23 hours of fasting. So not only is this going
+- **[04:50](https://www.youtube.com/watch?v=x3vnCKivCjs&t=290s)** — to be very powerful into causing your body to adapt to running on fat all day long,
+- **[04:56](https://www.youtube.com/watch?v=x3vnCKivCjs&t=296s)** — but you'll have so many other benefits. Cognitive improvements, mood changes,
+- **[05:03](https://www.youtube.com/watch?v=x3vnCKivCjs&t=303s)** — reduction of inflammation. And by the way, when you get off the seed oils,
+- **[05:07](https://www.youtube.com/watch?v=x3vnCKivCjs&t=307s)** — you're reducing inflammation way, way down. You have to realize that inflammation from seed
+- **[05:14](https://www.youtube.com/watch?v=x3vnCKivCjs&t=314s)** — oils triggers insulin resistance. It destroys your metabolism. It makes things slower.
+- **[05:22](https://www.youtube.com/watch?v=x3vnCKivCjs&t=322s)** — So doing the intermittent fasting, okay, you're actually correcting insulin resistance
+- **[05:28](https://www.youtube.com/watch?v=x3vnCKivCjs&t=328s)** — with the help of the lowering of carbs, with the change in the type of fat that you're
+- **[05:34](https://www.youtube.com/watch?v=x3vnCKivCjs&t=334s)** — consuming. So all of these things compounded together are going to get you to your goal
+- **[05:38](https://www.youtube.com/watch?v=x3vnCKivCjs&t=338s)** — extremely fast. And we need exercise. Now the type of exercise I'm going to recommend is to do
+- **[05:46](https://www.youtube.com/watch?v=x3vnCKivCjs&t=346s)** — a combination of walking and high intensity interval training. I'm going to recommend you
+- **[05:53](https://www.youtube.com/watch?v=x3vnCKivCjs&t=353s)** — do walking every single day for a couple different reasons. Number one, it's going to
+- **[05:56](https://www.youtube.com/watch?v=x3vnCKivCjs&t=356s)** — help with weight loss. But number two, it's going to actually help with stress reduction.
+- **[06:00](https://www.youtube.com/watch?v=x3vnCKivCjs&t=360s)** — And it's going to help you sleep. And sleep is going to be very important to not just
+- **[06:05](https://www.youtube.com/watch?v=x3vnCKivCjs&t=365s)** — reduce cortisol, but to help enhance growth hormone, which is highest when you're sleeping.
+- **[06:11](https://www.youtube.com/watch?v=x3vnCKivCjs&t=371s)** — That's the main fat burning hormone. And people that don't sleep, I mean, that's like a big
+- **[06:15](https://www.youtube.com/watch?v=x3vnCKivCjs&t=375s)** — barrier to losing weight. You're not going to lose weight if you can't sleep and you can't
+- **[06:18](https://www.youtube.com/watch?v=x3vnCKivCjs&t=378s)** — recover. I had a patient who came in that was trying to lose weight, right? They did
+- **[06:22](https://www.youtube.com/watch?v=x3vnCKivCjs&t=382s)** — exercise. I'm talking like, I think it was two hours of exercise. It might have been three
+- **[06:27](https://www.youtube.com/watch?v=x3vnCKivCjs&t=387s)** — times a week for an entire year. And she lost like one or two pounds the entire year.
+- **[06:32](https://www.youtube.com/watch?v=x3vnCKivCjs&t=392s)** — It was because she wasn't sleeping, because all I did is correct her sleep. And bam, she lost
+- **[06:37](https://www.youtube.com/watch?v=x3vnCKivCjs&t=397s)** — weight. Another person came in. They were exercising six hours a day. I'm not kidding.
+- **[06:42](https://www.youtube.com/watch?v=x3vnCKivCjs&t=402s)** — Obsessed with exercising. Wasn't sleeping. Didn't lose any weight. We helped her sleep. She
+- **[06:48](https://www.youtube.com/watch?v=x3vnCKivCjs&t=408s)** — started losing weight. So we want the walking to help with the stress reduction to help you
+- **[06:53](https://www.youtube.com/watch?v=x3vnCKivCjs&t=413s)** — sleep. But we also want the high intensity exercise, because the intensity is what really
+- **[07:00](https://www.youtube.com/watch?v=x3vnCKivCjs&t=420s)** — activates certain hormones that are related to fat burning. And so the more intense the better.
+- **[07:06](https://www.youtube.com/watch?v=x3vnCKivCjs&t=426s)** — Of course, work up to it. Make sure you don't hurt yourself. But I just wanted to give you
+- **[07:10](https://www.youtube.com/watch?v=x3vnCKivCjs&t=430s)** — the technique and the concept. It must be intense. You want to use as many muscles as you
+- **[07:15](https://www.youtube.com/watch?v=x3vnCKivCjs&t=435s)** — can. But we want to do short, high-intense workouts that involve multiple muscles. And
+- **[07:22](https://www.youtube.com/watch?v=x3vnCKivCjs&t=442s)** — make sure you don't overdo it. In other words, the frequency of this high-intensity
+- **[07:27](https://www.youtube.com/watch?v=x3vnCKivCjs&t=447s)** — interval training should be between one to three times a week, depending on how old you are
+- **[07:35](https://www.youtube.com/watch?v=x3vnCKivCjs&t=455s)** — and how good your recovery is. I've worked with people in the past that I've just reduced the
+- **[07:41](https://www.youtube.com/watch?v=x3vnCKivCjs&t=461s)** — frequency of exercising per week. And that was the thing that helped them. Working out less.
+- **[07:46](https://www.youtube.com/watch?v=x3vnCKivCjs&t=466s)** — Go figure. They were over training. The keto diet that you want to do is a moderate
+- **[07:50](https://www.youtube.com/watch?v=x3vnCKivCjs&t=470s)** — amount of protein. But the key is the quality of proteins. And also you can mix in
+- **[07:54](https://www.youtube.com/watch?v=x3vnCKivCjs&t=474s)** — some organ meats too for the nutrition, the nutrient-dense aspect of this. We want to make
+- **[08:00](https://www.youtube.com/watch?v=x3vnCKivCjs&t=480s)** — sure that you also do electrolytes, B vitamins, maybe from nutritional yeast, and don't forget
+- **[08:06](https://www.youtube.com/watch?v=x3vnCKivCjs&t=486s)** — sea salt. Because a lot of people don't have enough sea salt and they end up feeling tired.
+- **[08:11](https://www.youtube.com/watch?v=x3vnCKivCjs&t=491s)** — And they haven't made the connection that that is what's causing the fatigue. You need
+- **[08:15](https://www.youtube.com/watch?v=x3vnCKivCjs&t=495s)** — enough sea salt, especially on this program, because you're going to be losing a lot of
+- **[08:18](https://www.youtube.com/watch?v=x3vnCKivCjs&t=498s)** — water weight and we want to be able to hold the water with more salt. And the other point
+- **[08:23](https://www.youtube.com/watch?v=x3vnCKivCjs&t=503s)** — that is if you're having problems sleeping because your adrenals are kind of overactive,
+- **[08:29](https://www.youtube.com/watch?v=x3vnCKivCjs&t=509s)** — what that means is you need more salt. More salt can help you sleep at night. But the way
+- **[08:34](https://www.youtube.com/watch?v=x3vnCKivCjs&t=514s)** — that you'll know that you're adapting is your hunger goes away. If you're doing this right,
+- **[08:39](https://www.youtube.com/watch?v=x3vnCKivCjs&t=519s)** — you're burning your fat and you're rarely hungry. So this means that you may even go
+- **[08:44](https://www.youtube.com/watch?v=x3vnCKivCjs&t=524s)** — longer than one meal a day with your fasting if you have a lot of weight to lose.
+- **[08:50](https://www.youtube.com/watch?v=x3vnCKivCjs&t=530s)** — And also I mentioned this keto adaptation, but you also have fat adaptation. This is a little
+- **[08:56](https://www.youtube.com/watch?v=x3vnCKivCjs&t=536s)** — bit different. This is the point where your metabolism is becoming very, very flexible in
+- **[09:03](https://www.youtube.com/watch?v=x3vnCKivCjs&t=543s)** — that you can adapt to burning fat very quickly because your mitochondria is becoming healthier.
+- **[09:10](https://www.youtube.com/watch?v=x3vnCKivCjs&t=550s)** — And that usually takes a minimum of three months. But for a lot of people that have had
+- **[09:16](https://www.youtube.com/watch?v=x3vnCKivCjs&t=556s)** — for many years, it could take a lot longer. The goal is to get you to the point where you're
+- **[09:21](https://www.youtube.com/watch?v=x3vnCKivCjs&t=561s)** — so healthy and you have so much flexibility within your metabolism that you could afford
+- **[09:26](https://www.youtube.com/watch?v=x3vnCKivCjs&t=566s)** — to go off the program. You could afford to eat more carbs and they're not going to affect
+- **[09:30](https://www.youtube.com/watch?v=x3vnCKivCjs&t=570s)** — you. But remember, a principle I've talked about before, if you haven't seen my videos,
+- **[09:33](https://www.youtube.com/watch?v=x3vnCKivCjs&t=573s)** — this might be a new concept, but it's not about losing weight to get healthy.
+- **[09:37](https://www.youtube.com/watch?v=x3vnCKivCjs&t=577s)** — It's about getting healthy to lose weight. So now that you have this plan of action,
+- **[09:43](https://www.youtube.com/watch?v=x3vnCKivCjs&t=583s)** — you have better technique. But I think we need to fill in the blank with some details.
+- **[09:48](https://www.youtube.com/watch?v=x3vnCKivCjs&t=588s)** — And for that information, you must watch this video right here.

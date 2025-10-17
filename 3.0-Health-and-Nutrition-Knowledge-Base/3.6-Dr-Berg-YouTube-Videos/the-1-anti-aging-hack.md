@@ -1,0 +1,119 @@
+# The #1 Anti-aging Hack
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=k_Mb7BIo6hA](https://www.youtube.com/watch?v=k_Mb7BIo6hA)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=0s)** — There is a hidden reason why people are aging a lot faster than they should be.
+- **[00:04](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=4s)** — And this is really important. And unfortunately, a lot of people are not concerned about aging until they start to age.
+- **[00:10](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=10s)** — At any age, you need to know this.
+- **[00:12](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=12s)** — If we have too much iron, we do not live as long.
+- **[00:15](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=15s)** — And it's related to iron deficiency anemia.
+- **[00:18](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=18s)** — If most of us are deficient in iron and we get it in the diet, obviously that should improve it to some degree, right?
+- **[00:24](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=24s)** — On the flip side, we're accumulating more and more iron.
+- **[00:27](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=27s)** — There is an incredible paper by Professor Bruce Ames. I'm going to put it down below.
+- **[00:32](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=32s)** — Which talks about some research that he did in identifying old tissue versus younger tissue as it relates to iron.
+- **[00:39](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=39s)** — Well, we have all sorts of amazing systems in the body to protect us against iron.
+- **[00:44](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=44s)** — Iron rusts out our organs.
+- **[00:48](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=48s)** — If you took something called hydrogen peroxide, you probably have it in your medicine chest.
+- **[00:52](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=52s)** — You take hydrogen peroxide and put it on open wound and you see it bubbling up and it kills bacteria.
+- **[00:58](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=58s)** — Just think about adding hydrogen peroxide to iron.
+- **[01:01](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=61s)** — It's going to be severely reactive. That creates a lot of damage within your cells.
+- **[01:06](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=66s)** — The DNA of the cells, the membrane, the mitochondria.
+- **[01:09](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=69s)** — I'm not drinking hydrogen peroxide, so how would that be a problem?
+- **[01:12](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=72s)** — Your body makes hydrogen peroxide.
+- **[01:14](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=74s)** — Not to mention our immune system uses hydrogen peroxide to kill microbes.
+- **[01:18](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=78s)** — But if that system breaks down, all hell breaks loose.
+- **[01:21](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=81s)** — I think what happens with these anemic kids, they have something called dysfunctional iron.
+- **[01:26](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=86s)** — Where iron is locked up to the point where it's not available to the red blood cells so they become anemic.
+- **[01:31](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=91s)** — Yet at the same time, they might have too much.
+- **[01:33](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=93s)** — Here we are adding all this iron to the food supply and we're wondering why it doesn't work.
+- **[01:38](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=98s)** — It may be even making things worse.
+- **[01:40](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=100s)** — Too much iron will really put you at risk for Alzheimer's, Parkinson's, cancer, heart disease.
+- **[01:46](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=106s)** — Because iron can create a lot of oxidative stress.
+- **[01:49](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=109s)** — Too much oxidation without having the buffer, which is the antioxidant networks.
+- **[01:54](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=114s)** — You can get antioxidants from food and supplements, but your body makes antioxidants.
+- **[01:59](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=119s)** — In fact, that's way more important than the antioxidants from the food.
+- **[02:03](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=123s)** — A lot of people also have chronic infection.
+- **[02:06](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=126s)** — They get inflammation.
+- **[02:07](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=127s)** — And then on top of everything, the fact that we are getting older and we're aging means that we're going to naturally accumulate more iron.
+- **[02:16](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=136s)** — 70% of all your iron is stored in protein in your blood that helps you carry oxygen.
+- **[02:23](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=143s)** — The hemoglobin storage, you can pretty much look at that as a very large bowl that stores iron.
+- **[02:30](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=150s)** — And then you have ferritin, which is like a teacup, like 10%.
+- **[02:33](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=153s)** — And ferritin is supposed to be inside your tissue where it can protect you against this free iron and control when it's released.
+- **[02:41](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=161s)** — When you see high levels of ferritin in the blood, recycling your red blood cells every 120 days, and it's creating new red blood cells.
+- **[02:50](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=170s)** — And so you have this incredibly efficient recycling system.
+- **[02:55](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=175s)** — It's recycling iron and you have all these different mechanisms and proteins involved in transporting iron, protecting iron because iron can be very reactive.
+- **[03:05](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=185s)** — And the other problem is your body doesn't want to have too much free iron because certain pathogens, microbes, can eat iron.
+- **[03:12](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=192s)** — Infections love the iron and they will steal iron for their fuel.
+- **[03:17](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=197s)** — Our bodies don't want that, so we tend to hold this iron and keep it in a safe place.
+- **[03:22](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=202s)** — And what can happen because of this dysfunctional iron is your poor red blood cells can't get the iron, yet we have way too much iron in the tissues.
+- **[03:30](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=210s)** — And unfortunately, iron increases the growth of cancer.
+- **[03:33](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=213s)** — And then there's also a lot of people that when they donate blood, man, do they feel better.
+- **[03:38](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=218s)** — Well, that would be a perfect indication that you have too much iron.
+- **[03:40](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=220s)** — If you don't fix the underlying cause, you just gave a temporary solution.
+- **[03:44](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=224s)** — What is the underlying cause?
+- **[03:45](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=225s)** — There's some fascinating information that talks about copper.
+- **[03:49](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=229s)** — Copper is a very, very important trace mineral.
+- **[03:53](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=233s)** — If you have too much iron and enough copper, this is a big problem.
+- **[03:57](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=237s)** — But before you start taking copper, I highly recommend you start to limit the amount of iron you're exposed to.
+- **[04:04](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=244s)** — I would never take any supplement with iron at all.
+- **[04:07](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=247s)** — This is in the flour products. It's in the grain products. It's in a lot of refined carbohydrates.
+- **[04:12](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=252s)** — What foods are high in copper?
+- **[04:14](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=254s)** — Shellfish, organ meats like beef liver.
+- **[04:16](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=256s)** — If you don't eat those foods, sunflower seeds do have a good amount of copper.
+- **[04:20](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=260s)** — Even dark chocolate has some copper.
+- **[04:23](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=263s)** — Just make sure you don't get the chocolate with a lot of sugar.
+- **[04:25](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=265s)** — How do we make sure our bodies are producing enough antioxidants to counter some of this oxidative stress?
+- **[04:31](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=271s)** — To illustrate this, I want to explain a personal thing that happened to me recently.
+- **[04:35](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=275s)** — There's a very in-depth test that you can do in your body. It's called a metabolic test.
+- **[04:39](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=279s)** — I was doing this test like very frequently, like once every two weeks.
+- **[04:43](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=283s)** — And what was really interesting about this, it kept showing high levels of oxidative stress.
+- **[04:48](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=288s)** — Like, that's weird.
+- **[04:50](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=290s)** — Upon looking at this deeper, I realized what it was.
+- **[04:53](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=293s)** — I was exercising like crazy.
+- **[04:56](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=296s)** — And exercise produces a tremendous amount of oxidative stress, as well as hydrogen peroxide.
+- **[05:03](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=303s)** — What I personally needed to do to counter that is to build up my antioxidant reserve.
+- **[05:09](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=309s)** — And to do that, I needed more glutamine, which is an amino acid.
+- **[05:12](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=312s)** — You can get the most glutamine from red meat.
+- **[05:15](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=315s)** — And then I retested myself and it was much, much better.
+- **[05:18](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=318s)** — The point was there's all sorts of things that can increase the need for more antioxidant help.
+- **[05:24](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=324s)** — Alcohol, smoking, pollution, junk foods.
+- **[05:28](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=328s)** — When we think about antioxidants, we're always thinking about like vitamin C and vitamin E,
+- **[05:32](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=332s)** — which are really important and you should definitely get those in your diet.
+- **[05:36](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=336s)** — But with your own antioxidant networks, protein is probably the most important thing.
+- **[05:43](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=343s)** — This is why it's so important to consume enough protein as you get older.
+- **[05:50](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=350s)** — And this is one reason why I don't encourage people to be vegans,
+- **[05:54](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=354s)** — because it's very difficult to get the quality protein.
+- **[05:57](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=357s)** — I have a really good friend who is a foot surgeon and she told me every time she does surgery,
+- **[06:04](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=364s)** — she notices the muscles just are not pink, they're not red, they're kind of gray.
+- **[06:09](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=369s)** — And that's probably anemia.
+- **[06:10](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=370s)** — The problem with vegans is they have to take an iron supplement and they're not getting this heme iron.
+- **[06:18](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=378s)** — And heme iron only comes from animal products like meat.
+- **[06:21](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=381s)** — And I'm not saying not to be a vegan or vegetarian. I'm just saying it's difficult.
+- **[06:25](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=385s)** — There are other things that help build up your antioxidants too.
+- **[06:28](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=388s)** — Now I already mentioned copper, but zinc and manganese.
+- **[06:32](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=392s)** — These are trace minerals that can come from shellfish, seafood, things like that.
+- **[06:37](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=397s)** — Magnesium and selenium, which is another trace mineral.
+- **[06:40](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=400s)** — What are some other things you can do to get this iron out of your tissues that go beyond
+- **[06:46](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=406s)** — avoiding iron and building up your internal antioxidant networks?
+- **[06:50](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=410s)** — One is quercetin. One of the best sources of quercetin is onions.
+- **[06:55](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=415s)** — Curcumin from turmeric is a good one too.
+- **[06:58](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=418s)** — Increasing your melatonin can be very, very therapeutic.
+- **[07:01](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=421s)** — I have a whole video on this. I'll put the link down below.
+- **[07:03](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=423s)** — One of the best sources of melatonin is infrared.
+- **[07:07](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=427s)** — Over 50% of the rays of the sun is infrared.
+- **[07:11](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=431s)** — Infrared increases melatonin and melatonin can help you regulate iron.
+- **[07:15](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=435s)** — Also, anything with tannins like black tea would be great.
+- **[07:19](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=439s)** — But the most powerful chelator for iron is called lactoferrin.
+- **[07:23](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=443s)** — You can get it when you consume raw milk or raw milk cheese because it's in dairy.
+- **[07:28](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=448s)** — That can help you decrease iron in your cells.
+- **[07:31](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=451s)** — You can also get it as a supplement as well.
+- **[07:33](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=453s)** — The next time you get your blood test, make sure they include ferritin.
+- **[07:36](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=456s)** — You want that number as low to zero as possible.
+- **[07:39](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=459s)** — I hope I put this on your radar enough for you to really do these action steps that I mentioned.
+- **[07:44](https://www.youtube.com/watch?v=k_Mb7BIo6hA&t=464s)** — So thanks for watching and I will see you in the next video.

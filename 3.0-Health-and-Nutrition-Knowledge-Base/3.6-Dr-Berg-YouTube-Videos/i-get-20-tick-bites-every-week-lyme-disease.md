@@ -1,0 +1,111 @@
+# I Get 20 Tick Bites Every Week (Lyme Disease)
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=5KSi-yCa4hE](https://www.youtube.com/watch?v=5KSi-yCa4hE)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=0s)** — By now, I should have had Lyme disease over and over again. I get roughly about 20 ticks per week.
+- **[00:07](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=7s)** — I'll be in the shower and I'm like scratching in my head. I'm like, what the heck is this? And then
+- **[00:11](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=11s)** — I'll pull out a tick in the back of my scalp. I'll have them hiding in different places. I'll
+- **[00:16](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=16s)** — be looking in the mirror and thinking that it's a mole, but actually it's a tick. It's really
+- **[00:21](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=21s)** — weird. And the problem I have with the treatment is I don't like antibiotics. They're not
+- **[00:25](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=25s)** — telling you not to take an antibiotic or the conventional treatment or to take it. I just want
+- **[00:29](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=29s)** — to give you another viewpoint. Antibiotics don't just kill the bad bacteria. They also kill the
+- **[00:33](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=33s)** — good bacteria. So they lower your immune system. And there's a percentage of people that develop
+- **[00:38](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=38s)** — resistance to antibiotics. So now they have things like chronic fatigue syndrome, fibromyalgia.
+- **[00:45](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=45s)** — They developed an autoimmune disease after their treatment of Lyme. So what I'm going
+- **[00:50](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=50s)** — to reveal today is what I think is the reason I'm not getting this Lyme disease.
+- **[00:55](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=55s)** — A couple points about ticks. Number one, there is over 900 different species of ticks. A certain
+- **[01:01](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=61s)** — percentage can create a Lyme, which is a kind of a corkscrew bacteria. They can penetrate
+- **[01:06](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=66s)** — into tissues that no other bacteria can get into. And this is one way they evade your immune
+- **[01:13](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=73s)** — system by going into certain tissues that don't have any immune cells. But there's other
+- **[01:20](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=80s)** — types of spiral chite infections that create other diseases like syphilis and something called
+- **[01:25](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=85s)** — Rocky Mountain spotted fever, which is a bit rare. And so you have this concept of not all
+- **[01:30](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=90s)** — ticks will carry this bacteria. And also this other point, not all of these corkscrew bacteria
+- **[01:37](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=97s)** — can create disease. And understanding that is very, very important in preventing these diseases.
+- **[01:45](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=105s)** — So here's what happens. A tick attaches itself in your body and the tick's saliva has this
+- **[01:50](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=110s)** — numbing agent. So it's really hard to know that it's on your body. This is why it is so
+- **[01:55](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=115s)** — important to check your body front and back sideways, your hair every single day. And on a
+- **[02:02](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=122s)** — positive note, it takes a bit of time between 36 and 48 hours, which is a really good thing
+- **[02:08](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=128s)** — because you have a little time to check your body and make sure that there's no ticks that
+- **[02:13](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=133s)** — are creating this effect. Or else it would be very bad if they can create an instant
+- **[02:18](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=138s)** — infection. First, you might have a little immune reaction, a little redness, but then it
+- **[02:22](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=142s)** — develops into something called a bullseye rash. That doesn't mean 100% of the time you have Lyme
+- **[02:29](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=149s)** — disease, but it's a good indicator that you might have it. And I had a bullseye rash two
+- **[02:34](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=154s)** — times in my life. And I will explain exactly what I did for both. But I think it's really
+- **[02:39](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=159s)** — important to understand more about this corkscrew bacteria. And also these corkscrew
+- **[02:45](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=165s)** — bacteria can also invade the heart, creating palpitations, arrhythmias, things like that.
+- **[02:50](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=170s)** — Another way that this Spirochite evades or avoids your immune system or immune system detection
+- **[02:58](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=178s)** — is by putting up certain defense mechanisms to keep them alive once your immune cells have
+- **[03:06](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=186s)** — actually engulfed them and are eating them by what's called a monocyte, which is a self that
+- **[03:14](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=194s)** — eats bacteria and viruses and fungus. They have an incredible ability to adapt
+- **[03:20](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=200s)** — to different environments. But the problem with these little bacteria is they create this
+- **[03:25](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=205s)** — immune reaction. And there's a lot of collateral damage that occurs from your
+- **[03:30](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=210s)** — immune system trying to kill them. And this is why you have a lot of inflammatory conditions
+- **[03:36](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=216s)** — when you have this condition called Lyme. When I initially got Lyme's disease long ago,
+- **[03:41](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=221s)** — I had severe inflammation in the back of my head. I had a severe headache. My whole body was like
+- **[03:51](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=231s)** — aching like I had the flu. And I was extremely tired. But that's the only time I ever reacted
+- **[03:57](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=237s)** — to a tick bite. And from that point on, I never had those reactions. And I'm going to
+- **[04:02](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=242s)** — tell you why I think I haven't. Apparently, that specific bacteria has the capacity to
+- **[04:11](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=251s)** — affect your receptors for vitamin D. Because vitamin D is the most important vitamin of the
+- **[04:20](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=260s)** — entire immune system, including the monocytes. Vitamin D helps the monocyte become very strong
+- **[04:26](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=266s)** — and efficient. Vitamin D also increases these anti-microbial, they're called peptides
+- **[04:33](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=273s)** — or compounds that help kill spirochetes. This microbe now is going to be in the driver's seat.
+- **[04:39](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=279s)** — It's going to be in control. And your immune cells are going to be in the back seat. Like
+- **[04:44](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=284s)** — even the Epstein-Barr virus or the cytomegalovirus has the ability to downgrade the vitamin D
+- **[04:50](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=290s)** — receptor because somehow it knows how important this vitamin D is, especially with enhancing
+- **[04:57](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=297s)** — your immune system's ability to fight. But there's another detail about this that I just
+- **[05:02](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=302s)** — thought was very interesting I want to share with you. The monocyte, when it comes in contact
+- **[05:07](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=307s)** — with the spirochete, triggers this other chemical called interferon. Now, what is interferon?
+- **[05:14](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=314s)** — Interferon is a compound that interferes with viruses. When a monocyte comes in contact with
+- **[05:19](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=319s)** — this bacteria, interferon goes up. So it must have some of the functions that we don't know
+- **[05:25](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=325s)** — about. Now, the other thing I was going to mention about this is something called the post
+- **[05:29](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=329s)** — treatment Lyme disease. This is very common. You see people that had Lyme, they had the treatment,
+- **[05:36](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=336s)** — but now they still have symptoms. They develop autoimmune diseases because the immune system is
+- **[05:41](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=341s)** — greatly suppressed because they can no longer absorb vitamin D. And this is where it gets
+- **[05:48](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=348s)** — really interesting because I take a tremendous amount of vitamin D on a regular basis.
+- **[05:53](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=353s)** — I think it's the vitamin D that keeps my immune system strengthened. It literally bulletproofs
+- **[05:59](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=359s)** — against problems like Lyme. And this next part I want to share with you. It's so important,
+- **[06:04](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=364s)** — but it's not really well known by even doctors. There's two different main systems of
+- **[06:10](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=370s)** — vitamin D. You have one system that controls all the calcium, okay? And then another system
+- **[06:16](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=376s)** — of vitamin D that is non-calcium benefits, like the supporting of the immune cells,
+- **[06:23](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=383s)** — like the support of your central nervous system, all your nerves, and then the heart,
+- **[06:28](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=388s)** — and the muscles, and the intestines, and the anti-inflammatory effect. That's all over here.
+- **[06:35](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=395s)** — This is a completely different system. This system that controls calcium in bone, that vitamin
+- **[06:41](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=401s)** — D is received from the blood. This system over here, like your immune system, is unable to
+- **[06:49](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=409s)** — get very much of this vitamin D from the blood. But this vitamin D is very locked up,
+- **[06:55](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=415s)** — mostly unavailable to this system right here, especially your immune cells. The immune system
+- **[07:02](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=422s)** — depends on its vitamin D from the sun, from your food, which is impossible because we don't
+- **[07:09](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=429s)** — get much vitamin D from our food, or supplements. Now, most of the research on vitamin D
+- **[07:16](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=436s)** — on skeletal system found that you only need a very small amount, like 600 IUs of vitamin D
+- **[07:22](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=442s)** — to maintain this calcium support for your skeletal system. But this system over here needs
+- **[07:29](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=449s)** — a lot more, like 10,000 IUs. Now, what's even more wild is that this type of vitamin D in the
+- **[07:37](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=457s)** — blood can last for three weeks. This vitamin D that comes from sun, food, or supplements
+- **[07:42](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=462s)** — only lasts 24 hours. In other words, if you're taking your vitamin D once a week,
+- **[07:47](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=467s)** — and not every day, you're not going to be able to feed the immune cells. And on top of that,
+- **[07:53](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=473s)** — that spiral kite has the ability to downgrade the vitamin D receptor by 50x. If I personally
+- **[08:01](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=481s)** — suspected that I had Lyme, I would be taking 30, 40, 50,000 IUs of vitamin D without any
+- **[08:08](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=488s)** — question at all. That's probably why I did not develop Lyme because really the strategy
+- **[08:13](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=493s)** — is going to be supporting your immune system versus trying to kill off this infection,
+- **[08:19](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=499s)** — because you end up killing off the immune system, the very thing that keeps you strong and keeps
+- **[08:25](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=505s)** — you protected. One additional thing I want to mention is that they have found these spiral
+- **[08:32](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=512s)** — kites in your tissue underneath your teeth. That's right. So if you have an abscess,
+- **[08:39](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=519s)** — an infection underneath the tooth, there's a possibility that you could have this spiral
+- **[08:44](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=524s)** — kite as well. And the reason I'm bringing that up is there's so many problems connected with
+- **[08:49](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=529s)** — teeth infections, especially after root canals, because this bacteria is hidden, it's protected
+- **[08:55](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=535s)** — underneath into the jaw, and it can leak out and create all sorts of problems with your heart,
+- **[09:01](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=541s)** — all sorts of problems with the immune system. It can keep you inflamed. And this is why I
+- **[09:05](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=545s)** — recommend a biological dentist or a holistic dentist to make sure you don't have these
+- **[09:10](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=550s)** — hidden infections underneath your teeth, which can create a lot of problems. This is the protocol
+- **[09:15](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=555s)** — that I think would be a good idea. Whether you're going to do an antibiotic or not,
+- **[09:20](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=560s)** — I would recommend taking high doses of vitamin D3. At least 30,000 I use. Anytime you take
+- **[09:26](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=566s)** — vitamin D3, you also need magnesium, and you need K2, and you need zinc. Those are all
+- **[09:31](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=571s)** — factors to allow vitamin D to work. And if you're taking high doses of vitamin D without those,
+- **[09:36](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=576s)** — you can actually even create a deficiency of the cofactors. Two other things I think would be
+- **[09:41](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=581s)** — really good to take. Japanese Nakweed for supporting your immune system, and then a lot
+- **[09:46](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=586s)** — of garlic. Now, if you wanted to learn more about a protocol that I used when I had Lyme,
+- **[09:52](https://www.youtube.com/watch?v=5KSi-yCa4hE&t=592s)** — check out this video right here.

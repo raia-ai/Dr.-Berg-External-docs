@@ -1,0 +1,151 @@
+# The 7 Intermittent Fasting Mistakes that Most People Make
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=CJ8XnQW4SIk](https://www.youtube.com/watch?v=CJ8XnQW4SIk)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=0s)** — There are seven mistakes that most people make when they start doing intermittent fasting.
+- **[00:04](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=4s)** — The first thing is they eat too much of a certain food when they come off their fasting routine.
+- **[00:10](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=10s)** — For example, they might start eating way too much peanut butter. They never ate that much before,
+- **[00:15](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=15s)** — but when they get on keto they tend to eat a lot of peanut butter. And one of the challenges
+- **[00:19](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=19s)** — with peanut butter is that high level of aflatoxins. What is an aflatoxin? Well,
+- **[00:24](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=24s)** — that's a mold. And there are higher levels of aflatoxins in peanut butter, but it's also in
+- **[00:29](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=29s)** — saba as well because also sometimes people do the keto alternative chips or potato chips,
+- **[00:37](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=37s)** — which is cassava chips, and that also has higher levels of aflatoxins. They say it's well
+- **[00:42](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=42s)** — tolerated in adults more than children, which is a whole different topic. But with adults,
+- **[00:48](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=48s)** — if you're eating a lot of it over a long period of time, it can accumulate. It can irritate
+- **[00:55](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=55s)** — the liver and the gallbladder. Those are the two areas that this aflatoxin seems to irritate most.
+- **[01:01](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=61s)** — And if aflatoxins are very, very high, I mean it can even create super oxidation of the liver
+- **[01:06](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=66s)** — and even necrosis, inflammation, cancer of the liver and the gallbladder. So it's just
+- **[01:12](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=72s)** — something to think about. If you're on the ketogenic diet and all of a sudden you feel
+- **[01:15](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=75s)** — like your liver is swollen or you have right shoulder pain or you feel more arthritic
+- **[01:19](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=79s)** — or there's something going on with your gallbladder, it could be all that peanut
+- **[01:23](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=83s)** — There's a couple things that you can do to minimize that effect, other than just avoiding
+- **[01:27](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=87s)** — peanut butter. One is consuming organic Valencia peanut butter. That type has lower levels of this
+- **[01:33](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=93s)** — mold. As well as consuming celery with the peanut butter. Because celery has a certain
+- **[01:40](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=100s)** — chemical that counters some of this aflatoxin. Peanut butter is not very high in nutrients.
+- **[01:47](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=107s)** — All right, the next thing is almond flour. This is a big one because with keto, I mean
+- **[01:52](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=112s)** — almost every recipe includes almond flour. Like the breads, the muffins, the cookies,
+- **[01:57](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=117s)** — they all have almond flour. Almonds are very high in oxalates and so that can also irritate
+- **[02:04](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=124s)** — certain joints. It can irritate your digestive system. So it's another one to watch out for
+- **[02:09](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=129s)** — that can potentially influence your results when you start this fasting program. And I'm
+- **[02:14](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=134s)** — not telling you to avoid all nuts. You could do walnuts, pecans, pistachios and also a
+- **[02:22](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=142s)** — fine. And then the last thing that people eat a lot of on the keto, especially when they get
+- **[02:26](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=146s)** — started, are all these keto bars or keto desserts. Which has certain ingredients that
+- **[02:34](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=154s)** — I think is a problem. All the functional fibers like the soluble corn fiber and tapioca
+- **[02:40](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=160s)** — fiber. And you might think, oh, it's a fiber. So it's not a sugar, but it can actually be
+- **[02:44](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=164s)** — a problem because there's no long-term studies on that. There's also a lot of sugar alcohols
+- **[02:48](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=168s)** — can disrupt your digestive system and give you a lot of gas and it can affect your mood.
+- **[02:54](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=174s)** — So again, I would just eat focus on like real food, like high quality meats and
+- **[03:00](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=180s)** — eggs and fish and vegetables, things like that. Number two is not combining keto with
+- **[03:07](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=187s)** — your intermittent fasting. You're doing intermittent fasting, but you're not then
+- **[03:11](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=191s)** — getting on the ketogenic diet. Your carbs are just too high. Now that being said,
+- **[03:15](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=195s)** — something is better than nothing. And I think it's totally reasonable to go ahead and start with
+- **[03:19](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=199s)** — one of these, but eventually you'd want to actually add both of these powerful tools to
+- **[03:24](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=204s)** — get you in a place where you're getting all the benefits. In fact, going on low carb,
+- **[03:29](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=209s)** — okay, the keto plan can greatly get you into ketosis and make your fasting easier because
+- **[03:36](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=216s)** — your appetite and cravings are going to completely go away. So in other words, I think
+- **[03:39](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=219s)** — you're going to really more than even double your benefits if you can do both of these.
+- **[03:42](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=222s)** — All right, the next thing I want to talk about is the pattern of your intermittent fasting.
+- **[03:46](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=226s)** — Probably the most common pattern is what's called 18 in 6. When you're fasting for 18 hours,
+- **[03:52](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=232s)** — and then you have a six hour eating window. So let's say for example, you your first meal
+- **[03:58](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=238s)** — was at 12 and your second meal was at 6. That would be an 18 to 6 ratio. When we talk
+- **[04:05](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=245s)** — about the eating window, it is true that you can pretty much eat during that window,
+- **[04:10](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=250s)** — but I would recommend not snacking between that window. Having two meals, one at your 12 o'clock
+- **[04:17](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=257s)** — noon, right? And then fast all the way until 6 and have your second meal. So I wouldn't
+- **[04:23](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=263s)** — eat all the way in graze to that entire fasting window if I were you, because you
+- **[04:28](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=268s)** — would have more benefits if you just didn't eat anything. And there are a lot of different
+- **[04:32](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=272s)** — patterns and you can test the different patterns and see what works for you. But just by
+- **[04:37](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=277s)** — tens of thousands of people doing this over the years, I would say if you're over the age of
+- **[04:44](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=284s)** — 50, you should really consider doing one meal a day. It's called OMAD. If you can do that
+- **[04:50](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=290s)** — and just make sure it includes all the nutrients you need. And I have a lot of videos
+- **[04:53](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=293s)** — on that. But I think for everyone else, they should do two meals. Okay. And I'm going to
+- **[05:00](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=300s)** — tell you what really is successful, at least for me and a lot of others, is to try to go
+- **[05:04](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=304s)** — as long as you can with that first meal. Right around lunchtime, if you're not hungry, just
+- **[05:09](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=309s)** — ride the wave and go a little longer. And if you can go like one o'clock or two o'clock
+- **[05:14](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=314s)** — or even three o'clock, that would be awesome. So just really pay attention to your hunger
+- **[05:19](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=319s)** — and your appetite. Because if you're not hungry, ride the wave and go a little bit longer.
+- **[05:24](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=324s)** — And then that second meal, try to do an early dinner. So a late lunch and early dinner.
+- **[05:31](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=331s)** — And where I'm going with this is just to really shorten that eating window down to maybe two or
+- **[05:36](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=336s)** — three to four hours. Okay. That would be incredible because then you would have
+- **[05:41](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=341s)** — more than 20 hours of fasting. Okay. That's huge. That is going to create some serious
+- **[05:47](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=347s)** — change with your brain, growing new brain cells, growing a new immune system,
+- **[05:53](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=353s)** — really helping your gut reset because you're not eating and you're going to give your
+- **[05:58](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=358s)** — digestive system a chance to reset. You're going to stimulate more of what's called the
+- **[06:02](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=362s)** — parasympathetic, which is the recovery. You're going to definitely sleep better. You're going
+- **[06:07](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=367s)** — to have more energy. You're going to have more support with your mitochondria. You're
+- **[06:11](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=371s)** — going to develop more antioxidants in your body. Your insulin is going to be less resistant.
+- **[06:17](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=377s)** — Okay. So that's going to heal. Your blood sugars are going to do much better. And your
+- **[06:20](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=380s)** — inflammatory conditions will go way down. If you can do that 20 hours. For me, a lot
+- **[06:26](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=386s)** — times I like to eat at like one o'clock, sometimes two, and then maybe I'll eat a
+- **[06:32](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=392s)** — dinner at four and five. Now, am I hungry at four or five? Usually not. But personally,
+- **[06:37](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=397s)** — if I do one meal a day, which I would like to do, I just lose too much weight. So I tend
+- **[06:42](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=402s)** — to spread those calories out in two meals because if you're trying to maintain your
+- **[06:45](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=405s)** — weight or even gain weight with one meal a day, it's so hard. You'd have to eat so much
+- **[06:51](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=411s)** — And you're going to feel really stuffed. But the point is, just think about this principle.
+- **[06:57](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=417s)** — Go as long as you can, have a late lunch, and then try to do an earlier dinner. Okay.
+- **[07:01](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=421s)** — As early as you can. You're going to find if you do that, okay, you're going to sleep
+- **[07:06](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=426s)** — better because the later you eat in the evening, towards where you go to bed, the
+- **[07:12](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=432s)** — more it's going to affect your digestion. And that can affect your sleeping. All right. So
+- **[07:20](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=440s)** — Sometimes people think that when they're fasting, they're starving. No, no, you're
+- **[07:26](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=446s)** — not starving. Your body is eating when it's not eating. It's eating your fat when you're not
+- **[07:31](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=451s)** — eating. So you're actually getting fuel. And in that stored fat, you have fat soluble vitamins
+- **[07:37](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=457s)** — too that are being released as well. So you're getting some nutrients as well. So it's not
+- **[07:42](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=462s)** — that you're not eating. You are eating. You're just eating your own fat. I just have found
+- **[07:48](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=468s)** — through a lot of trial and error. If you, especially in the beginning, like you, because
+- **[07:52](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=472s)** — you're fasting and you have this restriction on eating, a person tends to, it's kind of a
+- **[07:57](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=477s)** — scarcity. So they'll tend to eat as much as they can in that meal because, oh my gosh,
+- **[08:01](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=481s)** — am I going to make it to the next meal? You don't need to do that. Okay. Experiment with it.
+- **[08:06](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=486s)** — You're going to feel a lot better if you don't stuff yourself. So this relates to the
+- **[08:09](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=489s)** — question, how many calories do I need? I wouldn't go by that. I would just go by,
+- **[08:13](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=493s)** — what do you feel comfortable with eating with that meal without overdoing it? And you know
+- **[08:19](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=499s)** — what I mean overdoing it. I'm talking about, you feel so bloated. You're just stuffed. You
+- **[08:24](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=504s)** — just don't want to do that. All right. Number five. Okay. Make sure that when you're doing
+- **[08:28](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=508s)** — intermittent fasting, you also take B vitamins and electrolytes. Why? Both of those categories
+- **[08:34](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=514s)** — of nutrients are of an increased demand. Okay. When you do keto, when you get your body into
+- **[08:39](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=519s)** — burning and you're generating ketones, you do need certain minerals and certain B vitamins.
+- **[08:45](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=525s)** — I would make sure your B vitamins are more natural and even you can get it from
+- **[08:49](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=529s)** — nutritional yeast. And also make sure when you do the electrolytes that you have something
+- **[08:53](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=533s)** — that's high quality with high enough amounts of potassium. And of course, when you're doing
+- **[08:58](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=538s)** — with electrolytes, make sure it has no hidden maltodextrin and it has a good amount of
+- **[09:04](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=544s)** — potassium and the other electrolytes as well. Number six mistake is not doing the healthy
+- **[09:09](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=549s)** — version of the ketogenic diet. There's something called dirty keto, which you're pretty much,
+- **[09:14](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=554s)** — you know, just going to any restaurant, you know, fast food restaurant and you're just like
+- **[09:17](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=557s)** — having the burger without the bun, but you're not focusing on quality. That's totally fine.
+- **[09:22](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=562s)** — If you need to do that. Okay. And especially if you're a college student and you can't
+- **[09:26](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=566s)** — afford the higher quality, but if you can afford it, it's worth it because think about
+- **[09:31](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=571s)** — when you're eating less meals, when you're doing intermittent fasting, you're going to be
+- **[09:35](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=575s)** — spending a little less money on food. Okay. You probably save several hundred dollars per month.
+- **[09:42](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=582s)** — Reinvest that in higher quality of food that has more nutrient dense foods. And I'm talking
+- **[09:47](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=587s)** — about like the organic pasture raised eggs. I'm talking about wild caught fish and seafood.
+- **[09:53](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=593s)** — I'm talking about grass fed meats, things like that. And I'm talking about soil-based
+- **[09:58](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=598s)** — vegetables too. Okay. Vegetables from the farmer's market, things like that. As compared
+- **[10:03](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=603s)** — like the vegetables you'd get at the grocery store, like the lettuces that are grown
+- **[10:07](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=607s)** — in either hydroponic or not real soil, but it's something you can grow in and they just add the
+- **[10:13](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=613s)** — nutrients in there. That's not as good as what the soil can deliver to that plant. And the
+- **[10:18](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=618s)** — last mistake I think people make is stopping when they plateau thinking that it's not
+- **[10:23](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=623s)** — working when it actually is. I can't tell you how many people that I've consulted that
+- **[10:29](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=629s)** — come to find out they think it's not working because they're only losing one pound a week
+- **[10:35](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=635s)** — or they're not losing anything. But let's say you are just losing one pound a week. That's
+- **[10:38](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=638s)** — pretty good for the average person that is older. You have to realize that the most you
+- **[10:44](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=644s)** — can lose per week is two pounds. Initially when you lose like five pounds, that's just
+- **[10:48](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=648s)** — water weight. And then you're going to have less and less until the point where you're
+- **[10:51](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=651s)** — just burning fat. There's always something you do to speed up the process. You can fast longer.
+- **[10:56](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=656s)** — You can do periodic prolonged fasting. You can cut your carbs lower. You can add exercise.
+- **[11:02](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=662s)** — You can sleep longer. You can reduce your stress. You can take certain additional remedies
+- **[11:08](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=668s)** — like berberine or cinnamon or things like that to improve insulin resistance. Because what
+- **[11:14](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=674s)** — can happen as you're losing weight? You're going through the healing process. And when
+- **[11:18](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=678s)** — you're going through the healing process, your muscles tend to grow more. And the way that you
+- **[11:26](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=686s)** — go away. Okay. Do you no longer have cravings? That means it's working more than anything. And
+- **[11:31](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=691s)** — how is your energy? How's your mood? Focus on those things because the whole principle is that
+- **[11:35](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=695s)** — you have to get healthy first, then lose the weight versus the other way around. Now, because
+- **[11:41](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=701s)** — of the censoring and the suppressing of the algorithms on YouTube, it's becoming more
+- **[11:46](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=706s)** — difficult to find my content. And there's a lot of content that I cannot put on YouTube,
+- **[11:51](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=711s)** — so to make sure you have full access of all my information, go to DrBurg.com and subscribe
+- **[11:56](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=716s)** — to my newsletter by clicking the link down below in the description. I will see you on
+- **[12:02](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=722s)** — the other side. Now, to give you the details on how to do intermittent fasting,
+- **[12:06](https://www.youtube.com/watch?v=CJ8XnQW4SIk&t=726s)** — you should watch this video right here.

@@ -1,0 +1,128 @@
+# The 7 Warning Signs of a Zinc Deficiency
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=kUmXIXsMi0g](https://www.youtube.com/watch?v=kUmXIXsMi0g)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=0s)** — Today I want to discuss the seven warning signs of a zinc deficiency that has the potential
+- **[00:04](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=4s)** — to make your life a living hell. Now we are going to go through all of these, but I will
+- **[00:09](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=9s)** — say number seven is the most deadly and it's the most common. The reason I am doing a
+- **[00:15](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=15s)** — video on zinc is because zinc is the third most important nutrient. Number one being
+- **[00:20](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=20s)** — vitamin D. Why? Because vitamin D is involved in 2500 genes. Number two is magnesium.
+- **[00:26](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=26s)** — Why? Because it's involved in 300 different enzymes. And zinc is number three because
+- **[00:32](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=32s)** — it's involved with over 200 different enzymes. That's a lot of biochemistry. Zinc allows
+- **[00:36](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=36s)** — you to make glutathione, which is the most powerful antioxidant. Zinc is highly concentrated
+- **[00:41](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=41s)** — in your prostate. It helps you make sperm and testosterone. Zinc is also in your
+- **[00:46](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=46s)** — pancreas, the specific part that makes insulin. Zinc is even in your brain, in
+- **[00:51](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=51s)** — your brain. It's a very specific part that is like a relay switch to your memories.
+- **[00:56](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=56s)** — It's called a hippocampus. So when your hippocampus goes down, you get dementia.
+- **[01:02](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=62s)** — Then you also have zinc's involvement in wound healing, decreasing gastritis, helping
+- **[01:07](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=67s)** — you make collagen, and even helping you grow your hair. But now let's get into
+- **[01:11](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=71s)** — the symptoms that can make your life a living hell. Night blindness is one big
+- **[01:15](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=75s)** — indication of a zinc deficiency. And if you heard drove at night when it's dark
+- **[01:18](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=78s)** — and you can't see, it's extremely scary and dangerous. Alright, number two,
+- **[01:23](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=83s)** — low testosterone. In fact, you can even get something called hypogonadism,
+- **[01:28](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=88s)** — where your testicles are shrunk. Now, if you're female, you're going to notice your
+- **[01:32](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=92s)** — estrogen and progesterone are going to be excessively low. And if you're female,
+- **[01:38](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=98s)** — going through menopause, you need those hormones to be a lot higher. And if they're
+- **[01:42](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=102s)** — not, your life can be a living hell. As far as cortisol goes, what happens,
+- **[01:47](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=107s)** — the cortisol goes down because someone's deficient in zinc, and then that sends a
+- **[01:50](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=110s)** — signal back up to the brain, and then the brain causes the adrenal glands to
+- **[01:55](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=115s)** — overcompensate. So then you make more cortisol because you don't have enough
+- **[01:59](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=119s)** — zinc. So guess what? You're going to have more stress. Alright, that was
+- **[02:03](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=123s)** — number two. Number three is diarrhea. And if you've ever had chronic
+- **[02:07](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=127s)** — diarrhea, your life will be a living hell. A lot of children who consume
+- **[02:11](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=131s)** — a lot of cereal and grains in poor countries develop diarrhea because of a
+- **[02:17](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=137s)** — zinc deficiency because these grains have something called phytic acid that
+- **[02:21](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=141s)** — blocks the absorption of zinc. Number four is acne. I had really bad acne in
+- **[02:27](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=147s)** — high school, and that was very unfortunate because it really affected
+- **[02:30](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=150s)** — my self-esteem. I had one interest in high school that was girls, but I
+- **[02:37](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=157s)** — So that was a big barrier. No confidence. Your skin is highly influenced by zinc.
+- **[02:43](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=163s)** — Number five is alopecia. You actually lose hair. If you combine acne with
+- **[02:48](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=168s)** — hair loss, that would be a life of living hell. Zinc is so important in
+- **[02:53](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=173s)** — helping the growth of the root of the hair, also making the hair thick,
+- **[02:58](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=178s)** — and also to support the elasticity of the entire hair. Alright, number six
+- **[03:02](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=182s)** — is the need for cataract surgery because a lack of zinc can cause
+- **[03:06](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=186s)** — cataracts, which is terrible because your lens of your eye starts becoming
+- **[03:10](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=190s)** — opaque and you just can't see. Everything is white. So personally, I
+- **[03:15](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=195s)** — don't want cataracts, and number two, I don't want surgery on my eyes.
+- **[03:18](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=198s)** — Alright, now comes number seven. So you might want to be sitting down for
+- **[03:21](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=201s)** — this one because this one is extremely important. Maybe you're not ready for
+- **[03:26](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=206s)** — this. Maybe I should cover this in the next video.
+- **[03:29](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=209s)** — No, I'm just kidding. I'll tell you what it is. The thymus gland,
+- **[03:32](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=212s)** — which is the master immune gland, which sits on top of the heart, shrinks.
+- **[03:36](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=216s)** — But what's fascinating is it starts shrinking right after puberty. Check
+- **[03:41](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=221s)** — this out. You have a very healthy thymus gland, right? You have all
+- **[03:45](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=225s)** — that gland right there. And then at age 25, it's already down to this
+- **[03:49](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=229s)** — level. Now the rest of this is just fat. And then look at that 50 years
+- **[03:53](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=233s)** — old, significantly less thymus gland, thus less immune system. And then
+- **[03:58](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=238s)** — at 70, you just have traces of this thymus gland. So you have maybe just
+- **[04:02](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=242s)** — a little bit of residue left to be able to fight infections. The
+- **[04:06](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=246s)** — thymus is the most important immune gland. It makes T cells. Now,
+- **[04:11](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=251s)** — I'm sure you've probably heard of T cells, but the letter T stands
+- **[04:15](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=255s)** — for thymus because they originate from the thymus gland. And these
+- **[04:18](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=258s)** — T cells control and coordinate every aspect of your immune system. If you
+- **[04:23](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=263s)** — instantly just take an antibiotic for every infection and an aspirin
+- **[04:26](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=266s)** — to reduce the fever, you weaken the immune system. I would just let it go
+- **[04:31](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=271s)** — through its cycle. I wouldn't try to suppress it. If it gets over 104,
+- **[04:34](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=274s)** — okay, good, check with your doctor. But that fever really is part of
+- **[04:37](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=277s)** — your immune defenses, and it's there to cook the viruses and
+- **[04:41](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=281s)** — bacteria. But the T cells are not just about infection. They're also
+- **[04:45](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=285s)** — about killing cancer and preventing autoimmune diseases. So if there's
+- **[04:52](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=292s)** — immune cells that are not able to differentiate, in other words,
+- **[04:54](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=294s)** — they're not able to tell the difference between your cell and a bad
+- **[04:59](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=299s)** — guy or a pathogen, then your immune system kills them, gets rid of them
+- **[05:02](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=302s)** — because we don't want to have a self attack. And that's what happens
+- **[05:05](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=305s)** — in autoimmune diseases. A researcher, Professor Greg Fay, who has
+- **[05:10](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=310s)** — some mind blowing research I'm going to share with you. His whole
+- **[05:13](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=313s)** — thing is about anti-aging. And he basically is all of his work is
+- **[05:17](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=317s)** — designed to help restore and regenerate this atrophy thymus
+- **[05:23](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=323s)** — gland. So if you can actually regenerate the thymus gland, you can
+- **[05:28](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=328s)** — literally increase lifespan because you're going to decrease the
+- **[05:31](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=331s)** — risk of getting cancer and infections. So in his study, he
+- **[05:36](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=336s)** — gave patients growth hormone, also metformin and DHEA to prevent
+- **[05:41](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=341s)** — the side effect of growth hormone, which is diabetes. The growth
+- **[05:45](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=345s)** — hormone actually stimulated the growth of the thymus and a 20%
+- **[05:49](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=349s)** — increase in VO2 max. I mean, VO2 max is your maximum lung capacity,
+- **[05:56](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=356s)** — your ability to use oxygen, which a high level usually relates to
+- **[05:59](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=359s)** — an athlete. But the subjects that went through his program
+- **[06:03](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=363s)** — didn't do a lot of extra exercise. He was one of the first
+- **[06:06](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=366s)** — people to reverse this biological clock. So this is fascinating
+- **[06:09](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=369s)** — information. I was really excited about it. I started to look into
+- **[06:12](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=372s)** — the research on animal studies. And I found some additional
+- **[06:16](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=376s)** — information I want to share with you. In this one study, a
+- **[06:19](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=379s)** — transplanted the thymus from a younger rat into this older
+- **[06:22](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=382s)** — rat. And there is remarkable regeneration and aging. It was
+- **[06:27](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=387s)** — just quite mind blowing. The rat lived a lot longer with
+- **[06:30](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=390s)** — regrowth of the organ. Okay, now I want to show you two
+- **[06:33](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=393s)** — amazing studies involving giving zinc to mice, a full
+- **[06:38](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=398s)** — recovery of the thymus function with regrowing of the
+- **[06:42](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=402s)** — organ, and a partial improvement in the immune
+- **[06:45](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=405s)** — system as measured by natural killer cells. So we're increasing
+- **[06:50](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=410s)** — these natural killer cells that basically kill viruses, and
+- **[06:54](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=414s)** — they kill cancer. Let me just quickly cover what causes a
+- **[06:57](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=417s)** — zinc deficiency. Number one, getting older. Number two,
+- **[07:00](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=420s)** — having gut issues. Number three, not consuming animal
+- **[07:04](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=424s)** — products, alcohol, sugar, chronic stress, and certain
+- **[07:08](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=428s)** — medications. Zinc also has to be balanced out with copper.
+- **[07:11](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=431s)** — And anytime you take zinc, I recommend taking also with
+- **[07:14](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=434s)** — copper at a ratio of 10 to one. 10 times as much zinc is
+- **[07:18](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=438s)** — copper. I would recommend one more thing, and that would be a
+- **[07:23](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=443s)** — thymus extract. But when I buy supplements, I do look at
+- **[07:26](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=446s)** — reviews, and it's quite fascinating. People are
+- **[07:28](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=448s)** — improving their histamine levels, decreasing allergies.
+- **[07:31](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=451s)** — Some people claim that their hair is getting darker. Because
+- **[07:34](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=454s)** — in the study that Dr. Greg Fay did, he also found a
+- **[07:38](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=458s)** — smaller group of people started noticing darker hair.
+- **[07:42](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=462s)** — You don't want to have premature shrinkage of your
+- **[07:44](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=464s)** — thymus gland. You want to extend that as long as
+- **[07:46](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=466s)** — possible. And even though studies were done in mice,
+- **[07:49](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=469s)** — you know, it might help humans as well. No claims here,
+- **[07:52](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=472s)** — you're gonna have to try it yourself. No guarantees. And if
+- **[07:55](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=475s)** — you want a little bit more information about zinc, you
+- **[07:56](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=476s)** — should check out this additional video I have,
+- **[07:59](https://www.youtube.com/watch?v=kUmXIXsMi0g&t=479s)** — which is fascinating.

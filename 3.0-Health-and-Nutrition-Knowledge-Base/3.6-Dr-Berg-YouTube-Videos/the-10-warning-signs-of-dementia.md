@@ -1,0 +1,111 @@
+# The 10 WARNING Signs of Dementia
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=86Yd1EEWMBA](https://www.youtube.com/watch?v=86Yd1EEWMBA)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=0s)** — So this is an updated video that I did about a year ago.
+- **[00:03](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=3s)** — And I'm going to give you 10 signs of dementia that are really, really important.
+- **[00:08](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=8s)** — With the first sign or symptom, that can occur 10 years before you have any cognitive changes whatsoever.
+- **[00:16](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=16s)** — But I have to mention something. Just because you have the following symptoms that I'm going to mention does not mean you have dementia.
+- **[00:23](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=23s)** — It could be your sleep. It could be your stress. It could be what you just ate. It could be some wine you had just yesterday. It could be anything.
+- **[00:31](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=31s)** — And I have to say this, which I said in my other video. The worst thing you could do is start to diagnose people with dementia.
+- **[00:42](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=42s)** — Especially friends, family, and your spouse. I've seen it a lot in practice.
+- **[00:48](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=48s)** — Where a spouse is correcting another spouse.
+- **[00:52](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=52s)** — Honey, you made a mistake. Honey, you're forgetting things. Don't do that. You can actually mess someone up. You can actually create more of that.
+- **[01:00](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=60s)** — So if your spouse makes a mistake, just move on. Don't try to correct them. I've seen it so much before. It's just not a healthy thing to do.
+- **[01:07](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=67s)** — What is dementia? Well, we have a normal brain right here. And over time, people can develop a pathological brain condition, which is where it atrophies.
+- **[01:20](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=80s)** — And that can create dementia as a symptom. So in dementia, you have a shrinkage of certain parts of the brain. You also have inflammation.
+- **[01:29](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=89s)** — What's really interesting about this is it takes many years for this process to develop.
+- **[01:36](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=96s)** — And there's one symptom or sign that occurs 10 years before any cognitive changes can occur.
+- **[01:45](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=105s)** — And I want to mention what that is. Actually, there's two symptoms or two signs.
+- **[01:50](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=110s)** — Before you even get any type of cognitive changes. So the first change is a sensory change.
+- **[01:57](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=117s)** — And it mainly has to do with the sensation of smell, because the nerve endings in your sinuses directly go right to the back of the brain, the central nervous system.
+- **[02:09](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=129s)** — And there's no blood brain barrier. It's kind of like a vulnerable place to be exposed to create damage. So it's going to show up first.
+- **[02:19](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=139s)** — Now, there is another part of the brain that extends out beyond the blood brain barrier called the retina.
+- **[02:27](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=147s)** — Extends outside the skull in the inner eye, and it's exposed to different things too. But out of all the sensory problems, it's the smell.
+- **[02:36](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=156s)** — Now, what's interesting about the smell is sometimes if you're lacking smell, it's an omission. You don't really notice it.
+- **[02:43](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=163s)** — So sometimes people get used to it because it's like an absence of something. It's not like a pain that you notice.
+- **[02:49](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=169s)** — It's just you're lacking something, right? And you just go along and you might not even be aware of it.
+- **[02:56](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=176s)** — But there's some very interesting research on the association of lack of smell as being the first sign well before the other cognitive problems.
+- **[03:04](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=184s)** — Now, I mentioned there's two of these signs before the cognitive changes. There's actually three. So I already mentioned the vision.
+- **[03:10](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=190s)** — But the third one is sleep. Yeah, sleeping problems. Now, of course, if you have a sleeping problem, it could be a hundred different reasons.
+- **[03:18](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=198s)** — But there's a high association between sleeping problems, insomnia, and dementia.
+- **[03:24](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=204s)** — All right. Number four is agitation. What is that? That is a low tolerance distress. It's someone who gets agitated easily.
+- **[03:34](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=214s)** — They have a short fuse. They're not in a calm state. But again, I mean, a lot of people have this and there's nothing to do with dementia.
+- **[03:42](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=222s)** — But it definitely fits in that category as one of the early signs of dementia. And then restlessness.
+- **[03:49](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=229s)** — When the brain starts to break down, the person gets really restless. They cannot just sit still.
+- **[03:57](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=237s)** — All right. The next one is aggression. They might be a bit angry. They might snap at you.
+- **[04:04](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=244s)** — This also relates to the low stress tolerance. But aggression is just agitation with volume turned up.
+- **[04:11](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=251s)** — Then we get into the memory problems. And this could be, you know, forgetting words. It could be forgetting names.
+- **[04:17](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=257s)** — It could be something related to difficulty learning something. Also, there's something called the clock test.
+- **[04:24](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=264s)** — The inability to recognize the time from a clock.
+- **[04:29](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=269s)** — And the way that some researchers describe this is like if you have someone draw a clock and just have them write out what nine o'clock is, for example, or three o'clock and see if they can do it.
+- **[04:40](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=280s)** — So a person also might be mixing up words. They will also have a longer lag time between answering you.
+- **[04:49](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=289s)** — And also there's many other aspects to this. It could be spatial recognition like the inability to locate where your car is or where your keys are or find your way home without GPS.
+- **[05:04](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=304s)** — It can also involve a lack of focus, for example, too, or concentration.
+- **[05:09](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=309s)** — Okay, so the next one is a lower emotion. Now it can be all the way down into depression or it could be a little higher in anxiety.
+- **[05:17](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=317s)** — But they no longer have this higher level of emotion. It drops down. So it can even be like an apathy. It's just kind of like they're staring off into the distance.
+- **[05:26](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=326s)** — Alright, the next one is interesting. Incontinence. Okay, so the loss of control of the bladder or the bowels.
+- **[05:35](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=335s)** — Now this is interesting, but it does make sense when you understand that the brain is controlling both of those actions.
+- **[05:44](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=344s)** — And so obviously there's breakdown in the brain tissue. And then the last one is constipation, which also relates to the nervous system.
+- **[05:51](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=351s)** — But it also relates to the gut. What you have to realize is the gut directly affects the brain and the brain affects the gut. There's a whole axis there.
+- **[06:03](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=363s)** — Now the next part of this, I'm going to talk about the causation of this before I get into what to do about it.
+- **[06:08](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=368s)** — But what you need to know is there's chronic inflammation. Okay, now what does that mean? It could come from things that you're eating.
+- **[06:16](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=376s)** — It could come from head trauma and even destroys the blood brain barrier where you start getting this leakage.
+- **[06:24](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=384s)** — I mean, think about it. The same thing happens in your arteries. The same thing happens in your gut. You get leaky gut. You get leaky brain.
+- **[06:33](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=393s)** — And then you start having problems. What creates that? Inflammation. Things that destroy that barrier.
+- **[06:40](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=400s)** — I think if we take a look at your foods, to the extreme on the left, it's going to be refined sugars, refined starches, and refined oils.
+- **[06:51](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=411s)** — There's a lot of data now that shows these seed oils that are heated like five or six times and then they might be used at the fast food restaurants five or six, ten, twenty times reheated.
+- **[07:05](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=425s)** — And then you're going to actually eat food that's been bathed in that. It's going to go into the body. It's highly inflammatory.
+- **[07:11](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=431s)** — It's in your salad dressings. It's in your condiments. It's in literally about 80 percent of all the foods in the grocery store.
+- **[07:21](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=441s)** — But the point is that out of all the things that can create inflammation, it's obviously the junk foods or ultra processed foods.
+- **[07:27](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=447s)** — Yes, you have alcohol, you have smoking, but the worst is the ultra processed foods.
+- **[07:33](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=453s)** — That's all going to cause insulin resistance. And that is one common factor with Alzheimer's, dementia, is they nearly always have insulin resistance,
+- **[07:44](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=464s)** — which really causes the neuron, the nerve cell, to literally starve of fuel because when you have that resistance, this brain cell can't get fuel anymore.
+- **[07:53](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=473s)** — And that's why when you go on a low carb diet and you have these ketones, ketones can bypass that damage and feed the neuron directly.
+- **[08:02](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=482s)** — And this is probably why they call Alzheimer's type 3 diabetes.
+- **[08:06](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=486s)** — Now, there's other things too that can influence this inflammation. It could be heavy metals. It can be an infection.
+- **[08:11](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=491s)** — Or it can even be high blood pressure that is causing this massive pressure situation all up into the brain.
+- **[08:19](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=499s)** — There's a certain genetic weakness that I want to just bring up because you won't know about this unless you get your genetics tested.
+- **[08:28](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=508s)** — And the type of genetics I'm talking about, and I'm going to give you this new word, is called polymorphism.
+- **[08:34](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=514s)** — And this is where you have a very specific gene that's altered in some way. It's modified.
+- **[08:39](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=519s)** — It's called APOE4. The great majority of the public has APOE3.
+- **[08:46](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=526s)** — But there's two copies, okay? And if you have just one copy, the APOE4, it brings up your risk at 30% of developing dementia.
+- **[08:57](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=537s)** — But if you have both copies, that risk factor goes up between 50 and 90%.
+- **[09:03](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=543s)** — Now, why is this significant? Because this is something that is in your genes that can set up a weakness or a vulnerability only if your environment and your lifestyle is not that great.
+- **[09:16](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=556s)** — But just because you have these genetic weaknesses does not mean anything because what really controls the activation of these genes is your lifestyle and the environment.
+- **[09:28](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=568s)** — So you can control these genes, but I think it's helpful getting this genetic test to find out if you have this weakness because it might motivate you to avoid drinking and smoking and start eating healthier and exercising.
+- **[09:41](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=581s)** — Because if you don't make those changes, the odds are that you are going to develop a big problem down the road with dementia.
+- **[09:47](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=587s)** — The question is, what can you do about it? Okay? There's obviously, you know, removing the bad, adding the good.
+- **[09:53](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=593s)** — There's some very impactful things you can do that make a huge difference. And the big one is exercise.
+- **[09:58](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=598s)** — Yes, and that's because it will drive a lot of blood flow to your brain and it will also help build up and regenerate your mitochondria in your brain.
+- **[10:09](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=609s)** — Regular exercise can significantly drop your risk for Alzheimer's. In fact, it's probably the most important thing despite anything else.
+- **[10:18](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=618s)** — Even if you're having a sleep problem and you're stressed out, but if you exercise on a regular basis, it's extremely protective to your brain.
+- **[10:30](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=630s)** — So then sleeping, that's really important too. Not as important as exercise, but it's still important because that's going to reduce your stress.
+- **[10:36](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=636s)** — The brain is going to do much better on ketones than sugar. So this is why you do need to go on a low carb diet.
+- **[10:44](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=644s)** — But do the healthy version of it with a lot of great ingredients, which I will put a link down below if you want to know what that looks like.
+- **[10:50](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=650s)** — But ketones will be the preferred fuel for the brain. Intermittent fasting, very important, and periodic prolonged fasting for the brain.
+- **[10:58](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=658s)** — When you fast, it's like miracle grow to your brain. You help increase this thing called brain derived neurotrophic factor and it will actually help you grow new brain cells.
+- **[11:09](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=669s)** — The next thing on the list that's really important is a lot of omega-3 fatty acids. So we want to get rid of the omega-6, get rid of it completely.
+- **[11:18](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=678s)** — It's inflammatory. Realize it also competes with the omega-3. And we want to omega-3. This is fish oils.
+- **[11:25](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=685s)** — I personally like cod liver oil because it has the vitamin D and the vitamin A with it, whereas fish oils don't.
+- **[11:30](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=690s)** — But omega-3 in higher doses is very, very important for the brain.
+- **[11:33](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=693s)** — Now, the B vitamins are also important. B1, extremely important to help prevent this atrophy and also for many other things.
+- **[11:42](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=702s)** — Also the entire B complex, including the natural forms of B9, which is folate, and the natural form of B12, which is methyl cobulamine, versus the synthetic versions.
+- **[11:54](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=714s)** — Vitamin D is very important for the brain. There's a lot of receptors in the brain for vitamin D.
+- **[12:01](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=721s)** — And vitamin D is one of the most potent anti-inflammatories. So there's several other things that you can do, like sauna treatments.
+- **[12:08](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=728s)** — There's one study that showed that if you do between four to seven sauna treatments a week, you can drop your risk of dementia by 60%.
+- **[12:17](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=737s)** — Resveratrol and another supplement called NAD are really good for your brain. Also, probiotics are also essential to help your brain.
+- **[12:27](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=747s)** — And cold therapy, believe it or not, is really good for regenerating the brain. Now, you would think that the cold would be something that would harm the brain.
+- **[12:37](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=757s)** — But just think about on the history of things, how many times humans have starved in very cold temperatures.
+- **[12:45](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=765s)** — We have all sorts of genes that kick in when our bodies get colder that help us survive, especially in your brain.
+- **[12:52](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=772s)** — But if you think about it, your body does a lot to preserve the brain and protect the brain because it's the key thing to help you survive.
+- **[12:59](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=779s)** — So cold therapy has some serious benefits. And as much as I dislike the feeling of it initially, it gives me the most rejuvenation of my brain.
+- **[13:11](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=791s)** — It just brings me right up and it's quick. It's wild. I didn't think it could do that. But it's winter right now and I am doing the cold immersion.
+- **[13:21](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=801s)** — I know it's crazy. I never thought I would do it. But because it makes me feel so good, I still do it.
+- **[13:26](https://www.youtube.com/watch?v=86Yd1EEWMBA&t=806s)** — Now, if you have not seen my other video that got millions of views, you should check that one out too. I put it right here. It's very important.

@@ -1,0 +1,91 @@
+# Look Younger Instantly: The Secret
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=z8dfLN5qpsI](https://www.youtube.com/watch?v=z8dfLN5qpsI)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=0s)** — The more I look at health, the more that you cannot create health without stress and some bit of
+- **[00:07](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=7s)** — destruction. You've heard the concept, no pain, no gain, or what doesn't kill you will make you
+- **[00:14](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=14s)** — stronger. I mean, what's up with that? So today I'm going to do a little bit of a deep dive into
+- **[00:18](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=18s)** — this term hormesis. Now, what is this term hormesis? What does that mean? It's a term
+- **[00:23](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=23s)** — to describe two things that might oppose each other in outcome. And I'm going to give a lot
+- **[00:27](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=27s)** — examples, but I think we all know that when we exercise we're creating destruction in our cells.
+- **[00:33](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=33s)** — And then the outcome of that is something that's stronger, it's healthier, it's more fit.
+- **[00:37](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=37s)** — So hormesis is really about a controlled dose of stress. And deep inside ourselves we have
+- **[00:44](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=44s)** — this very interesting adaptation mechanism. And the system that actually is controlling this is
+- **[00:52](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=52s)** — part endocrine system and part autonomic nervous system. So both of these work together to help
+- **[01:00](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=60s)** — your body adapt to becoming stronger. And the key word is adaptation. And you've probably heard
+- **[01:05](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=65s)** — of the concept of survival of the fittest. It should be called survival of those who can
+- **[01:13](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=73s)** — adapt the best. So with hormesis you can adapt from various stresses, radiation, exercise
+- **[01:21](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=81s)** — cold stress, heat stress, like sauna, things like that. Also reducing your oxygen and increasing
+- **[01:27](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=87s)** — your CO2 can create a hormetic effect. And even various plant chemicals. A lot of different
+- **[01:35](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=95s)** — insecticides, pesticides, and even fungicides. Of course they're in very very low doses because
+- **[01:41](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=101s)** — they're meant to kill these small little insects. But when we consume them we're creating
+- **[01:47](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=107s)** — a hormetic effect. So let's just take for example sulforaphane like in broccoli sprouts
+- **[01:52](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=112s)** — or radish sprouts. What it does is it triggers certain proteins, certain chemical pathways.
+- **[02:01](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=121s)** — One protein that it triggers is called a heat shock protein that activates certain things
+- **[02:06](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=126s)** — that allow us to strengthen our detoxification enzymes. So here we are exposed to a small dose
+- **[02:14](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=134s)** — of a poison that strengthens our own ability to get rid of poisons. In our liver we have these
+- **[02:22](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=142s)** — enzyme systems called phase one phase two detoxification where we can take a poison and
+- **[02:26](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=146s)** — turn into a harmless particle. Well guess what triggers that system? The sulforaphane,
+- **[02:32](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=152s)** — this poison. You're causing all these different enzymes and proteins to then
+- **[02:38](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=158s)** — rebuild and repair. And so the rebuilding and repair mechanism won't occur until you trigger
+- **[02:44](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=164s)** — it. So in other words exercise induces micro inflammation that then allows our bodies to
+- **[02:51](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=171s)** — get rid of inflammation. And then we get into this wild concept of starving our bodies, right?
+- **[02:57](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=177s)** — We call that fasting. And all of a sudden all of these amazing things occur. Our brain cells
+- **[03:02](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=182s)** — start growing more, our mitochondria starts increasing in number, our immune system gets
+- **[03:09](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=189s)** — regenerated from new stem cells. Deepen our genes from years of adaptation, the different
+- **[03:16](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=196s)** — mechanisms that were strengthened and created to counter starvation so we could survive.
+- **[03:22](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=202s)** — Because when you think about it starvation can kill you if you go on too long. But short term
+- **[03:27](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=207s)** — it's amazing. Same thing with exercise, right? You can over train to the point where
+- **[03:31](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=211s)** — you're completely dead, right? But just a little bit of exercise is really good. Same
+- **[03:35](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=215s)** — thing with cold therapy, right? I mean think about it's only so much time you're going to
+- **[03:38](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=218s)** — spend in this 35 degree temperature before you're going to have problems. Each person
+- **[03:46](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=226s)** — has their own individual tolerance for certain stress that they can take to be able to do this.
+- **[03:53](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=233s)** — We cannot create health just by being sedentary all the time and doing nothing.
+- **[03:57](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=237s)** — Now there's some other interesting counterintuitive things about health too. And this is not a
+- **[04:01](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=241s)** — hormesis thing but it's just very counterintuitive, right? Because we
+- **[04:04](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=244s)** — used to think that if we cut the amount of fat that we eat then we will lose our fat.
+- **[04:08](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=248s)** — Well we found that that didn't work because people tend to change the type of calories
+- **[04:14](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=254s)** — to more carbs, right? And then that converts to fat. Then we have another concept of
+- **[04:19](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=259s)** — the more sugar that you eat the less sugar you will eventually absorb. Why? Because your
+- **[04:27](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=267s)** — body develops this adaptation, this resistance against it. It's called insulin resistance. It's
+- **[04:33](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=273s)** — a protective mechanism. Our blood only really has about a teaspoon of sugar in it to be normal.
+- **[04:39](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=279s)** — An average person consumes a lot of sugar so we're dumping all the sugar and this is not
+- **[04:44](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=284s)** — normal. So our body protects itself with insulin resistance to the point where now you can't
+- **[04:49](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=289s)** — really absorb sugar that well. And it creates problems because now the brain cells, for example,
+- **[04:54](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=294s)** — can't get fuel and then you have all sorts of issues. Another counterintuitive situation is
+- **[05:02](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=302s)** — becoming more sterile. The more that we clean our bacteria and get rid of bacteria
+- **[05:07](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=307s)** — and sterilize ourselves, especially when you're growing up as like babies or small children,
+- **[05:14](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=314s)** — the more you set yourself up for getting sick, the more allergies you get. Kids that live on
+- **[05:21](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=321s)** — farms have very strong immune systems. Kids that are overly clean get sick a lot more
+- **[05:28](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=328s)** — often. I mean you can't create a strong immune system if you never get sick. The action of
+- **[05:35](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=335s)** — getting sick exercises your immune system and creates your defenses. And the same thing
+- **[05:40](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=340s)** — goes when you take an antibiotic. You're destroying, getting rid of all this bacteria
+- **[05:47](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=347s)** — and what do you end up with? An overgrowth of pathogens. You have stronger pathogens that
+- **[05:53](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=353s)** — are now resistant against that antibiotic. So it comes with a package. And then you have like
+- **[05:59](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=359s)** — when you take antacids, right? And then you end up with more heartburn. How can that be? Well,
+- **[06:04](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=364s)** — just understanding the mechanism, what causes heartburn is this acid that is regurgitating
+- **[06:11](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=371s)** — up through the valve. It's called an acid reflux, right? It takes an acid to get rid of
+- **[06:19](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=379s)** — the acid. When you take apple cider vinegar or butane hydrochloride, you can find your acid
+- **[06:24](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=384s)** — reflux goes away. Why? Because the true cause is a lack of acid, not too much acid. When you
+- **[06:32](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=392s)** — don't have enough acid in your stomach, the valve doesn't close. Here's another one. This is
+- **[06:35](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=395s)** — interesting. When you don't expose yourself to the sun, you put yourself more at risk for
+- **[06:43](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=403s)** — certain types of cancer. Now, wait a second. We've all been told that the sun causes cancer,
+- **[06:50](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=410s)** — right? Well, maybe not. The sun gives us vitamin D. A vitamin D deficiency really can set you up
+- **[06:58](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=418s)** — for cancer because it lowers the immune system. We need the vitamin D desperately for every
+- **[07:02](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=422s)** — single part of our immune system. Here's another one that's interesting. The more dieting
+- **[07:07](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=427s)** — that you do in your lifetime, the more weight you're going to gain. And that's really a
+- **[07:11](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=431s)** — When you start to diet, especially doing it incorrectly, you start to develop this
+- **[07:19](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=439s)** — extreme efficiency with your metabolism to the point where it becomes very, very efficient. It
+- **[07:25](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=445s)** — can run on just a little bit of fuel. This way, it's so hard to get rid of the fat now
+- **[07:29](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=449s)** — to make your fat cells more inefficient. The term for that is called mitochondrial uncoupling,
+- **[07:36](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=456s)** — where you're wasting a lot of energy. And you can do that with getting in the ketogenic diet.
+- **[07:42](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=462s)** — You can do that with doing fasting. You can do that with cold therapy. But an efficient
+- **[07:47](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=467s)** — metabolism is created from going on lots of diets. So the theme of this video is you cannot
+- **[07:53](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=473s)** — create health without some bit of stress. And exercise would be a good place to start. So if
+- **[07:58](https://www.youtube.com/watch?v=z8dfLN5qpsI&t=478s)** — you want to check that video out, I put it up right here.

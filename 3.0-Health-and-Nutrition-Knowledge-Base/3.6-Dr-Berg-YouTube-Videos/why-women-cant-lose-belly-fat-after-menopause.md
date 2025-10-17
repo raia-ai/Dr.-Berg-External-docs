@@ -1,0 +1,122 @@
+# Why Women Can't Lose Belly Fat After Menopause
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=eJgpOsjndkA](https://www.youtube.com/watch?v=eJgpOsjndkA)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=eJgpOsjndkA&t=0s)** — I'd like to talk about why women can't seem to lose belly fat after menopause.
+- **[00:07](https://www.youtube.com/watch?v=eJgpOsjndkA&t=7s)** — I'm not just going to talk about that. I'm also going to talk about what to do about it as well.
+- **[00:11](https://www.youtube.com/watch?v=eJgpOsjndkA&t=11s)** — So what is going on with this menopause thing? Well, all these changes. All stem because of this
+- **[00:17](https://www.youtube.com/watch?v=eJgpOsjndkA&t=17s)** — one change that happens in the body. The ovaries go in retirement. They're no longer to be
+- **[00:22](https://www.youtube.com/watch?v=eJgpOsjndkA&t=22s)** — producing or releasing eggs. Now the ovary doesn't just make eggs. It also makes hormones.
+- **[00:30](https://www.youtube.com/watch?v=eJgpOsjndkA&t=30s)** — So what's going to happen as we go through menopause is we're not going to have the eggs.
+- **[00:34](https://www.youtube.com/watch?v=eJgpOsjndkA&t=34s)** — We're not going to have the quantity of hormones. But normally what's supposed to happen is the
+- **[00:39](https://www.youtube.com/watch?v=eJgpOsjndkA&t=39s)** — adrenal glands, which are the backup, are supposed to kick in. The adrenal glands make
+- **[00:45](https://www.youtube.com/watch?v=eJgpOsjndkA&t=45s)** — all of the hormones that the ovaries make. And if the adrenal glands are strong and stable
+- **[00:52](https://www.youtube.com/watch?v=eJgpOsjndkA&t=52s)** — going into menopause, usually there's very little symptoms, if any at all. So it's not
+- **[00:59](https://www.youtube.com/watch?v=eJgpOsjndkA&t=59s)** — really normal to have hot flashes. It's not normal to have any symptoms going through
+- **[01:04](https://www.youtube.com/watch?v=eJgpOsjndkA&t=64s)** — menopause unless there's a problem with the adrenal glands. But there's a bit more to this.
+- **[01:09](https://www.youtube.com/watch?v=eJgpOsjndkA&t=69s)** — Okay, so yes, it's true that estrogen drops, but you're also going to get a more
+- **[01:14](https://www.youtube.com/watch?v=eJgpOsjndkA&t=74s)** — significant drop in progesterone. So the ratios of estrogen progesterone, it actually
+- **[01:19](https://www.youtube.com/watch?v=eJgpOsjndkA&t=79s)** — can make it appear that you have estrogen dominance, which is not really true. It's just
+- **[01:24](https://www.youtube.com/watch?v=eJgpOsjndkA&t=84s)** — the ratios of estrogen to progesterone. And some women start going on hormone replacement
+- **[01:30](https://www.youtube.com/watch?v=eJgpOsjndkA&t=90s)** — therapy. The problem with that is it comes with a lot of side effects and complications.
+- **[01:36](https://www.youtube.com/watch?v=eJgpOsjndkA&t=96s)** — But I'm not going to get into that right now. I want to focus on another thing that
+- **[01:41](https://www.youtube.com/watch?v=eJgpOsjndkA&t=101s)** — that gives you a solution to handling this entire problem. Because naturally,
+- **[01:46](https://www.youtube.com/watch?v=eJgpOsjndkA&t=106s)** — the adrenals are supposed to take over and compensate for the missing hormones.
+- **[01:51](https://www.youtube.com/watch?v=eJgpOsjndkA&t=111s)** — And no, this is not a mistake in nature. It all is supposed to work very perfectly.
+- **[01:55](https://www.youtube.com/watch?v=eJgpOsjndkA&t=115s)** — So in adrenals, we have several things going on. We do have an increase in cortisol. That's
+- **[02:01](https://www.youtube.com/watch?v=eJgpOsjndkA&t=121s)** — the stress hormone. This could explain why through menopause, a woman might feel anxiety,
+- **[02:10](https://www.youtube.com/watch?v=eJgpOsjndkA&t=130s)** — excessive nervousness, difficulty sleeping, maybe agitated, and also an overall low tolerance
+- **[02:17](https://www.youtube.com/watch?v=eJgpOsjndkA&t=137s)** — to stress. That has a lot to do with this part of the nervous system called the autonomic
+- **[02:24](https://www.youtube.com/watch?v=eJgpOsjndkA&t=144s)** — nervous system. And that's really what I want to focus on in this video. So the autonomic
+- **[02:29](https://www.youtube.com/watch?v=eJgpOsjndkA&t=149s)** — nervous system is basically adapting your body to the environment. Your body is constantly
+- **[02:35](https://www.youtube.com/watch?v=eJgpOsjndkA&t=155s)** — adapting to temperature, different environments. And one part of the nervous system called the
+- **[02:41](https://www.youtube.com/watch?v=eJgpOsjndkA&t=161s)** — sympathetic, which is the flutter fight, is increasing certain things to adapt to the stress.
+- **[02:45](https://www.youtube.com/watch?v=eJgpOsjndkA&t=165s)** — So let's say, for example, you exercise, right? You need higher pulse rate, you need
+- **[02:50](https://www.youtube.com/watch?v=eJgpOsjndkA&t=170s)** — higher blood pressure to compensate for the blood flow. And then right when you stop that
+- **[02:55](https://www.youtube.com/watch?v=eJgpOsjndkA&t=175s)** — exercise, you have another system that kicks in called the parasympathetic. And that system is
+- **[03:01](https://www.youtube.com/watch?v=eJgpOsjndkA&t=181s)** — about calming things down and bringing things back to normal. So it's really important to have
+- **[03:07](https://www.youtube.com/watch?v=eJgpOsjndkA&t=187s)** — this balance between the sympathetic and the parasympathetic nervous system. What's interesting
+- **[03:12](https://www.youtube.com/watch?v=eJgpOsjndkA&t=192s)** — about menopause is after menopause, a woman is usually left with a higher sympathetic nervous
+- **[03:18](https://www.youtube.com/watch?v=eJgpOsjndkA&t=198s)** — system and a much lower parasympathetic nervous system. And if they don't know this going into
+- **[03:24](https://www.youtube.com/watch?v=eJgpOsjndkA&t=204s)** — menopause, they might focus more on the estrogen problem, or maybe they might just
+- **[03:28](https://www.youtube.com/watch?v=eJgpOsjndkA&t=208s)** — exercise to really get rid of that belly fat that they're concerned about, right? And then
+- **[03:33](https://www.youtube.com/watch?v=eJgpOsjndkA&t=213s)** — they might find, wow, it's not working. It's even getting worse in some cases. And so they
+- **[03:38](https://www.youtube.com/watch?v=eJgpOsjndkA&t=218s)** — go to one doctor after the next trying to figure this problem out. So the very important
+- **[03:42](https://www.youtube.com/watch?v=eJgpOsjndkA&t=222s)** — thing I want to teach you right now is about focusing more on that parasympathetic nervous
+- **[03:48](https://www.youtube.com/watch?v=eJgpOsjndkA&t=228s)** — system. So that's your recovery system. That is the system that influences your sleep
+- **[03:54](https://www.youtube.com/watch?v=eJgpOsjndkA&t=234s)** — and your ability to recover. And all the fat burning occurs in this recovery phase. If you're
+- **[04:00](https://www.youtube.com/watch?v=eJgpOsjndkA&t=240s)** — too high in the sympathetic and you don't have enough recovery, then you're not going to lose
+- **[04:04](https://www.youtube.com/watch?v=eJgpOsjndkA&t=244s)** — this midsection no matter what you do. And so there's a lot of emphasis on exercise.
+- **[04:10](https://www.youtube.com/watch?v=eJgpOsjndkA&t=250s)** — Okay, exercise stimulates the sympathetic nervous system, but it does not stimulate
+- **[04:16](https://www.youtube.com/watch?v=eJgpOsjndkA&t=256s)** — that parasympathetic nervous system. And so what I'm going to recommend is you shift gears
+- **[04:20](https://www.youtube.com/watch?v=eJgpOsjndkA&t=260s)** — and you start to exercise your parasympathetic. It would be like taking water and putting out a
+- **[04:27](https://www.youtube.com/watch?v=eJgpOsjndkA&t=267s)** — fire. It calms the sympathetic and that's going to help you reduce cortisol. It's going to
+- **[04:31](https://www.youtube.com/watch?v=eJgpOsjndkA&t=271s)** — help you sleep. It's going to help you have a midsection that's flat. And so how do we train
+- **[04:37](https://www.youtube.com/watch?v=eJgpOsjndkA&t=277s)** — this parasympathetic nervous system? Well, that system is not passive. It's active. In other
+- **[04:44](https://www.youtube.com/watch?v=eJgpOsjndkA&t=284s)** — words, it is actively working to calm you down. It's actively working to reset and bring you back
+- **[04:51](https://www.youtube.com/watch?v=eJgpOsjndkA&t=291s)** — to homeostasis, which is kind of like a normal balance internally. So I guess a good way to
+- **[04:57](https://www.youtube.com/watch?v=eJgpOsjndkA&t=297s)** — explain this is that let's say right now you run outside and you run up a hill really fast.
+- **[05:02](https://www.youtube.com/watch?v=eJgpOsjndkA&t=302s)** — Okay. And as you run up the hill, the sympathetic nervous system kicks in there
+- **[05:06](https://www.youtube.com/watch?v=eJgpOsjndkA&t=306s)** — and it's pushing up your pulse rate really, really high. You get your blood pressure really
+- **[05:10](https://www.youtube.com/watch?v=eJgpOsjndkA&t=310s)** — high and you get at the top of the hill and you're huffing and puffing and you're at the
+- **[05:15](https://www.youtube.com/watch?v=eJgpOsjndkA&t=315s)** — peak of your sympathetic nervous system. As soon as you stop, okay, and you do nothing,
+- **[05:21](https://www.youtube.com/watch?v=eJgpOsjndkA&t=321s)** — that parasympathetic kicks in actively. It's kind of like a wave that is pushing things
+- **[05:27](https://www.youtube.com/watch?v=eJgpOsjndkA&t=327s)** — down. It's pushing your pulse rate down. It's an active force that is trying to recover you.
+- **[05:33](https://www.youtube.com/watch?v=eJgpOsjndkA&t=333s)** — Okay. And all you have to do is do nothing and let it do its job. And so if you were just to wait
+- **[05:41](https://www.youtube.com/watch?v=eJgpOsjndkA&t=341s)** — until your pulse rate is all the way back to normal, you would strengthen your parasympathetic.
+- **[05:47](https://www.youtube.com/watch?v=eJgpOsjndkA&t=347s)** — But who does that? What do people do when they work out? They go work out, they get
+- **[05:52](https://www.youtube.com/watch?v=eJgpOsjndkA&t=352s)** — their pulse rate really high. They let it come down a little bit. They rest maybe 30 seconds,
+- **[05:58](https://www.youtube.com/watch?v=eJgpOsjndkA&t=358s)** — if that, and they do it right back. They start exercising. And right there, you are failing to
+- **[06:04](https://www.youtube.com/watch?v=eJgpOsjndkA&t=364s)** — exercise that recovery system. You are developing and training the sympathetic to be really,
+- **[06:09](https://www.youtube.com/watch?v=eJgpOsjndkA&t=369s)** — really strong, but without enough recovery. And so over time, you lose the strength and
+- **[06:14](https://www.youtube.com/watch?v=eJgpOsjndkA&t=374s)** — capacity to recover. And so your body is ending up just producing cortisol. That's creating
+- **[06:19](https://www.youtube.com/watch?v=eJgpOsjndkA&t=379s)** — more belly fat. It has a hard time sleeping. So I wanted to make a big deal about this
+- **[06:24](https://www.youtube.com/watch?v=eJgpOsjndkA&t=384s)** — video to emphasize this one simple point that if you really understand it, you can apply it to
+- **[06:31](https://www.youtube.com/watch?v=eJgpOsjndkA&t=391s)** — a lot of different things. You need to rest a lot longer between your reps and sets of exercise
+- **[06:38](https://www.youtube.com/watch?v=eJgpOsjndkA&t=398s)** — as well as days of exercise. So if you were to do a certain set of, let's say, 10 reps or
+- **[06:44](https://www.youtube.com/watch?v=eJgpOsjndkA&t=404s)** — a certain time period of exercise, what you'd want to do is completely stop and wait for
+- **[06:50](https://www.youtube.com/watch?v=eJgpOsjndkA&t=410s)** — your pulse rate to come all the way down. Okay. Before you start another one of those cycles.
+- **[06:56](https://www.youtube.com/watch?v=eJgpOsjndkA&t=416s)** — The same thing goes with your entire workout. Through a given week, you have to make sure
+- **[07:00](https://www.youtube.com/watch?v=eJgpOsjndkA&t=420s)** — you don't over train. You want to make sure when you exercise, you give your body a chance to
+- **[07:04](https://www.youtube.com/watch?v=eJgpOsjndkA&t=424s)** — completely recover and reset. And what you're doing when you're recovering is you are
+- **[07:09](https://www.youtube.com/watch?v=eJgpOsjndkA&t=429s)** — strengthening your parasympathetic nervous system. I tell you, this might sound like a
+- **[07:13](https://www.youtube.com/watch?v=eJgpOsjndkA&t=433s)** — very insignificant subtle thing, but in practice, it was very, very successful. I've had people
+- **[07:18](https://www.youtube.com/watch?v=eJgpOsjndkA&t=438s)** — that I've taken them off of working out three times a week and put them on a workout that's
+- **[07:23](https://www.youtube.com/watch?v=eJgpOsjndkA&t=443s)** — just once a week. And then they finally start losing weight. Now on the flip side,
+- **[07:28](https://www.youtube.com/watch?v=eJgpOsjndkA&t=448s)** — it doesn't mean you should only focus on the recovery and do nothing and sleeping all day,
+- **[07:32](https://www.youtube.com/watch?v=eJgpOsjndkA&t=452s)** — because it takes this exercise intensity and this stress to make it all work out. Now,
+- **[07:40](https://www.youtube.com/watch?v=eJgpOsjndkA&t=460s)** — the worst type of exercise you could do for your belly is any type of sustained exercise.
+- **[07:47](https://www.youtube.com/watch?v=eJgpOsjndkA&t=467s)** — Now, I'm not talking about like walking or hiking. I'm talking about jogging or running
+- **[07:52](https://www.youtube.com/watch?v=eJgpOsjndkA&t=472s)** — or doing marathons or long distance. Anything sustained of a moderate pulse rate is really bad
+- **[08:00](https://www.youtube.com/watch?v=eJgpOsjndkA&t=480s)** — for cortisol. And it's bad for the parasympathetic because of this one
+- **[08:04](https://www.youtube.com/watch?v=eJgpOsjndkA&t=484s)** — principle of waves. Everything in nature is on a wave. You have these circadian rhythms
+- **[08:09](https://www.youtube.com/watch?v=eJgpOsjndkA&t=489s)** — of hormones, sleep cycles, your heart is on a wave. It comes up and down, it contracts and
+- **[08:15](https://www.youtube.com/watch?v=eJgpOsjndkA&t=495s)** — so this is why like high intensity interval training is very, very good for so many
+- **[08:21](https://www.youtube.com/watch?v=eJgpOsjndkA&t=501s)** — things because you're doing this short high intense exercise with lots of rest. So here are some
+- **[08:27](https://www.youtube.com/watch?v=eJgpOsjndkA&t=507s)** — things to focus on. Start doing short types of exercise with lots of rest. Don't over train.
+- **[08:34](https://www.youtube.com/watch?v=eJgpOsjndkA&t=514s)** — Don't train over soreness. Focus on getting more sleep. And by doing this, it's automatically
+- **[08:40](https://www.youtube.com/watch?v=eJgpOsjndkA&t=520s)** — going to improve your sleeping because you're going to be improving the parasympathetic.
+- **[08:43](https://www.youtube.com/watch?v=eJgpOsjndkA&t=523s)** — Certain types of body work, whether it's chiropractic, massage, physical therapy,
+- **[08:47](https://www.youtube.com/watch?v=eJgpOsjndkA&t=527s)** — is all going to help. Omega-3 fatty acids can help as well. Also the precursor to all of
+- **[08:53](https://www.youtube.com/watch?v=eJgpOsjndkA&t=533s)** — these hormones is called DHEA. Really good supplement to take especially through menopause.
+- **[08:59](https://www.youtube.com/watch?v=eJgpOsjndkA&t=539s)** — But if you're female, I would highly recommend you don't take a lot of it.
+- **[09:02](https://www.youtube.com/watch?v=eJgpOsjndkA&t=542s)** — Just take what's recommended on the bottle because if you take too much, you can start to
+- **[09:07](https://www.youtube.com/watch?v=eJgpOsjndkA&t=547s)** — increase more testosterone, which you might not want that. It's very important to go on
+- **[09:13](https://www.youtube.com/watch?v=eJgpOsjndkA&t=553s)** — low carb intermittent fasting because when you do that, you automatically reduce the
+- **[09:19](https://www.youtube.com/watch?v=eJgpOsjndkA&t=559s)** — sympathetic nervous system and you increase the parasympathetic. Some really key nutrients
+- **[09:23](https://www.youtube.com/watch?v=eJgpOsjndkA&t=563s)** — to focus on. Magnesium, choline, vitamin B1. Vitamin D is also important too.
+- **[09:30](https://www.youtube.com/watch?v=eJgpOsjndkA&t=570s)** — Certain herbs can be helpful that are adaptogens. Lemon balm, a passion flower,
+- **[09:35](https://www.youtube.com/watch?v=eJgpOsjndkA&t=575s)** — and ashwagandha are really good. So in summary, the parasympathetic nervous system restores
+- **[09:42](https://www.youtube.com/watch?v=eJgpOsjndkA&t=582s)** — the sympathetic nervous system, which is that fight or flight mechanism. Now because of the
+- **[09:46](https://www.youtube.com/watch?v=eJgpOsjndkA&t=586s)** — censoring and the suppressing of the algorithms on YouTube, it's becoming more
+- **[09:51](https://www.youtube.com/watch?v=eJgpOsjndkA&t=591s)** — difficult to find my content. And there's a lot of content that I cannot put on YouTube,
+- **[09:56](https://www.youtube.com/watch?v=eJgpOsjndkA&t=596s)** — unfortunately. So to make sure you have full access of all my information, go to
+- **[10:04](https://www.youtube.com/watch?v=eJgpOsjndkA&t=604s)** — the link in the description. I will see you on the other side.
+- **[10:08](https://www.youtube.com/watch?v=eJgpOsjndkA&t=608s)** — If you have not seen my stress webinar that gives you additional techniques,
+- **[10:12](https://www.youtube.com/watch?v=eJgpOsjndkA&t=612s)** — I put it up right here. Check it out.

@@ -1,0 +1,259 @@
+# DEVASTATING!
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=PwNXDrXjOY8](https://www.youtube.com/watch?v=PwNXDrXjOY8)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=0s)** — We normally don't do a video like this. This is a little different.
+- **[00:03](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=3s)** — But I had to say something because there's a situation going on in
+- **[00:07](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=7s)** — North Carolina that I want to bring to your attention. And it's pretty scary.
+- **[00:11](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=11s)** — I live in southern Virginia, right across the border from North Carolina.
+- **[00:16](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=16s)** — I had a neighbor of mine
+- **[00:18](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=18s)** — go down after the floods to help. And he had a company that had
+- **[00:23](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=23s)** — helicopters.
+- **[00:25](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=25s)** — And they sent him home.
+- **[00:27](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=27s)** — So I'm like, what?
+- **[00:28](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=28s)** — Isn't FEMA down there? He goes, no, not where I am.
+- **[00:31](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=31s)** — So then I had another neighbor, Bill Sanpere. He has a woodworking shop.
+- **[00:35](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=35s)** — We did a video before. And Bill came up to me and he said,
+- **[00:38](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=38s)** — you know what's happening in North Carolina? I said, no.
+- **[00:40](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=40s)** — I brought Bill on to share what's going on, because this is a situation
+- **[00:44](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=44s)** — I want to bring to everyone's attention.
+- **[00:47](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=47s)** — Bill, thanks for coming on.
+- **[00:48](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=48s)** — Yeah, you bet.
+- **[00:51](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=51s)** — So what's going on in North Carolina?
+- **[00:56](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=56s)** — Well, obviously they got hit with a major disaster,
+- **[00:59](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=59s)** — something that I've never seen in my lifetime.
+- **[01:02](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=62s)** — I went down about a week and a half after the storm.
+- **[01:07](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=67s)** — I put out a little thing on my Facebook page to see if I could do something.
+- **[01:10](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=70s)** — I have an excavator. I have a business that I run here in Floyd,
+- **[01:13](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=73s)** — but I knew I could slip away for a few days and go down and do a little something.
+- **[01:17](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=77s)** — When I got there, I couldn't believe what I saw.
+- **[01:19](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=79s)** — I couldn't believe the devastation.
+- **[01:21](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=81s)** — I couldn't believe the homes that were demolished by the flood,
+- **[01:25](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=85s)** — the roads, the stores.
+- **[01:28](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=88s)** — Everything was just in shambles.
+- **[01:30](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=90s)** — At that time, the Army National Guard was coming in,
+- **[01:34](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=94s)** — bringing in food and materials and generators out to people that they couldn't get to.
+- **[01:38](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=98s)** — And they were flying it in.
+- **[01:40](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=100s)** — There was a lot of people that you could get to, but yet they had no homes.
+- **[01:45](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=105s)** — And their homes were washed away.
+- **[01:47](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=107s)** — And everything and everyone that I talked to, they didn't know what to do.
+- **[01:51](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=111s)** — These people don't like to ask for much.
+- **[01:53](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=113s)** — They don't want anything.
+- **[01:56](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=116s)** — But when your home is completely destroyed and you have no flood insurance,
+- **[02:01](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=121s)** — why would you have flood insurance when your house is on the side of a mountain?
+- **[02:06](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=126s)** — Or FEMA was down there.
+- **[02:08](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=128s)** — Everybody that I talked to did not see FEMA.
+- **[02:12](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=132s)** — Some people that did get to go, they had to go to the FEMA office, and they did.
+- **[02:17](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=137s)** — But they were only offered very little money.
+- **[02:20](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=140s)** — That wouldn't even do cleanup.
+- **[02:22](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=142s)** — Well, what they're telling me, and this isn't things that I'm saying,
+- **[02:25](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=145s)** — this is what these people are telling me.
+- **[02:27](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=147s)** — If they were to build, they have to carry flood insurance.
+- **[02:31](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=151s)** — Or FEMA wants their money back.
+- **[02:33](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=153s)** — Well, some of these families were getting quotes on flood insurance.
+- **[02:36](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=156s)** — That was $7, $800 a month.
+- **[02:38](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=158s)** — They can't afford that.
+- **[02:40](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=160s)** — And it was just devastation.
+- **[02:43](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=163s)** — No place to haul all the debris.
+- **[02:46](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=166s)** — No place to get materials.
+- **[02:47](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=167s)** — You couldn't get into the quarries to get gravel for driveways,
+- **[02:50](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=170s)** — because the dump trucks were lined up for a half a mile,
+- **[02:53](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=173s)** — hauling to all the state roads.
+- **[02:55](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=175s)** — It was an area that was not designed for a hurricane.
+- **[02:58](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=178s)** — And they got a major, major hurricane,
+- **[03:02](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=182s)** — 20 some odd inches of rain in just a day or two.
+- **[03:04](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=184s)** — And it just unleashed on them.
+- **[03:06](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=186s)** — And now they're all in shambles and they don't know what to do.
+- **[03:09](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=189s)** — I guess I was initially under the impression that there are crews down there.
+- **[03:13](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=193s)** — It's organized. FEMA's down there.
+- **[03:15](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=195s)** — The Red Cross is down there. Everything's being handled.
+- **[03:18](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=198s)** — I mean, I haven't seen much in the news.
+- **[03:20](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=200s)** — But that's not really what's happening.
+- **[03:22](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=202s)** — And I was trying to be careful on my social media.
+- **[03:24](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=204s)** — I wasn't picking sides.
+- **[03:26](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=206s)** — But when I'm down there and I'm actually talking to these people,
+- **[03:29](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=209s)** — yes, FEMA was down there.
+- **[03:31](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=211s)** — Yes, the Red Cross was down there.
+- **[03:35](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=215s)** — But when you're talking thousands and thousands of people without homes,
+- **[03:39](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=219s)** — their kids have nothing.
+- **[03:41](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=221s)** — And when you didn't just lose your home, you lost your clothing.
+- **[03:45](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=225s)** — You lost your vehicle. You lost your wallet.
+- **[03:48](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=228s)** — You lost your keys. You lost your identity.
+- **[03:51](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=231s)** — You lost everything.
+- **[03:53](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=233s)** — And when they go to FEMA and they don't have these things,
+- **[03:56](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=236s)** — they don't have a social security card.
+- **[03:58](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=238s)** — They don't even have a piece of mail that they can prove that they're a US citizen.
+- **[04:03](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=243s)** — So to get everything done, to cut through all the red tape,
+- **[04:07](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=247s)** — some of these people are being offered, you know, I mean, for instance,
+- **[04:11](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=251s)** — one family I've been working with were offered $3,000.
+- **[04:17](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=257s)** — It's probably going to cost them at least $200,000 plus just to rebuild
+- **[04:21](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=261s)** — their house stood, but just to rebuild the damage to their home.
+- **[04:25](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=265s)** — Another family that I'm helping did get what they call me the maximum FEMA check,
+- **[04:30](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=270s)** — which was $30,000.
+- **[04:33](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=273s)** — So one of the families did receive $30,000,
+- **[04:36](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=276s)** — but we have to tear their house down, clean up the site,
+- **[04:40](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=280s)** — which we're doing for free.
+- **[04:42](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=282s)** — And most everybody down there is doing a lot of the work for free.
+- **[04:45](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=285s)** — Unfortunately, the contractors now are having to start charging something
+- **[04:48](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=288s)** — because they can't do this forever.
+- **[04:50](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=290s)** — But $30,000 isn't going to build you a new home.
+- **[04:54](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=294s)** — It's not even going to clean up the home that you have destroyed,
+- **[04:56](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=296s)** — which is now a half a mile downstream.
+- **[04:59](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=299s)** — And then the homes that were half a mile upstream are now on your property.
+- **[05:04](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=304s)** — So I'm not seeing a whole lot of help from the government.
+- **[05:08](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=308s)** — Nobody has seen the governor.
+- **[05:09](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=309s)** — Nobody has seen a president.
+- **[05:11](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=311s)** — Nobody has seen anybody.
+- **[05:13](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=313s)** — And it's almost like a third world country.
+- **[05:16](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=316s)** — I've been working in Ash County, in and around Boone and Jefferson,
+- **[05:20](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=320s)** — North Carolina, and I'm not even in the hardest hit areas.
+- **[05:24](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=324s)** — You know, these areas were pretty well devastated,
+- **[05:26](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=326s)** — but you get down near Asheville and, you know,
+- **[05:29](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=329s)** — some of these towns that were basically almost wiped off the map.
+- **[05:32](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=332s)** — And when the media comes in, they show the town,
+- **[05:35](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=335s)** — but they don't go out on the side roads and they don't go up into the valleys
+- **[05:38](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=338s)** — where these homes are just completely gone.
+- **[05:40](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=340s)** — And it's just a little overwhelming.
+- **[05:43](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=343s)** — It's hard on all the people down there working.
+- **[05:46](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=346s)** — You're talking to these people.
+- **[05:49](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=349s)** — You're you're, you know, trying to help them.
+- **[05:51](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=351s)** — They have nothing.
+- **[05:53](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=353s)** — I've just never seen anything like this in our country.
+- **[05:56](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=356s)** — I've never seen anything like this.
+- **[05:58](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=358s)** — Yeah, it's the strangest thing, because I've been watching other videos
+- **[06:01](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=361s)** — people are posting, and apparently some people are getting
+- **[06:04](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=364s)** — acid burns on their body from chemicals in the rivers and water.
+- **[06:09](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=369s)** — Like there's a lot of weird going on down there right now.
+- **[06:13](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=373s)** — The septic systems that a few of the homes I was working on,
+- **[06:16](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=376s)** — you could smell the septic because it was just overwhelmed.
+- **[06:20](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=380s)** — Septic tanks were broken
+- **[06:22](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=382s)** — and are now all downstream and just washing up in people's wells, shallow wells.
+- **[06:28](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=388s)** — So some people are having their their wells tested so that they can use them.
+- **[06:33](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=393s)** — But if you think about it, yeah,
+- **[06:35](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=395s)** — why wouldn't all that stuff be contaminated?
+- **[06:38](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=398s)** — Of course, it's contaminated.
+- **[06:39](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=399s)** — There's like thousands of people that are not being helped right now,
+- **[06:43](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=403s)** — probably more in even close to where you are. Is that true?
+- **[06:47](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=407s)** — I would drive down on some of these roads and count,
+- **[06:50](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=410s)** — you know, 20, 30 homes just destroyed.
+- **[06:54](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=414s)** — Maybe their porches were just ripped off,
+- **[06:57](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=417s)** — but the water got up into their homes.
+- **[06:59](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=419s)** — They've had to go in and completely got the whole house out.
+- **[07:01](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=421s)** — And that's just the area that I'm in.
+- **[07:03](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=423s)** — This was a big area.
+- **[07:05](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=425s)** — This hurricane hit between Northwest,
+- **[07:08](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=428s)** — North Carolina, Kentucky, Tennessee, Southern Virginia.
+- **[07:12](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=432s)** — Some people may have got help.
+- **[07:13](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=433s)** — Maybe they did.
+- **[07:14](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=434s)** — But everyone that I've talked to and have been working with are getting nothing.
+- **[07:18](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=438s)** — I was basically raising money on my Venmo when I first got there
+- **[07:23](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=443s)** — because we needed dumpsters, which were overpriced by a thousand dollars.
+- **[07:27](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=447s)** — We needed gravel. We needed culverts.
+- **[07:29](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=449s)** — And these people didn't have the money even for that.
+- **[07:32](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=452s)** — They couldn't do it.
+- **[07:33](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=453s)** — Thankfully, we've had so many people behind us and behind me
+- **[07:38](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=458s)** — in our county here in Floyd County, Virginia, given me culverts,
+- **[07:42](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=462s)** — given me whatever I need to go down there and help these people out,
+- **[07:45](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=465s)** — because it's not our job to do this.
+- **[07:48](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=468s)** — You know, we shouldn't have to worry about this.
+- **[07:51](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=471s)** — But I'm starting to second guess the insurance on my home here
+- **[07:54](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=474s)** — in Floyd, Virginia, on top of a mountaintop,
+- **[07:57](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=477s)** — because whatever our system is, it's not working.
+- **[08:00](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=480s)** — Wow. There are people helping down there.
+- **[08:01](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=481s)** — It's kind of a makeshift cruise here and there, right?
+- **[08:04](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=484s)** — It's not necessarily coordinated.
+- **[08:07](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=487s)** — It's not coordinated.
+- **[08:08](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=488s)** — And at first, it was just a free for all.
+- **[08:10](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=490s)** — It was just, you know, where can I go to help somebody
+- **[08:13](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=493s)** — get their car out of their driveway?
+- **[08:15](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=495s)** — Where can I go to help somebody pull a few trees out of their living room
+- **[08:19](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=499s)** — so that maybe they could start putting their lives back together?
+- **[08:22](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=502s)** — And we were all doing it for free,
+- **[08:26](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=506s)** — whether it was me coming out of Floyd, Virginia,
+- **[08:28](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=508s)** — companies coming out of Pennsylvania, people coming up from Florida.
+- **[08:31](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=511s)** — Another problem was all these people that didn't have homes
+- **[08:34](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=514s)** — were now trying to stay in hotel rooms.
+- **[08:36](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=516s)** — They couldn't because they were only letting the workers stay there.
+- **[08:40](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=520s)** — So all these people, thousands of people that were coming in to help
+- **[08:43](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=523s)** — were now in these hotel rooms or in sleeping in their pickup trucks
+- **[08:48](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=528s)** — or tents out beside the road.
+- **[08:51](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=531s)** — It was... I don't know.
+- **[08:53](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=533s)** — I just... it's frustrating for all of us to be down there
+- **[08:57](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=537s)** — and to be working with nothing.
+- **[09:00](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=540s)** — And using our own funds.
+- **[09:03](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=543s)** — But then again, it's rewarding to help these families.
+- **[09:06](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=546s)** — And you can't just walk away from it.
+- **[09:08](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=548s)** — Me as an individual, I can't even load my excavator on the trailer and leave,
+- **[09:14](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=554s)** — you know, for a week.
+- **[09:16](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=556s)** — You know, I hate to leave them.
+- **[09:18](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=558s)** — I don't want to leave them down there.
+- **[09:20](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=560s)** — And they're being left.
+- **[09:22](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=562s)** — Yeah, I really appreciate what you're doing.
+- **[09:24](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=564s)** — You're basically going down there every week.
+- **[09:27](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=567s)** — You're spending days. I appreciate that.
+- **[09:29](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=569s)** — How can someone help if they wanted to help donate or whatever?
+- **[09:33](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=573s)** — So I do have a GoFundMe.
+- **[09:35](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=575s)** — With the GoFundMe, they do take a very small percentage.
+- **[09:38](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=578s)** — We have to keep receipts on everything that we spend the money on.
+- **[09:42](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=582s)** — And I hope that when I get done with this GoFundMe
+- **[09:46](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=586s)** — and I build these two and a half homes,
+- **[09:48](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=588s)** — that there's money left over that I can give these people to rebuild their lives
+- **[09:52](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=592s)** — because they need everything.
+- **[09:54](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=594s)** — I have brought five loads of food and water and clothing and tools.
+- **[09:58](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=598s)** — Also down to North Carolina, which we've gathered here in Floyd, Virginia.
+- **[10:03](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=603s)** — But they need money now.
+- **[10:05](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=605s)** — It's they have all the clothes. They have stuff.
+- **[10:08](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=608s)** — If they don't have it, they can go to the distribution centers and get it.
+- **[10:12](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=612s)** — Some distribution centers are overwhelmed with stuff,
+- **[10:14](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=614s)** — but they're sharing with others now.
+- **[10:16](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=616s)** — You know, Christmas is coming.
+- **[10:17](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=617s)** — Cold weather is coming.
+- **[10:19](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=619s)** — And the key now is to get homes built, get these people back on their feet.
+- **[10:23](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=623s)** — And the way to do that is with money.
+- **[10:25](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=625s)** — I will definitely support that and donate as well.
+- **[10:30](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=630s)** — So if anyone else would like to donate, I will put a link down below.
+- **[10:34](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=634s)** — Do what you can. But definitely people are in need.
+- **[10:37](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=637s)** — It's unfortunate that we're not getting the help we want from the government.
+- **[10:42](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=642s)** — You know what? We're just going to do it as a grassroots thing.
+- **[10:45](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=645s)** — And I'll put that link down below.
+- **[10:46](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=646s)** — Just the stress alone, everything they worked for, everything that they had
+- **[10:50](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=650s)** — and they thought they were they were done working and they thought they could
+- **[10:53](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=653s)** — settle down and they completely lost everything and is all they can do is rely on other people.
+- **[10:58](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=658s)** — Yeah, it's it's really overwhelming.
+- **[11:01](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=661s)** — It's emotional. It's just it's just ridiculous.
+- **[11:05](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=665s)** — Wow. OK.
+- **[11:07](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=667s)** — Well, I really appreciate what you're doing.
+- **[11:08](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=668s)** — Let's see if we can all come together and help and support these people down there.
+- **[11:14](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=674s)** — Thanks very much. And let's roll in some footage that you gave me.
+- **[11:19](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=679s)** — And I'll put that in the rest of the video.
+- **[11:21](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=681s)** — I'm here with Chris and Angela.
+- **[11:22](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=682s)** — I'm here with Jimmy, Kaden, Darlene at the house that I've been doing some work on,
+- **[11:28](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=688s)** — trying to get the mud and stuff clean up our back.
+- **[11:30](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=690s)** — And this is the home that we're going to be taking down to rebuild for them.
+- **[11:33](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=693s)** — Financially, we have zero help.
+- **[11:35](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=695s)** — We've been denied by insurance twice.
+- **[11:37](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=697s)** — We've been denied by FEMA twice.
+- **[11:40](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=700s)** — They did get a little bit of FEMA money, but not even close to what they need to rebuild.
+- **[11:45](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=705s)** — We're depending on just the generosity and kindness of other folks.
+- **[11:49](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=709s)** — So we will be rebuilding this family a new home.
+- **[11:52](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=712s)** — They've been through hell here shortly after the storm, did what I could at the time.
+- **[11:57](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=717s)** — Your house was condemned.
+- **[11:59](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=719s)** — The mountain basically came down behind this house and just went right through it.
+- **[12:02](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=722s)** — This is now a flood zone. We're going to take this house down.
+- **[12:05](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=725s)** — We're going to build up a new house and we need your support.
+- **[12:09](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=729s)** — And these people do not have the money to rebuild these homes.
+- **[12:12](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=732s)** — This is a this is a couple hundred thousand dollar hit right here.
+- **[12:15](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=735s)** — So help us out on GoFundMe.
+- **[12:18](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=738s)** — I've got people behind me that are thinking of you guys.
+- **[12:21](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=741s)** — And we're going to make this happen.
+- **[12:23](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=743s)** — Thank you to all the people that have been helping on this project and all the other projects around.
+- **[12:27](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=747s)** — I'm not the only one down here doing this.
+- **[12:29](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=749s)** — Help these families down here in Boone, North Carolina and all over, you know, North Carolina,
+- **[12:34](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=754s)** — Western North Carolina, Tennessee, Kentucky, because they're not getting the help.
+- **[12:39](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=759s)** — So let's let's let's give them some support.

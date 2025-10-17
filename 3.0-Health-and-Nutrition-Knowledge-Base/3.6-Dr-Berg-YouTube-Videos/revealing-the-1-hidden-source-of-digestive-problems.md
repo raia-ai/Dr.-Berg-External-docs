@@ -1,0 +1,161 @@
+# Revealing the #1 Hidden Source of Digestive Problems
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=A1BiWgHxSL0](https://www.youtube.com/watch?v=A1BiWgHxSL0)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=0s)** — So many people are having digestive issues and they're changing their diet and they're doing all
+- **[00:05](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=5s)** — these things or taking supplements but it's not really working. And that's probably because there's
+- **[00:10](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=10s)** — something else going on that I want to share with you today. It's kind of a hidden source of
+- **[00:15](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=15s)** — digestive problems that you need to be aware of. And when I tell you this, it'll make sense.
+- **[00:20](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=20s)** — And you maybe already knew it but it's called stress. Okay? And I'm going to talk about the
+- **[00:26](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=26s)** — specific types of stress that influence our digestion the most. But this stress-digestive
+- **[00:33](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=33s)** — problem link is huge. So I'm going to go through exactly what happens when you go through stress
+- **[00:39](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=39s)** — and this will kind of be mind-blowing when you think about it. But if you even look at the
+- **[00:44](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=44s)** — autonomic nervous system in relationship to the two different systems... well actually there's
+- **[00:48](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=48s)** — three. You have the sympathetic flight or fight mechanism and then you have the parasympathetic
+- **[00:53](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=53s)** — nervous system which is also called rest and digest. Most of the healthy digestion occurs in a
+- **[01:01](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=61s)** — parasympathetic low stress state. But you also have another part of the autonomic nervous
+- **[01:08](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=68s)** — system. The system that works on automatic called the enteric nervous system. And that's
+- **[01:16](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=76s)** — another system that's directly embedded into your digestive system and that links right up to the
+- **[01:21](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=81s)** — vagus nerve that goes up to the brain. And this is why whatever's going on down here is going to
+- **[01:28](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=88s)** — affect up here. But it's a two-way street. Whatever's going on up here as in stress
+- **[01:34](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=94s)** — can go down here as well. And that is what we're going to be focusing on today. When we talk
+- **[01:40](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=100s)** — about digestion, if we take a look at the foundational part of digestion, it's a cell.
+- **[01:46](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=106s)** — And it's a single layer cell in your small intestine and the large that's called the
+- **[01:52](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=112s)** — enterocyte. Okay, now in the colon it's usually referred to as the colonocyte. But basically
+- **[01:58](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=118s)** — it's a little cell that absorbs things. Minerals, trace minerals, vitamins, amino acids,
+- **[02:05](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=125s)** — and longer amino acids called peptides, and lipids which are fats, and B12, and even bile.
+- **[02:12](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=132s)** — So these cells are constantly absorbing these nutrients. Okay, and of course they're broken
+- **[02:18](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=138s)** — down from the acid in the stomach, the enzymes in the stomach, and a lot of the enzymes within
+- **[02:23](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=143s)** — the small intestine as well as the pancreas as well. As well as the bile does help break
+- **[02:28](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=148s)** — down the fat to a certain level so then the enzyme can break it down even more. But at some
+- **[02:32](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=152s)** — point it needs to be absorbed into these little cells. One interesting thing about these cells
+- **[02:38](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=158s)** — or this layer of cells is the surface area is massive. The body is very smart and strategically
+- **[02:47](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=167s)** — the way that it increases surface area is by kind of having these folds. Okay, like if you
+- **[02:55](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=175s)** — took an accordion or like a slinky for example and you stretch it out it would be a lot
+- **[03:00](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=180s)** — longer, right? Well, same thing with the intestines. You have these little
+- **[03:05](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=185s)** — villi which are little pouches that kind of come up and down like this. So basically it can
+- **[03:10](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=190s)** — actually increase the surface area but within each villi or little pouch you have these tiny
+- **[03:17](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=197s)** — little cells and then hairs which are like kind of a micro version of these villi extending
+- **[03:25](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=205s)** — from that little cell. So if you were to stretch all that out you're going to get a
+- **[03:32](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=212s)** — Now these colonocytes or these entorocytes aren't the only cells. There's other cells.
+- **[03:38](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=218s)** — I don't want to get into that but they some cells that produce mucus, a mucus layer as a
+- **[03:43](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=223s)** — protection between like pathogens and microbes and then the actual surface area as well. So
+- **[03:50](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=230s)** — that's just a side note. All right, so now let's talk about the consequence of stress
+- **[03:55](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=235s)** — in your digestive tract. Well, number one there's a conversion of the bacteria to
+- **[04:02](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=242s)** — something called biofilms which are these colonies of microbes that band together and
+- **[04:07](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=247s)** — they start to develop either a slime or even a calcium, a little protective mechanism so they
+- **[04:13](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=253s)** — can go underneath the radar with your immune system and because a lot of these guys are
+- **[04:16](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=256s)** — pathogenic and they create a lot of problems but you're going to get more biofilms developing
+- **[04:22](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=262s)** — when you have more stress. That's their survival mechanism. Number two, you get an erosion
+- **[04:29](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=269s)** — of the mucosal layer. Now if it keeps eroding more and more and more you end up eventually
+- **[04:35](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=275s)** — get an ulcer and maybe you've heard the link between H. pylori and ulcers and that's
+- **[04:42](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=282s)** — because of the microbial infection. You see the H. pylori is normally in your stomach
+- **[04:47](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=287s)** — hanging out not creating any problem, okay, but when you stress it, it comes out of
+- **[04:53](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=293s)** — remission and it starts to hammer you and create immune reactions and they don't know
+- **[04:58](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=298s)** — exactly why that mucosal layer becomes destroyed but it does and then you start getting an
+- **[05:04](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=304s)** — ulcer and so the way they treat it is with antibiotics. That gives you a bunch of other
+- **[05:10](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=310s)** — problems. I'm going to recommend a much safer remedy, sulforaphane which is in broccoli
+- **[05:16](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=316s)** — sprouts or it's in cabbage and radish or zinc carnosine. Zinc carnosine helps you
+- **[05:25](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=325s)** — establish this mucosal layer in your stomach, in the top part of the intestine and even the
+- **[05:30](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=330s)** — large colon and another thing it can do is potently inhibit H. pylori and it's a really
+- **[05:39](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=339s)** — good anti-inflammatory and apparently stress inhibits this zinc, okay, but zinc carnosine
+- **[05:47](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=347s)** — is the best to take for an ulcer or for gastritis or for an eroding mucosal layer. These microbes
+- **[05:56](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=356s)** — are very strategic and very smart and sneaky because H. pylori produces this enzyme to make
+- **[06:03](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=363s)** — more urea which then turns into ammonia and the pH of ammonia is really super high. It's very
+- **[06:10](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=370s)** — alkaline and that's how it counters the acid in your stomach to survive.
+- **[06:18](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=378s)** — So if you can understand that and keep your stomach strongly acidic, you can kind of keep
+- **[06:24](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=384s)** — this H. pylori at bay but it can start doing more damage in an alkaline environment. Just
+- **[06:30](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=390s)** — remember that. So with stress you get more biofilms, you get this erosion of the mucosal
+- **[06:35](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=395s)** — layer, you get decreased transient time of food particles going through the digestive track. This
+- **[06:42](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=402s)** — is called constipation. I mean even think about this when you go through stress what do you
+- **[06:46](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=406s)** — feel? You feel like a knot in your stomach, maybe nauseous because it locks everything up.
+- **[06:52](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=412s)** — It takes a very relaxed state to be able to digest and have things travel through nicely.
+- **[06:58](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=418s)** — The actual bacteria during a stress state start to feed off these enterocytes and they can start
+- **[07:07](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=427s)** — to break them down to the point where you start getting leaky gut which now there's spaces
+- **[07:12](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=432s)** — or an increased permeability and this is not good because food particles and proteins and all
+- **[07:19](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=439s)** — sorts of things can then travel through and they don't go through the normal emigration
+- **[07:24](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=444s)** — And this creates an immune reaction because your body now senses even good things as bad things,
+- **[07:33](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=453s)** — potentially incorrectly identifying them as pathogens. And now you have antibodies against
+- **[07:37](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=457s)** — maybe some good things, your own tissues, foods that are good for you. And now you're allergic
+- **[07:42](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=462s)** — to those as well. So allergies and autoimmune diseases really stem from this leaky gut
+- **[07:49](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=469s)** — You get an alteration of the ratios of bad to good. You get more bad pathogenic microbes versus good.
+- **[07:57](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=477s)** — You also get a decreased diversity of microbes. You get decreased total microbes. So the
+- **[08:04](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=484s)** — relationship of these microbes starts to change when the environment is stressful. Of course,
+- **[08:09](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=489s)** — this is going to lead to inflammation. So these are all the different things that can happen.
+- **[08:13](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=493s)** — I recently did a video on stress relating to damage to the heart muscle, right? Because
+- **[08:19](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=499s)** — adrenaline causes hypoxia, a lack of oxygen. Well, now we're talking about how stress affects
+- **[08:26](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=506s)** — the digestive system directly. Now, let's touch on the type of stress that creates these
+- **[08:32](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=512s)** — problems. Probably the biggest thing is emotional stress. This can happen after a
+- **[08:36](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=516s)** — a loss of a loved one, a loss of a job, loss of money, loss of anything, or an ongoing emotional
+- **[08:43](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=523s)** — stress that you're stuck in and can't get out of it. That's the worst type of stress. It could
+- **[08:47](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=527s)** — be related to the environment, the world, relationships, anything. It has a profound effect
+- **[08:54](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=534s)** — over your digestion. And anything you can do to improve that would be very beneficial to your
+- **[09:00](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=540s)** — gut issues. And I have a ton of videos on how to cope with stress. You know, nose breathing,
+- **[09:04](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=544s)** — controlling your breath, especially when you're sleeping, going for long walks. There are so
+- **[09:08](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=548s)** — many things you can do exercise-wise. There's just many things. Now, another big stress
+- **[09:14](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=554s)** — for these microbes and your lining of your colon and your small intestine is antibiotics.
+- **[09:22](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=562s)** — Okay. And also things that act like an antibiotic, like chlorine in tap water,
+- **[09:28](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=568s)** — artificial sweeteners, GMO foods that have glyphosate. Glyphosate is an herbicide that is
+- **[09:35](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=575s)** — classified as an antibiotic. And then you also have all the foods that are sterilized, okay,
+- **[09:42](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=582s)** — pasteurized milk products, pasteurized juice, pasteurization of canned foods, box foods,
+- **[09:49](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=589s)** — preservatives, processed foods. But the more the food is cooked, the more it's dead. It
+- **[09:57](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=597s)** — microbes, okay, good microbes. And they do this to increase shelf life. And that comes with the
+- **[10:03](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=603s)** — package. You're creating an encouragement of sterilization of your own microbiome. Anytime
+- **[10:09](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=609s)** — you take an antibiotic, you better at the same time start taking a probiotic. But there's
+- **[10:14](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=614s)** — some other interesting stresses that I want to talk about that directly relate to your digestive
+- **[10:20](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=620s)** — system. And one being intravenous feeding. When you're in ICU in the hospital or for other
+- **[10:29](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=629s)** — situations, you have to be fed through an IV. Boy, does it create a lot of problems with
+- **[10:35](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=635s)** — your digestive system. And your liver, fatty liver, liver disease, increased risk of infections,
+- **[10:43](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=643s)** — blood clots, severe deficiencies of all sorts of things. And I'm just bringing that up because
+- **[10:47](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=647s)** — you have to take this or you know someone taking this, you might want to look for a more quality
+- **[10:55](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=655s)** — type of intravenous food because what they use for the calories is they use
+- **[11:01](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=661s)** — soybean oil. Wow, you're going to inject some of the soybean oil. And that's very, very high
+- **[11:06](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=666s)** — in omega-6. It creates a lot of problems in the liver, like I said, a fatty liver. And
+- **[11:09](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=669s)** — there's a lot of research to back that up. If it creates that many problems injected, what is
+- **[11:13](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=673s)** — doing in her diet, right? It creates some other issues. It's not a safe product. And also in this
+- **[11:19](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=679s)** — intravenous feeding, they put glucose, synthetic vitamins, minerals that are probably not
+- **[11:27](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=687s)** — in the right form. Not good. Now, I mentioned ICU, right? Critical care. This creates a lot
+- **[11:36](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=696s)** — of digestive problems because when someone's in that state of critical care, a lot of times
+- **[11:42](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=702s)** — they're fed their nutrition through an IV, which I already mentioned all the problems with that.
+- **[11:47](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=707s)** — But they a lot of times put someone on a PPI and an acid type medication, which creates
+- **[11:53](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=713s)** — more stress within the digestive system itself. And then they put you on an antibiotic, right?
+- **[11:58](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=718s)** — So you're just like just putting massive stress on these microbes at the worst time,
+- **[12:04](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=724s)** — a critical care situation. And sometimes they feed you epinephrine and they have to,
+- **[12:09](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=729s)** — but you have to realize what that's doing to your gut flora. It's creating hypoxia.
+- **[12:14](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=734s)** — Okay. It's creating more stress because what does epinephrine? That's a stress hormone.
+- **[12:19](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=739s)** — You inject it right in the person. Now, sometimes you have to, but boy,
+- **[12:22](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=742s)** — you better be doing something to kind of counter some of the bad effects.
+- **[12:27](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=747s)** — And then let's say they use opiates, right? Opiates really shut down your GI system. So now
+- **[12:33](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=753s)** — we have all these pathogens that are stuck there. You have constipation
+- **[12:37](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=757s)** — as a side effect. And I even know when you have like anesthetics, they put you out.
+- **[12:42](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=762s)** — A lot of people wake up and they can't urinate. They can't eliminate. There's just so many
+- **[12:48](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=768s)** — problems with surgeries and ICU that I think more attention needs to put on this,
+- **[12:54](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=774s)** — this critical time where you're in the hospital and it's just amazing how anyone
+- **[12:58](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=778s)** — survives that. And just as a side note, when you take antacids or anything that addresses
+- **[13:04](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=784s)** — the pH of your stomach, whether it's PPIs or other types of medication,
+- **[13:09](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=789s)** — and you start raising the pH of that stomach above 3.8. Normally it should be between one
+- **[13:16](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=796s)** — and three. When it goes above 3.8, you start getting overgrowth of bacteria in the wrong place
+- **[13:23](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=803s)** — in your small intestine. And so now every time you eat fiber, guess what? You have microbes
+- **[13:28](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=808s)** — in the wrong place. That's going to start to ferment in your small intestine and create a lot
+- **[13:34](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=814s)** — bloating. So I'm just bringing this up because the solution of fixing one problem ends up giving
+- **[13:41](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=821s)** — you another problem. So the question is now, what can we do about it? Number one, do whatever
+- **[13:47](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=827s)** — you can to reduce the stress. And I put some links down below of things to help you cope
+- **[13:52](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=832s)** — with stress in addition to eliminating the source of the stress. Right? Okay. Number two,
+- **[13:58](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=838s)** — L-glutamine is really beneficial to heal an inflamed gut as well as a leaky gut.
+- **[14:06](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=846s)** — L-glutamine. That's a really good remedy. All right. Number three, probiotics and
+- **[14:13](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=853s)** — fermented foods, as in kefir. If you don't have a dairy problem, like in some allergy
+- **[14:20](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=860s)** — or lactate intolerance problem, sauerkraut is really awesome. But here's the thing.
+- **[14:25](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=865s)** — If you have sauerkraut or kimchi or some type of fermented vegetables, like pickles, for example,
+- **[14:31](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=871s)** — and you have more bloating from that, then you're going to have to do the carnivore diet for a
+- **[14:37](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=877s)** — while because that's one way to address severe inflammatory problems in the bowel as well as
+- **[14:45](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=885s)** — SIBO, small intestinal bacterial overgrowth, where you have a lot of bloating. Because
+- **[14:49](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=889s)** — every time you have fiber, it feeds the microbes and these microbes are in the wrong
+- **[14:53](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=893s)** — place. Now, if you haven't seen another really good video on digestion, you should check this
+- **[14:58](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=898s)** — out, which gives you a lot of the remedies that are not necessarily related to stress,
+- **[15:04](https://www.youtube.com/watch?v=A1BiWgHxSL0&t=904s)** — but other things. And I put that up right here. Check it out.

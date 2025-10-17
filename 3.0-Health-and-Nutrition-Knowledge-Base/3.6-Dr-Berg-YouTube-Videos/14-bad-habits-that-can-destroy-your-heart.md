@@ -1,0 +1,121 @@
+# 14 Bad Habits That Can Destroy Your Heart
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=AtBElcAs6H0](https://www.youtube.com/watch?v=AtBElcAs6H0)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=AtBElcAs6H0&t=0s)** — Today we are going to talk about the 14 bad habits that can potentially ruin your heart.
+- **[00:05](https://www.youtube.com/watch?v=AtBElcAs6H0&t=5s)** — Let's get to number one. Believing everything you read on labels. Let's start off with this one
+- **[00:10](https://www.youtube.com/watch?v=AtBElcAs6H0&t=10s)** — right here. Corn oil. How can this be heart healthy? What in here helps your heart? This is
+- **[00:15](https://www.youtube.com/watch?v=AtBElcAs6H0&t=15s)** — industrial processed seed oil that has been highly refined. And apparently this stays on
+- **[00:20](https://www.youtube.com/watch?v=AtBElcAs6H0&t=20s)** — the shelf for a long time. Do you realize that an average person consumes eight of these
+- **[00:25](https://www.youtube.com/watch?v=AtBElcAs6H0&t=25s)** — every year? That's like between 25 and 30 percent of our calories. This is a gallon. And this is
+- **[00:32](https://www.youtube.com/watch?v=AtBElcAs6H0&t=32s)** — supposed to be healthy for our heart. Here's another one that's healthy for your heart.
+- **[00:35](https://www.youtube.com/watch?v=AtBElcAs6H0&t=35s)** — Instant oatmeal. You're talking a lot of sugar in here. And it said heart healthy. And here we
+- **[00:40](https://www.youtube.com/watch?v=AtBElcAs6H0&t=40s)** — have another one. Honey and nut Cheerios. Just different combinations of ingredients,
+- **[00:45](https://www.youtube.com/watch?v=AtBElcAs6H0&t=45s)** — including sugar. I like this. Grandma makes my heart happy. That's good marketing. Both seed
+- **[00:54](https://www.youtube.com/watch?v=AtBElcAs6H0&t=54s)** — whole grains are high in omega-6. And omega-6 is pro-inflammatory. It creates inflammation. And on
+- **[01:01](https://www.youtube.com/watch?v=AtBElcAs6H0&t=61s)** — top of that, they're going to add all this extra sugar and refined starches. I highly doubt it's
+- **[01:06](https://www.youtube.com/watch?v=AtBElcAs6H0&t=66s)** — going to lower your cholesterol. In fact, it may just increase your cholesterol. But I think
+- **[01:10](https://www.youtube.com/watch?v=AtBElcAs6H0&t=70s)** — you should personally just consume it and then retest your cholesterol and see what it really
+- **[01:14](https://www.youtube.com/watch?v=AtBElcAs6H0&t=74s)** — does. All right. Number two. Stay out of the sun. Use suntan lotion. Sun can cause cancer.
+- **[01:20](https://www.youtube.com/watch?v=AtBElcAs6H0&t=80s)** — Well, this is going to reduce our vitamin D, thereby increasing our risk for heart attacks
+- **[01:26](https://www.youtube.com/watch?v=AtBElcAs6H0&t=86s)** — by roughly 32% based on a study that I'm going to put down below. In fact, one of the best
+- **[01:32](https://www.youtube.com/watch?v=AtBElcAs6H0&t=92s)** — remedies for high blood pressure is vitamin D. So avoiding the sun is not a good idea.
+- **[01:36](https://www.youtube.com/watch?v=AtBElcAs6H0&t=96s)** — Let's get to number three. Excessive sitting or a sedentary lifestyle. There's a fascinating
+- **[01:42](https://www.youtube.com/watch?v=AtBElcAs6H0&t=102s)** — study that shows an increased risk of heart disease by 147%. And not only heart attacks,
+- **[01:50](https://www.youtube.com/watch?v=AtBElcAs6H0&t=110s)** — but strokes as well. Now, if we compare sedentary people versus people that exercise,
+- **[01:55](https://www.youtube.com/watch?v=AtBElcAs6H0&t=115s)** — sedentary people have an increased risk of dying from a heart attack by over 50%.
+- **[02:00](https://www.youtube.com/watch?v=AtBElcAs6H0&t=120s)** — Exercise improves your fitness. That's that extra buffer, that extra resource to help you
+- **[02:06](https://www.youtube.com/watch?v=AtBElcAs6H0&t=126s)** — cope with stress and live longer. Number four. The overuse of certain medications. Sometimes
+- **[02:11](https://www.youtube.com/watch?v=AtBElcAs6H0&t=131s)** — we normalize medications. It's normal to be on medications over the age of 50. We don't tend to
+- **[02:18](https://www.youtube.com/watch?v=AtBElcAs6H0&t=138s)** — look at the side effects as much because everyone's on medication and your doctor told you
+- **[02:22](https://www.youtube.com/watch?v=AtBElcAs6H0&t=142s)** — to take medication, so it must be fine. But even over-the-counter medications can increase
+- **[02:27](https://www.youtube.com/watch?v=AtBElcAs6H0&t=147s)** — your risk of getting heart attacks by over 50%. I mean, there's so many medications that
+- **[02:31](https://www.youtube.com/watch?v=AtBElcAs6H0&t=151s)** — stress the heart. Chemotherapy will definitely increase the risk of getting a heart attack,
+- **[02:35](https://www.youtube.com/watch?v=AtBElcAs6H0&t=155s)** — especially HRT, hormonal placement therapy can increase the risk of getting heart attack
+- **[02:39](https://www.youtube.com/watch?v=AtBElcAs6H0&t=159s)** — by 29%. So work with a doctor that's open to using alternative forms of remedies for various
+- **[02:47](https://www.youtube.com/watch?v=AtBElcAs6H0&t=167s)** — conditions. Number five. Snacks, especially the late night snacks, especially if they're
+- **[02:52](https://www.youtube.com/watch?v=AtBElcAs6H0&t=172s)** — carbohydrate snacks. I used to do this on a regular basis. I loved chips. I would do
+- **[02:58](https://www.youtube.com/watch?v=AtBElcAs6H0&t=178s)** — ice cream. And that snack before bed ruined your ability to burn any fat through the night.
+- **[03:04](https://www.youtube.com/watch?v=AtBElcAs6H0&t=184s)** — You burn most of the fat when you're sleeping if you don't eat anything, but that doesn't
+- **[03:08](https://www.youtube.com/watch?v=AtBElcAs6H0&t=188s)** — happen if you eat something before you go to bed, especially if it's carbs. Also, growth hormone
+- **[03:14](https://www.youtube.com/watch?v=AtBElcAs6H0&t=194s)** — spikes mostly at night. So growth hormone is the anti-aging hormone. It helps burn fat
+- **[03:20](https://www.youtube.com/watch?v=AtBElcAs6H0&t=200s)** — and it'll be nullified when you eat these carbs before bed, unfortunately. So don't eat
+- **[03:25](https://www.youtube.com/watch?v=AtBElcAs6H0&t=205s)** — any snacks between the meals and especially after dinner. Number six. Drinking a lot of
+- **[03:31](https://www.youtube.com/watch?v=AtBElcAs6H0&t=211s)** — water, but also at the same time being on a low salt diet. What you're doing is you're
+- **[03:38](https://www.youtube.com/watch?v=AtBElcAs6H0&t=218s)** — developing a condition called electrolyte called sodium. What might happen is you might develop a
+- **[03:42](https://www.youtube.com/watch?v=AtBElcAs6H0&t=222s)** — condition called hyponatremia, which is low sodium in the blood. Hyponatremia actually can
+- **[03:48](https://www.youtube.com/watch?v=AtBElcAs6H0&t=228s)** — cause a heart attack, swelling in the brain, and all sorts of side effects. All the water is
+- **[03:54](https://www.youtube.com/watch?v=AtBElcAs6H0&t=234s)** — going to create a lot of pressure on the kidneys and the heart because your body has to
+- **[03:58](https://www.youtube.com/watch?v=AtBElcAs6H0&t=238s)** — get rid of the water. And then you end up being dehydrated because you don't have the salt
+- **[04:02](https://www.youtube.com/watch?v=AtBElcAs6H0&t=242s)** — to retain that fluid. The thing to do if you're salt sensitive is not to necessarily
+- **[04:07](https://www.youtube.com/watch?v=AtBElcAs6H0&t=247s)** — decrease sodium, but to increase potassium. Potassium will protect you against any dangers of
+- **[04:14](https://www.youtube.com/watch?v=AtBElcAs6H0&t=254s)** — sodium. All right, number seven. Ignoring dental care. Believe it or not, in certain studies where
+- **[04:19](https://www.youtube.com/watch?v=AtBElcAs6H0&t=259s)** — they dissect the plaque in the arteries, they have found in that plaque dental bacteria. Now,
+- **[04:25](https://www.youtube.com/watch?v=AtBElcAs6H0&t=265s)** — what is this bacteria from your mouth doing in your arteries? Well, there's something called
+- **[04:30](https://www.youtube.com/watch?v=AtBElcAs6H0&t=270s)** — gum disease. We can develop infections underneath the teeth, especially if you had a root canal
+- **[04:35](https://www.youtube.com/watch?v=AtBElcAs6H0&t=275s)** — and there's a lot of lymphatic tissue down there. And then that can leak into the lymphatic system,
+- **[04:40](https://www.youtube.com/watch?v=AtBElcAs6H0&t=280s)** — get into the blood supply, and it can circulate throughout the body. The last thing you want to
+- **[04:44](https://www.youtube.com/watch?v=AtBElcAs6H0&t=284s)** — do is create an infection underneath the tooth that's very, very difficult to identify. These
+- **[04:49](https://www.youtube.com/watch?v=AtBElcAs6H0&t=289s)** — infections underneath the teeth can actually eat up your bone. And you have to do a special
+- **[04:54](https://www.youtube.com/watch?v=AtBElcAs6H0&t=294s)** — 3D x-ray to identify necrosis of the bone. All coming from an infection. Number eight.
+- **[05:01](https://www.youtube.com/watch?v=AtBElcAs6H0&t=301s)** — Mouth breathing. That's a bad habit. And I'm talking mainly when you're sleeping. You should
+- **[05:05](https://www.youtube.com/watch?v=AtBElcAs6H0&t=305s)** — really practice breathing through your nose. Now, why is this so important? There's a physical
+- **[05:10](https://www.youtube.com/watch?v=AtBElcAs6H0&t=310s)** — phenomena that's called the Bohr phenomena, where you're breathing in oxygen, okay? But that
+- **[05:15](https://www.youtube.com/watch?v=AtBElcAs6H0&t=315s)** — oxygen that goes into the red blood cell cannot be released unless you have a certain amount of
+- **[05:21](https://www.youtube.com/watch?v=AtBElcAs6H0&t=321s)** — CO2. So this is why when you hyperventilate and you get all this oxygen and you go into
+- **[05:26](https://www.youtube.com/watch?v=AtBElcAs6H0&t=326s)** — panic attack, breathe into a paper bag. Why? So you can get more CO2 to allow the oxygen to
+- **[05:33](https://www.youtube.com/watch?v=AtBElcAs6H0&t=333s)** — go into the tissues. So by nose breathing, you're actually adding more CO2. It might feel
+- **[05:39](https://www.youtube.com/watch?v=AtBElcAs6H0&t=339s)** — like you're getting less oxygen, but you're actually getting more oxygen when you breathe
+- **[05:44](https://www.youtube.com/watch?v=AtBElcAs6H0&t=344s)** — your nose because you're mixing more CO2. Some people get this little tape that you can
+- **[05:49](https://www.youtube.com/watch?v=AtBElcAs6H0&t=349s)** — put on your mouth. That's available too. But nose breathing can greatly enhance your ability
+- **[05:54](https://www.youtube.com/watch?v=AtBElcAs6H0&t=354s)** — to sleep. It can help with sleep apnea. It can also help with snoring. Number nine, microplastics.
+- **[06:02](https://www.youtube.com/watch?v=AtBElcAs6H0&t=362s)** — Now, you can be exposed to a lot of microplastics from many different sources. Consuming water and
+- **[06:06](https://www.youtube.com/watch?v=AtBElcAs6H0&t=366s)** — plastic bottles that are especially heated. Plastic chemicals in the inside of certain cans.
+- **[06:11](https://www.youtube.com/watch?v=AtBElcAs6H0&t=371s)** — They're now finding that an average person has a lot of these microplastics, very tiny
+- **[06:16](https://www.youtube.com/watch?v=AtBElcAs6H0&t=376s)** — pieces of plastic in their blood. Where is all this plastic coming from? Well, it's coming
+- **[06:22](https://www.youtube.com/watch?v=AtBElcAs6H0&t=382s)** — in our food supply because a lot of the plastics get into the soil. There's a lot of microplastics
+- **[06:26](https://www.youtube.com/watch?v=AtBElcAs6H0&t=386s)** — in the ocean, but a lot of these plastics don't get filtered out, unfortunately. Number 10,
+- **[06:31](https://www.youtube.com/watch?v=AtBElcAs6H0&t=391s)** — feeling out of breath very easily when you start to exercise. Let's say you've been
+- **[06:36](https://www.youtube.com/watch?v=AtBElcAs6H0&t=396s)** — exercising for a while and you're exerting yourself and you get out of breath super easy.
+- **[06:41](https://www.youtube.com/watch?v=AtBElcAs6H0&t=401s)** — You have an intolerance for exercise. This is a classic sign of congestive heart failure.
+- **[06:46](https://www.youtube.com/watch?v=AtBElcAs6H0&t=406s)** — There's something wrong with the heart that you need to evaluate. Don't ignore that. All
+- **[06:51](https://www.youtube.com/watch?v=AtBElcAs6H0&t=411s)** — right. Number 11, jet lag, which greatly affects your sleep cycles. Also, a lot of people, when
+- **[06:57](https://www.youtube.com/watch?v=AtBElcAs6H0&t=417s)** — they fly, their ankles or their body starts filling up with fluid. So they start getting
+- **[07:02](https://www.youtube.com/watch?v=AtBElcAs6H0&t=422s)** — fluid retention and they get this huge expansion on their feet. And so if you do fly frequently,
+- **[07:07](https://www.youtube.com/watch?v=AtBElcAs6H0&t=427s)** — what you should do is you should be taking niacin. Niacin helps to support the mitochondria.
+- **[07:13](https://www.youtube.com/watch?v=AtBElcAs6H0&t=433s)** — It's a very, very important nutrient. It's vitamin B3. I would recommend taking about 250
+- **[07:17](https://www.youtube.com/watch?v=AtBElcAs6H0&t=437s)** — milligrams every day, at least. Make sure you take the one that creates the flushing. Sometimes
+- **[07:23](https://www.youtube.com/watch?v=AtBElcAs6H0&t=443s)** — you have to start with a smaller amount and gradually increase it. Another thing to take
+- **[07:28](https://www.youtube.com/watch?v=AtBElcAs6H0&t=448s)** — with jet lag is higher doses of vitamin D3. About 20,000 IUs of vitamin D3. Before you
+- **[07:35](https://www.youtube.com/watch?v=AtBElcAs6H0&t=455s)** — started flying, you would find the jet lag being a lot less because vitamin D3 helps to
+- **[07:42](https://www.youtube.com/watch?v=AtBElcAs6H0&t=462s)** — the circadian rhythm regulation. Number 12, excessive cardio without enough rest.
+- **[07:49](https://www.youtube.com/watch?v=AtBElcAs6H0&t=469s)** — When you exercise, a type of exercise that's really hard on the body is this sustained
+- **[07:54](https://www.youtube.com/watch?v=AtBElcAs6H0&t=474s)** — pulse rate exercise. You are just bringing the pulse rate up and you're sustaining it
+- **[07:59](https://www.youtube.com/watch?v=AtBElcAs6H0&t=479s)** — over a period of time. The point is that it can create extra stress on the heart. This is
+- **[08:03](https://www.youtube.com/watch?v=AtBElcAs6H0&t=483s)** — why you see a lot of these runners who look like they're in shape. They have problems in
+- **[08:08](https://www.youtube.com/watch?v=AtBElcAs6H0&t=488s)** — And so if you are a runner, it's called the CAC test. It stands for coronary artery calcification
+- **[08:13](https://www.youtube.com/watch?v=AtBElcAs6H0&t=493s)** — score. It's not that expensive. It's very valuable in predicting your overall mortality.
+- **[08:18](https://www.youtube.com/watch?v=AtBElcAs6H0&t=498s)** — Number 13, secondhand smoke. The secondhand smoke can also be a problem because you're
+- **[08:23](https://www.youtube.com/watch?v=AtBElcAs6H0&t=503s)** — not usually, you know, you don't have a filter in your mouth. You're just getting it.
+- **[08:27](https://www.youtube.com/watch?v=AtBElcAs6H0&t=507s)** — That can actually increase your risk of getting a heart attack by 25 to 30 percent. And this
+- **[08:32](https://www.youtube.com/watch?v=AtBElcAs6H0&t=512s)** — is probably because it decreases oxygen into the body. Not to mention all the chemicals. There's
+- **[08:39](https://www.youtube.com/watch?v=AtBElcAs6H0&t=519s)** — 7,000 different chemicals when you smoke and 70 of them are carcinogenic. So avoid secondhand
+- **[08:47](https://www.youtube.com/watch?v=AtBElcAs6H0&t=527s)** — smoke and also firsthand smoke. Number 14, refined foods. Out of all the nutrients
+- **[08:52](https://www.youtube.com/watch?v=AtBElcAs6H0&t=532s)** — that are super important for the heart, magnesium is at the top of the list because
+- **[08:58](https://www.youtube.com/watch?v=AtBElcAs6H0&t=538s)** — number one, most people are not getting enough magnesium from their diet and they're eating
+- **[09:03](https://www.youtube.com/watch?v=AtBElcAs6H0&t=543s)** — depleting magnesium and it's virtually impossible to test accurately your magnesium levels. You
+- **[09:10](https://www.youtube.com/watch?v=AtBElcAs6H0&t=550s)** — can't rely on the blood test. Like 99 percent of your magnesium is not in the blood. Most of it
+- **[09:15](https://www.youtube.com/watch?v=AtBElcAs6H0&t=555s)** — is inside the cell. Magnesium is involved in 300 different enzymes, especially in helping you
+- **[09:20](https://www.youtube.com/watch?v=AtBElcAs6H0&t=560s)** — sleep, lowering your risk for cramping, as well as decreasing your risk for arrhythmias
+- **[09:26](https://www.youtube.com/watch?v=AtBElcAs6H0&t=566s)** — and also preventing calcium building up in the heart. One really simple way to lower blood
+- **[09:31](https://www.youtube.com/watch?v=AtBElcAs6H0&t=571s)** — pressure is to take not just vitamin D3 but magnesium with it. Good habits you should also
+- **[09:36](https://www.youtube.com/watch?v=AtBElcAs6H0&t=576s)** — add to this. Cold showers or even cold immersion produces so many positive changes. Watching
+- **[09:43](https://www.youtube.com/watch?v=AtBElcAs6H0&t=583s)** — comedies, laughing more, all these things are super important in lowering stress and improving
+- **[09:49](https://www.youtube.com/watch?v=AtBElcAs6H0&t=589s)** — sleep. Now since we're on the topic of cardiovascular function, if you have not seen
+- **[09:53](https://www.youtube.com/watch?v=AtBElcAs6H0&t=593s)** — this video on heart health you should check it out. I put it up right here.

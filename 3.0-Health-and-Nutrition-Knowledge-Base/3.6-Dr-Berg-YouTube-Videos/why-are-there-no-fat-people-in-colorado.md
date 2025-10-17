@@ -1,0 +1,95 @@
+# Why Are There No Fat People in Colorado
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=e7M2oSGwfyU](https://www.youtube.com/watch?v=e7M2oSGwfyU)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=0s)** — So I have a question. Why are there no overweight people in Colorado?
+- **[00:03](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=3s)** — This video is going to solve that mystery. And this is based on a very interesting book that...
+- **[00:08](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=8s)** — presently it's not released yet, but I got an advanced copy. By the time you're watching this,
+- **[00:13](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=13s)** — it's probably being released right now, so I will put a link down below. But today we're
+- **[00:16](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=16s)** — going to dissect this mystery of why there's no fat people in Colorado. So is it that they're
+- **[00:20](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=20s)** — out exercising all day long? Could it be the food they're eating? Or maybe they have more
+- **[00:25](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=25s)** — for health foods? And so this question puzzled the author for quite some time. And so the first
+- **[00:32](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=32s)** — thing he did is he looked at the states where you had the most obesity. And he isolated those.
+- **[00:37](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=37s)** — And he found an interesting correlation between higher concentrations of Black Americans,
+- **[00:41](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=41s)** — Latinos, and he also looked at the American Indian reservations. And that's all interesting,
+- **[00:46](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=46s)** — but it gets even more interesting when you look at what is unique about that. And there's
+- **[00:51](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=51s)** — one thing that's unique, and that has to do with the pigment on someone's skin. It's called
+- **[00:56](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=56s)** — melanin. And melanin happens to be a natural sunblocker. In other words, the darker your skin,
+- **[01:05](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=65s)** — the more protection you have against UV radiation. Now, what does UV radiation have to do with
+- **[01:13](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=73s)** — Well, UV radiation interacts with your skin, and it makes vitamin D. And it is true that if you
+- **[01:21](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=81s)** — look at the levels of vitamin D, vitamin D levels are low in certain populations. And
+- **[01:26](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=86s)** — so that's very interesting. But is there any other data that aligns with this connection
+- **[01:31](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=91s)** — between vitamin D deficiency and obesity? There's a direct relationship. In fact,
+- **[01:38](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=98s)** — I'm going to put the paper down below. I don't know if this was a recent discovery,
+- **[01:43](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=103s)** — or it's been out for a long time and no one really saw it. But vitamin D directly regulates
+- **[01:51](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=111s)** — the oxidation of the fat burning process in your adipose tissue. And so vitamin D increases
+- **[01:58](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=118s)** — the expression of the release of fat from your fat cells. Vitamin D is also intimately involved
+- **[02:07](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=127s)** — in insulin. In other words, a vitamin D deficiency can be something that causes
+- **[02:14](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=134s)** — insulin resistance. And if you have enough vitamin D, it can greatly help you in your
+- **[02:20](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=140s)** — sensitivity with insulin, because insulin has a main function of fat storage. And this also
+- **[02:26](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=146s)** — kind of correlates to in the winter months, right? When we don't get enough sun, we don't
+- **[02:31](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=151s)** — get enough vitamin D, we have more fat storage. And then in the spring and the summer,
+- **[02:35](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=155s)** — people tend to lose more weight, they come out of hibernation, right? Could that be related to
+- **[02:40](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=160s)** — vitamin D? Well, I think so. Women that are pregnant, that are low in vitamin D, these
+- **[02:45](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=165s)** — children later on in life, when they become adults, tend to be more overweight and on
+- **[02:52](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=172s)** — the obese side. And then being overweight in general tends to dilute vitamin D. In other
+- **[02:58](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=178s)** — words, the more weight that you gain, the more vitamin D you're going to need because
+- **[03:02](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=182s)** — a lot of this vitamin D is absorbed in the fat cells. And so there's a very strong link between
+- **[03:08](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=188s)** — vitamin D and your fat cell that I didn't even realize until reading this book. I mean,
+- **[03:12](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=192s)** — even look at the risk factor for metabolic syndrome. Okay, there's always a vitamin D
+- **[03:17](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=197s)** — deficiency. What is metabolic syndrome? It's a combination of high glucose, then you have
+- **[03:21](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=201s)** — high cholesterol, you have high blood pressure, you have abdominal fat. Every single one of those
+- **[03:28](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=208s)** — including insulin resistance relates to low vitamin D levels. And this also could explain
+- **[03:33](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=213s)** — that when someone has high blood pressure and they take vitamin D, their blood pressure
+- **[03:37](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=217s)** — tends to go lower. All right, getting back to the geography of the United States. If you
+- **[03:43](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=223s)** — take a look at the states that have more elderly people, they are more overweight. And
+- **[03:49](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=229s)** — we do know that the age of your skin has a lot to do with the absorption of vitamin D as
+- **[03:53](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=233s)** — well. And so that's another little piece of the puzzle that aligns to this idea. If you look at
+- **[03:59](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=239s)** — the trends of obesity, there's also this big spike of obesity in the United States that goes
+- **[04:04](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=244s)** — up roughly around 1980. And the author points out another interesting observation
+- **[04:11](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=251s)** — in the early 80s. This is when the experts or science started to tell people
+- **[04:18](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=258s)** — to stay out of the sun. To start using sunblock. Both of these actions will block your vitamin D.
+- **[04:27](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=267s)** — I was born in 1965. Through the 70s, I was a kid and I did not observe a lot of overweight
+- **[04:32](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=272s)** — people in my school growing up. And we were outside all day long. We were not afraid of
+- **[04:38](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=278s)** — the sun, yet we were consuming a massive amount of sugar and carbohydrates. But I do know like
+- **[04:45](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=285s)** — the 80s and the 90s, you started seeing more and more people that were overweight. Could it be
+- **[04:51](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=291s)** — this vitamin D connection? Well, it just so happens that Colorado has the highest elevation
+- **[04:56](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=296s)** — of any state in the United States. So this means you're going to get a lot more ultraviolet
+- **[05:03](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=303s)** — radiation and you're going to get a lot more vitamin D. You're going to get way more exposure
+- **[05:08](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=308s)** — like three to five times more if you're higher up closer to the sun than if even if you're
+- **[05:15](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=315s)** — on the beach at sea level. And so if you're born in Colorado and you're living in Colorado
+- **[05:20](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=320s)** — and you have this chronic exposure to more sun and more vitamin D, it's going to greatly
+- **[05:26](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=326s)** — affect your expression of how you burn fat. And I think the key word is chronic exposure,
+- **[05:31](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=331s)** — right? It's how long someone's exposed to the sun or getting vitamin D and in relationship
+- **[05:38](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=338s)** — to what happens to the metabolism. I mean, just as another side note, I had a patient in
+- **[05:45](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=345s)** — who had this huge belly and every time he went down to Florida and got a lot of sun,
+- **[05:51](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=351s)** — he came back. I swear it was like he was flat and he didn't change his diet, by the way,
+- **[05:57](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=357s)** — and he came back and I'm like, wow, that's amazing. But you also have the latitude that
+- **[06:02](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=362s)** — the further you're away from the equator, the less UV you're going to get as well.
+- **[06:07](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=367s)** — Now, what about in the Appalachian mountains? You have white people who don't have a lot
+- **[06:13](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=373s)** — of melanin, but they're obese. They have a much higher rate of obesity and they're in the
+- **[06:19](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=379s)** — mountains. Now, what's interesting about these people living in the Appalachian mountains is
+- **[06:23](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=383s)** — they're not necessarily living on the peak. They're living in the valleys. It's definitely
+- **[06:27](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=387s)** — not as high. And there's a lot of shadowing of these mountains. So they're living in the
+- **[06:32](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=392s)** — shadows, the mountains, which would not give them more vitamin D. Like even vitamin D and
+- **[06:38](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=398s)** — how it affects your sleep cycles. If you're deficient in vitamin D, you don't get enough
+- **[06:42](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=402s)** — your sleep cycles are not going to be as great. In fact, if you have jet lag, for example,
+- **[06:47](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=407s)** — and you take vitamin D, it's one of the best remedies. It'll just kind of reset that
+- **[06:52](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=412s)** — circadian rhythm. And then you have sleep apnea, which is usually always a vitamin D
+- **[07:00](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=420s)** — deficiency. When you get people with sleep apnea, vitamin D, they tend to not snore as
+- **[07:04](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=424s)** — much. They tend to sleep better. And then you have this connection between vitamin D and
+- **[07:10](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=430s)** — cortisol. Cortisol, stress in general, lowers vitamin D. But when you take vitamin D, you
+- **[07:16](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=436s)** — can also help lower cortisol, which is a stress hormone, which can also make you gain weight.
+- **[07:22](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=442s)** — And this cortisol stress hormone can also create insulin resistance. And so if someone
+- **[07:27](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=447s)** — is vitamin D deficient and they get more inflammation, inflammation can directly cause
+- **[07:33](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=453s)** — insulin resistance as well, which is behind obesity. And then when you dive into the
+- **[07:39](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=459s)** — data of how vitamin D affects your mitochondria, if you don't have enough vitamin D, you get a lot
+- **[07:43](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=463s)** — of oxidative stress. The mitochondria doesn't work as well. And the mitochondria is the
+- **[07:48](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=468s)** — energy factory that is behind your metabolism. So this is just one of many of the mysteries
+- **[07:55](https://www.youtube.com/watch?v=e7M2oSGwfyU&t=475s)** — that this author talks about. So I'm going to put the link down below for the book if you

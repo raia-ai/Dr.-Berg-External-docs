@@ -1,0 +1,132 @@
+# This Is a DEADLY Combination
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=pdKgMQI_JoI](https://www.youtube.com/watch?v=pdKgMQI_JoI)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=0s)** — When you combine sugar with caffeine, you get a powerful combination of bad things that are
+- **[00:05](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=5s)** — going to happen to you. I'm going to get into those in just a second, but I just wanted to
+- **[00:09](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=9s)** — first show you how much sugar is in these energy drinks. An energy drink is something that you
+- **[00:16](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=16s)** — perceive to be something not that unhealthy, right? If we compare it to a soda, well,
+- **[00:22](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=22s)** — what you're going to find out is that it's actually worse than Coca-Cola. Okay, let me
+- **[00:26](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=26s)** — explain. Let's first get into this one here, Rockstar. Rockstar has 16 teaspoons of sugar.
+- **[00:33](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=33s)** — It has the most sugar of all of these, but it's not just regular sugar. It is a synthetic,
+- **[00:40](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=40s)** — industrial created sugar. So it's not good for your liver, but 16 teaspoons. Then we get into
+- **[00:47](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=47s)** — the Monster energy drink, which is 14 and a half teaspoons of sugar. Not as much as this one
+- **[00:54](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=54s)** — and then we have something called NOS, which is an enhanced mental focus drink. This one has 13
+- **[01:01](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=61s)** — and a half teaspoons. All of these right here have more sugar than a Coke because a Coke only
+- **[01:08](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=68s)** — has 13 teaspoons of sugar. But if we look at the caffeine, Rockstar has 160 milligrams
+- **[01:15](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=75s)** — and also Monster has 160 milligrams and so does NOS. But Coca-Cola only has 45 milligrams.
+- **[01:23](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=83s)** — So all three of these have three times the amount of caffeine as a Coke and all three of them have
+- **[01:29](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=89s)** — more sugar. Yet somehow we perceive these to be healthier, but they're all not good for you
+- **[01:34](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=94s)** — because the type of sugar that they're putting in here and the amounts is just crazy too high.
+- **[01:38](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=98s)** — This has high fructose corn syrup. These also have synthetic sugars. Gatorade has a little
+- **[01:43](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=103s)** — more sugar than a Coke, like just under 14 teaspoons. Okay, Empowerade has about 13
+- **[01:48](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=108s)** — teaspoons of sugar. So all three of these are similar in sugars. Now as far as caffeine and
+- **[01:53](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=113s)** — Gatorade, there isn't any in this particular drink, but in other drinks it goes anywhere
+- **[01:59](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=119s)** — between 23 milligrams to 200 milligrams of caffeine. And Powerade apparently does not have
+- **[02:05](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=125s)** — any caffeine. Then we get to this one called Celsius. Zero sugars. And of course they put
+- **[02:10](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=130s)** — sucralose in there, the type of sweetener that isn't necessarily classified as a sugar,
+- **[02:16](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=136s)** — but it creates a similar damage that sugar creates. But just indirectly, I'm not going to
+- **[02:20](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=140s)** — get into that. But what you should know is this one has 270 milligrams of caffeine. Over
+- **[02:27](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=147s)** — 100 milligrams more caffeine than these right here. And almost six times the amount of caffeine
+- **[02:35](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=155s)** — than a Coca-Cola. But now let's get into why you never want to combine a lot of sugar with
+- **[02:40](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=160s)** — caffeine. When you combine sugar with caffeine, you are creating a ticking time bomb. Let's get
+- **[02:48](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=168s)** — into a deep dive on what happens when you combine a lot of sugar and caffeine at the same
+- **[02:52](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=172s)** — time. You know when people are doing this, I always like to ask what problem are you trying
+- **[02:56](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=176s)** — to solve? Are you trying to solve your fatigue? And is this solution going to be the best
+- **[03:04](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=184s)** — solution or not? So let's kind of take a look at this, right? Let's first look at sugar.
+- **[03:08](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=188s)** — First question is, do you have low blood sugar? That we can just add some sugar and raise it.
+- **[03:13](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=193s)** — Chances are your problem is not even a low blood sugar situation. But if it is, it will
+- **[03:18](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=198s)** — raise the blood sugar and give you a little boost in mental energy. And when I'm talking
+- **[03:23](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=203s)** — about a little boost, I'm talking about a very short-term boost of mental energy, right?
+- **[03:29](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=209s)** — Followed by a roller coaster crash right down here. And all the symptoms of low blood
+- **[03:35](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=215s)** — are irritableness, brain fog, weakness, tiredness. That wouldn't actually occur
+- **[03:42](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=222s)** — if you didn't consume that sugar in the first place. Because a lot of these energy drinks
+- **[03:47](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=227s)** — are just filled with an ungodly amount of sugar. And where does the sugar go when you
+- **[03:53](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=233s)** — consume it? Does it go to the muscles? Probably not. It's going to go to the brain.
+- **[03:57](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=237s)** — The brain has the priority over incoming sugar. But it's really kind of a fake energy. It's
+- **[04:02](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=242s)** — not a real sustaining long-term energy at all. It's not going to give you any type of endurance.
+- **[04:08](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=248s)** — Now when we talk about energy in the body, we're really talking about the energy factory.
+- **[04:11](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=251s)** — It's called the mitochondria. The mitochondria are in the cells. And that is where all the
+- **[04:17](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=257s)** — energy is produced. And so food comes into this machine. And then it gets converted into
+- **[04:23](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=263s)** — an energy currency called ATP. So you can look at ATP as some energy that you can use. It's
+- **[04:32](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=272s)** — a sort of energy that's just sitting there that you created by eating certain food. And you can
+- **[04:36](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=276s)** — actually use it on demand. So when you eat food, it creates so many of these ATP's. When you
+- **[04:40](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=280s)** — consume sugar, there's actually another machine outside this machine that just deals with sugar.
+- **[04:46](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=286s)** — But it only gives you two ATP. Then what happens, it can go through here and produce
+- **[04:50](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=290s)** — more energy if this machine is working correctly. The reason I'm bringing this up,
+- **[04:56](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=296s)** — because I'm trying to explain biochemistry in a really simple way. In order for you to
+- **[05:00](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=300s)** — feed into usable fuel, it has to go through a whole bunch of steps from here all the way
+- **[05:06](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=306s)** — through here and out this side right here. And in that process, each little step is dependent
+- **[05:12](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=312s)** — on what's called cofactors. These are the nutrients. B1, B2, B3, B5, biotin, coenzyme Q10,
+- **[05:20](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=320s)** — magnesium, iron, sulfur, lipoic acid. These are the helper things that allow that fuel
+- **[05:26](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=326s)** — to be metabolized or used or converted to this right here. And the reason I'm bringing that up
+- **[05:31](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=331s)** — is because the sugar that you're consuming in these energy drinks is completely empty
+- **[05:38](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=338s)** — of these right here. Now, they do add some of these cofactors into these drinks. And
+- **[05:44](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=344s)** — somehow they know that if they don't, you're going to create a lot of deficiencies. Because
+- **[05:50](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=350s)** — your ability to make this energy is dependent on these guys right here. So if these aren't
+- **[05:53](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=353s)** — the food that you eat, then the body is just going to suck it from your tissues, from the
+- **[05:58](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=358s)** — reserve. This is why when you eat a lot of refined sugar, as in these drinks right here,
+- **[06:02](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=362s)** — you're going to deplete these nutrients. Also, if you eat food like fruit, for example,
+- **[06:08](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=368s)** — it has a lot of these nutrients. It also has antioxidants to protect against the massive
+- **[06:14](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=374s)** — amount of sugar that you're taking in. But of course, when you're consuming refined sugar,
+- **[06:19](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=379s)** — you don't get the benefit of any accidents. So eventually you end up destroying this machine
+- **[06:24](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=384s)** — right here. And now you can only really get a small amount of energy from that sugar. This
+- **[06:30](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=390s)** — is why people that consume these energy drinks over a long period of time get more tired and
+- **[06:35](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=395s)** — more tired and more tired, until the point where it doesn't give them any energy at all.
+- **[06:40](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=400s)** — Because the machine is broken. Another term for that is insulin resistance. Now, the other
+- **[06:45](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=405s)** — interesting thing that the sugar does is because there's so much sugar that comes into your
+- **[06:51](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=411s)** — gastrointestinal tract, when your body has this concentrated sugar, just like in a diabetic,
+- **[06:56](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=416s)** — what happens, it must dilute this concentration by pulling water out of the cells and into
+- **[07:04](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=424s)** — your intestines. And this is why when you consume a lot of sugar in sports drinks and
+- **[07:09](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=429s)** — energy drinks, you might have diarrhea, abdominal pain, and check this out, dehydration
+- **[07:15](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=435s)** — in the cells. Because when you consume this concentrated sugar, the body has to pull
+- **[07:21](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=441s)** — fluids out of the cell, going from a normal cell to a raisin-like cell. So a lot of these
+- **[07:28](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=448s)** — sport hydrating drinks are really dehydrating drinks. We get like a roller coaster effect,
+- **[07:35](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=455s)** — a blood sugar. You might need more of the drink to have more mental energy. So this is
+- **[07:44](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=464s)** — gut microbiome because you're consuming a lot of extra sugar that feeds pathogens. But one of
+- **[07:51](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=471s)** — the big things that consuming a lot of refined sugar does is it depletes potassium. Because
+- **[07:56](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=476s)** — there is a potassium-sodium pump in your body. You have like millions and millions and millions
+- **[08:02](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=482s)** — of them all over the place. And this potassium-sodium pump powers, like a battery,
+- **[08:08](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=488s)** — your nerves and your muscles and allows everything to work. Well, one thing about
+- **[08:14](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=494s)** — refined sugar is it's going to deplete you of potassium. A lot of these drinks do not nearly
+- **[08:20](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=500s)** — have enough potassium. And unless you're getting it from the diet, you're just creating a lot
+- **[08:25](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=505s)** — of potassium deficiency. Then all of a sudden the muscles and the nervous system start getting
+- **[08:29](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=509s)** — weaker and weaker and weaker. Our bodies need a tremendous amount of potassium. And many
+- **[08:34](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=514s)** — people don't get that much. I mean we need like 4700 milligrams every single day. We need a
+- **[08:40](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=520s)** — massive amount of potassium for a reason. It powers the sodium-potassium pump. And I don't
+- **[08:45](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=525s)** — think a lot of people talk about this. But as you consume more refined sugar, you become
+- **[08:49](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=529s)** — potassium depleted. And then all these functions that potassium gave you kind of disappear.
+- **[08:54](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=534s)** — Like the regulation of your heart rate. So the heart rate starts going higher. Also potassium
+- **[08:59](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=539s)** — is a physiological tranquilizer at night. It helps you calm down. Let's shift gears to
+- **[09:04](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=544s)** — caffeine, right? So now we're going to add caffeine to sugar. What does caffeine do?
+- **[09:09](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=549s)** — Believe it or not, a little bit of caffeine actually can help the mitochondria.
+- **[09:14](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=554s)** — A little bit. But the amount of caffeine in these are off the chart. What does caffeine
+- **[09:18](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=558s)** — actually do? Does it give you energy? No, it does not give you energy. What it does is it
+- **[09:26](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=566s)** — a certain chemical compound that normally makes you tired. But it's not giving you energy.
+- **[09:32](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=572s)** — It's tricking the body into thinking it's not tired. The problem with the caffeine in these
+- **[09:38](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=578s)** — energy drinks is just way, way too much. So you can really overdo it. A little bit of
+- **[09:42](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=582s)** — caffeine is fine. A lot is not good for a lot of things. Number one, it's going to increase
+- **[09:47](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=587s)** — adrenaline. Heart rate goes up. Blood pressure goes up. Stress on the cardiovascular system.
+- **[09:54](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=594s)** — Another interesting thing about caffeine is it's a diuretic. It's going to pull water out.
+- **[10:00](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=600s)** — So here you are drinking an energy drink or a sports drink, a hydrating drink,
+- **[10:05](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=605s)** — and the sugar and the caffeine. I don't think these have caffeine, but other ones do.
+- **[10:10](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=610s)** — Basically dehydrate you. So you take these to get energy and to be hydrated, but they
+- **[10:15](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=615s)** — actually create fatigue and dehydration. Also, it creates a stimulus on your adrenal glands.
+- **[10:20](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=620s)** — It's going to get them working a lot more than they should, and it's going to create adrenal
+- **[10:24](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=624s)** — fatigue. So eventually when you start out, you have a lot of energy. And then over a period
+- **[10:29](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=629s)** — of time, you're just more tired, more tired, more tired. It's called chronic fatigue syndrome.
+- **[10:33](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=633s)** — It's going to affect your sleep too. A better solution would be to get the diet corrected. So
+- **[10:39](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=639s)** — the actual food gives you long-term sustained level energy. Most people do not need to add
+- **[10:47](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=647s)** — their body can easily make energy from the fat that you have in your body. Also from this machine,
+- **[10:54](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=654s)** — if it works correctly. So I'm just trying to increase the awareness on too many of these
+- **[10:58](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=658s)** — over time comes with the package and there's a much better way to be hydrated and create
+- **[11:02](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=662s)** — more energy from using food by consuming more electrolytes or actual salt. And as a side note,
+- **[11:10](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=670s)** — if you're deficient in sodium, you will have weak muscles. Salt is important to take
+- **[11:14](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=674s)** — with water if you're working out and you're sweating. Thanks for watching and I will see
+- **[11:18](https://www.youtube.com/watch?v=pdKgMQI_JoI&t=678s)** — you in the next video.

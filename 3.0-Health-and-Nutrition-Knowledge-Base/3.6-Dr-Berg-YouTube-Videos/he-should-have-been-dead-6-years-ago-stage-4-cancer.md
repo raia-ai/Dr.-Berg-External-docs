@@ -1,0 +1,192 @@
+# He Should Have Been Dead 6 Years Ago - STAGE 4 CANCER
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=7yszU0-Molc](https://www.youtube.com/watch?v=7yszU0-Molc)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=7yszU0-Molc&t=0s)** — Today, I'm going to interview someone who should have been dead six years ago, and he's still alive.
+- **[00:09](https://www.youtube.com/watch?v=7yszU0-Molc&t=9s)** — So we're going to talk about why he's still alive. He had stage 4 cancer. Now, what is stage 4 cancer?
+- **[00:16](https://www.youtube.com/watch?v=7yszU0-Molc&t=16s)** — Stage 4 cancer is also known as metastatic cancer, which means it has spread to at least one organ.
+- **[00:23](https://www.youtube.com/watch?v=7yszU0-Molc&t=23s)** — And in his case, it spread to his bones.
+- **[00:25](https://www.youtube.com/watch?v=7yszU0-Molc&t=25s)** — But here's the thing, the normal lifespan of someone with a stage 4 cancer is from a few weeks to a few months,
+- **[00:36](https://www.youtube.com/watch?v=7yszU0-Molc&t=36s)** — and in rare cases, several months to up to a year. But it's been six years since Guy has been told he had cancer, so he's still alive.
+- **[00:50](https://www.youtube.com/watch?v=7yszU0-Molc&t=50s)** — Hello, Guy. Good to see you.
+- **[00:52](https://www.youtube.com/watch?v=7yszU0-Molc&t=52s)** — Hi. Hi, Eric. Nice to see you again.
+- **[00:55](https://www.youtube.com/watch?v=7yszU0-Molc&t=55s)** — Very nice to see you. And we're going to talk about this because I have to give a disclaimer.
+- **[01:02](https://www.youtube.com/watch?v=7yszU0-Molc&t=62s)** — This is not meant to bypass your medical doctor, check with your doctor before implementing any of the things we're going to talk about.
+- **[01:09](https://www.youtube.com/watch?v=7yszU0-Molc&t=69s)** — We're not here to tell you we have the absolute positive guaranteed cure. Okay, we're not going to tell you that.
+- **[01:17](https://www.youtube.com/watch?v=7yszU0-Molc&t=77s)** — However, that being said, if I had cancer, I would want to know what I'm about to tell you because there's some fascinating information that I want to put on your radar to consider.
+- **[01:29](https://www.youtube.com/watch?v=7yszU0-Molc&t=89s)** — And in this presentation, we want to be very reasonable as far as make it as sane as possible and as easy to do because when someone gets cancer, they're getting so many different opinions.
+- **[01:44](https://www.youtube.com/watch?v=7yszU0-Molc&t=104s)** — So our thought in this presentation was to do several things at once, not to only do one thing, just to make sure we cover all bases because there's different conflicting theories.
+- **[01:58](https://www.youtube.com/watch?v=7yszU0-Molc&t=118s)** — You know, there's one theory that says that if you just starve the cancer off with glucose during the ketogenic diet, you'll kill the cancer off.
+- **[02:07](https://www.youtube.com/watch?v=7yszU0-Molc&t=127s)** — Okay. And there's another theory that states that, well, cancer can live on ketones.
+- **[02:13](https://www.youtube.com/watch?v=7yszU0-Molc&t=133s)** — Okay, so that conflicts with that first theory. So we have an idea to actually cover both sides of the spectrum, including if someone also wants to do some medical care.
+- **[02:27](https://www.youtube.com/watch?v=7yszU0-Molc&t=147s)** — We're not here to tell you what to do, but we want to tell you that there's things to look at, there's things you should consider, and there's some fascinating information that we're going to share with you today.
+- **[02:39](https://www.youtube.com/watch?v=7yszU0-Molc&t=159s)** — So in other words, the protocol that we want to talk about today involves even someone doing chemo.
+- **[02:47](https://www.youtube.com/watch?v=7yszU0-Molc&t=167s)** — Okay, so there's some research that Guy and I both worked on with a very famous competent physician researcher that we published, and we will put all those links down below.
+- **[03:03](https://www.youtube.com/watch?v=7yszU0-Molc&t=183s)** — We could spend an hour going through the study and put you completely asleep, but we're not going to do that because it's very tactical.
+- **[03:10](https://www.youtube.com/watch?v=7yszU0-Molc&t=190s)** — But to really give you the simplicity of this, a cancer cell really came from a normal cell.
+- **[03:18](https://www.youtube.com/watch?v=7yszU0-Molc&t=198s)** — And what happened is there's damage in the mitochondria. The body then has a Plan B to survive.
+- **[03:25](https://www.youtube.com/watch?v=7yszU0-Molc&t=205s)** — And so it uses more of an older ancient pathway to get its fuel. So the cancer then loses its programmed cell death and it can live forever, but it gets its energy from another source outside the mitochondria.
+- **[03:38](https://www.youtube.com/watch?v=7yszU0-Molc&t=218s)** — So that's kind of the nature of cancer and the cancer then can live without oxygen and it can spread and create all sorts of problems.
+- **[03:49](https://www.youtube.com/watch?v=7yszU0-Molc&t=229s)** — But there's some unique things that we're going to share with you today that are very important when you have cancer.
+- **[03:56](https://www.youtube.com/watch?v=7yszU0-Molc&t=236s)** — Okay, Guy, I want you just to briefly, you know, in a short little paragraph of information, tell us when you were first told that you had cancer six years ago, what did the doctor tell you to do about this?
+- **[04:13](https://www.youtube.com/watch?v=7yszU0-Molc&t=253s)** — Absolutely nothing because it was too late. They told me, enjoy the rest of your life.
+- **[04:21](https://www.youtube.com/watch?v=7yszU0-Molc&t=261s)** — And that's it. So they didn't propose me any treatment because it was no more treatment. My cancer was too much everywhere. And it was too late.
+- **[04:36](https://www.youtube.com/watch?v=7yszU0-Molc&t=276s)** — So did it spread into the bones? Did it spread into other?
+- **[04:40](https://www.youtube.com/watch?v=7yszU0-Molc&t=280s)** — In the bones, in the bones, in the lymph nodes, and it spread in my lungs too, a little bit. It was not a lot compared to the lymph node or to the bones, of course.
+- **[04:52](https://www.youtube.com/watch?v=7yszU0-Molc&t=292s)** — So that must have been frightening. And at that point, of course, you disagreed. You, I mean, the thing about Guy is he is a survivor. He basically reached out to everyone that he knew. He started to kind of get more information. And I think you flew around the world trying to find someone that could help you.
+- **[05:10](https://www.youtube.com/watch?v=7yszU0-Molc&t=310s)** — Yes. And what who helped me? You with your video. I already told you that. Thomas Seyfried, because I went to see him. I did a lot of fast, the prolonged fasting.
+- **[05:28](https://www.youtube.com/watch?v=7yszU0-Molc&t=328s)** — And I was in this moment, absolutely sure that ketones can help to kill cancer cells, because you know the autophagy. Another Nobel Prize in 2016, a Japanese guy.
+- **[05:51](https://www.youtube.com/watch?v=7yszU0-Molc&t=351s)** — And OK, I was, it works. It works because I'm still here. And little by little, I add a lot of things because what I still, what still scares me is the relapse.
+- **[06:15](https://www.youtube.com/watch?v=7yszU0-Molc&t=375s)** — Because we have a lot of people who have relapse. If we don't change the way we try to fight cancer, we are dead. We are dead.
+- **[06:31](https://www.youtube.com/watch?v=7yszU0-Molc&t=391s)** — Yeah. And the other thing is that I don't think you did not use any chemo, correct?
+- **[06:37](https://www.youtube.com/watch?v=7yszU0-Molc&t=397s)** — No, absolutely no chemo. No radiation, because they didn't propose to me because I was not different than anybody. If they told me chemo can prolong your life or save you, I will do it.
+- **[06:56](https://www.youtube.com/watch?v=7yszU0-Molc&t=416s)** — Of course, I was lucky. My cancer was too spread too much. Then they have no solution for me. So I start to read the publication on, I search on PubMed, on NIH, on Nature, on all the famous scientific publications.
+- **[07:25](https://www.youtube.com/watch?v=7yszU0-Molc&t=445s)** — I was, I had no knowledge of nothing, but I was obliged to try to learn, to understand. And when I understood what is cancer, I discovered that probably I can save my life.
+- **[07:47](https://www.youtube.com/watch?v=7yszU0-Molc&t=467s)** — I went to see Thomas Sieffried. He helped me a lot, explained me a lot of things. And today I would like to continue to his Guinea Pig. He proposed me to do a study.
+- **[08:05](https://www.youtube.com/watch?v=7yszU0-Molc&t=485s)** — Guinea Pig. Okay.
+- **[08:08](https://www.youtube.com/watch?v=7yszU0-Molc&t=488s)** — Guinea Pig. Yes. I would like to continue to be his Guinea Pig.
+- **[08:15](https://www.youtube.com/watch?v=7yszU0-Molc&t=495s)** — Yeah. Okay, good.
+- **[08:19](https://www.youtube.com/watch?v=7yszU0-Molc&t=499s)** — That's great because
+- **[08:24](https://www.youtube.com/watch?v=7yszU0-Molc&t=504s)** — obviously, Guy, you did something that was very successful. So I want to break it down what you did. Okay.
+- **[08:31](https://www.youtube.com/watch?v=7yszU0-Molc&t=511s)** — Now, I think probably the big difference, the big difference, the elephant in the room, the thing that was stands out the most is you did prolonged fasting.
+- **[08:41](https://www.youtube.com/watch?v=7yszU0-Molc&t=521s)** — Now, you have the ability to apparently fast for a long time. I mean, I think you went to, I think up to 40 days.
+- **[08:51](https://www.youtube.com/watch?v=7yszU0-Molc&t=531s)** — And then what you'll do on a regular basis is you might do a seven day fast and then you might do a 48 hour fast and then you might do a 72 hour fast and there's no pattern.
+- **[09:01](https://www.youtube.com/watch?v=7yszU0-Molc&t=541s)** — And I think that was that's smart too, because cancer tends to figure you out. And so you really have to switch things up.
+- **[09:07](https://www.youtube.com/watch?v=7yszU0-Molc&t=547s)** — I don't want to give a cancer a routine. Right. So I didn't know the day after what I will do tomorrow.
+- **[09:16](https://www.youtube.com/watch?v=7yszU0-Molc&t=556s)** — Yeah. Because perhaps my brain can, my cancer cells can read my brain. Right. So it's perhaps stupid, but I don't think so.
+- **[09:26](https://www.youtube.com/watch?v=7yszU0-Molc&t=566s)** — Yeah. Yeah. Cancer is very smart and it adapts and it survives like crazy.
+- **[09:35](https://www.youtube.com/watch?v=7yszU0-Molc&t=575s)** — So the big thing, though, is you did the long term fasting. And so if the theory of cancer can live on ketones is true.
+- **[09:46](https://www.youtube.com/watch?v=7yszU0-Molc&t=586s)** — And then the question is, well, if you're doing fasting, you're living on ketones. But there is also data that show that those ketones are different than the ketones you get from the diet.
+- **[10:01](https://www.youtube.com/watch?v=7yszU0-Molc&t=601s)** — So and there's a lot of other things that happen when you go fasting as far as the survival proteins, all sorts of tumor suppressor genes kick in.
+- **[10:11](https://www.youtube.com/watch?v=7yszU0-Molc&t=611s)** — There's a lot of things that happen when you do fasting, prolonged fasting and and also the strength of the immune system.
+- **[10:16](https://www.youtube.com/watch?v=7yszU0-Molc&t=616s)** — And also, if someone does chemo, the tolerance for that chemo goes up. And so people have less symptoms.
+- **[10:26](https://www.youtube.com/watch?v=7yszU0-Molc&t=626s)** — And so as I get a lot of emails, you get a lot of emails from people asking questions about cancer.
+- **[10:32](https://www.youtube.com/watch?v=7yszU0-Molc&t=632s)** — So we just wanted to lay out a lot of these questions and answers in this presentation.
+- **[10:37](https://www.youtube.com/watch?v=7yszU0-Molc&t=637s)** — Even now, 99.9% of all my cancer videos, I had to get them off YouTube and put them on Rumble.
+- **[10:46](https://www.youtube.com/watch?v=7yszU0-Molc&t=646s)** — This one is a bit conservative, and we're just going to talk about some concepts.
+- **[10:51](https://www.youtube.com/watch?v=7yszU0-Molc&t=651s)** — So one of the normal things that happens in our bodies, if we have strong mitochondria, is this interesting process of the cell.
+- **[11:01](https://www.youtube.com/watch?v=7yszU0-Molc&t=661s)** — If it's damaged, it actually ends up committing suicide to get rid of the cell, which is fascinating.
+- **[11:08](https://www.youtube.com/watch?v=7yszU0-Molc&t=668s)** — But it takes a lot of energy. So when there's mitochondrial damage, it doesn't have enough energy.
+- **[11:14](https://www.youtube.com/watch?v=7yszU0-Molc&t=674s)** — Apoptosis stops working to a certain degree. That has a lot to do with this whole cancer transition, which I'm not going to get too into the woods.
+- **[11:22](https://www.youtube.com/watch?v=7yszU0-Molc&t=682s)** — But I will say that you have people that can do fasting. You have people that can't do fasting.
+- **[11:28](https://www.youtube.com/watch?v=7yszU0-Molc&t=688s)** — You have people that are really, really frail and skinny. And if you put them on a long fast, I mean, they're going to lose all their muscles.
+- **[11:35](https://www.youtube.com/watch?v=7yszU0-Molc&t=695s)** — Then you get other people that can have some muscle to lose with some prolonged fasting.
+- **[11:40](https://www.youtube.com/watch?v=7yszU0-Molc&t=700s)** — So it's really going to be a judgment call. So what we're going to recommend, if you can't do fasting,
+- **[11:47](https://www.youtube.com/watch?v=7yszU0-Molc&t=707s)** — what you can do is what's called the fasting mimicking diet by Walter Lange. And he came up with that.
+- **[11:55](https://www.youtube.com/watch?v=7yszU0-Molc&t=715s)** — And, you know, we're not recommending the version where you're taking supplements like the food supplements.
+- **[12:02](https://www.youtube.com/watch?v=7yszU0-Molc&t=722s)** — The one that we're going to recommend is the is kind of a version of his own initial program.
+- **[12:08](https://www.youtube.com/watch?v=7yszU0-Molc&t=728s)** — And basically you're going to do for five days, you're going to go on a special eating plan that will mimic fasting, but it's not complete fasting
+- **[12:19](https://www.youtube.com/watch?v=7yszU0-Molc&t=739s)** — because it's a lot easier to mimic fasting than actually do the fasting program. You can go five days.
+- **[12:25](https://www.youtube.com/watch?v=7yszU0-Molc&t=745s)** — Now, when Guy does the fasting, he feels good. He can do it. Other people I've had try to do prolonged fast and they feel like crap.
+- **[12:34](https://www.youtube.com/watch?v=7yszU0-Molc&t=754s)** — And they just, you know, they haven't adapted yet. And, you know, it's tougher. So we're going to give you options. Right.
+- **[12:40](https://www.youtube.com/watch?v=7yszU0-Molc&t=760s)** — And so this fasting mimicking diet, you're going to get your calories down to like 800 calories a day.
+- **[12:46](https://www.youtube.com/watch?v=7yszU0-Molc&t=766s)** — And maybe the first day you do a thousand and then the next four days you'll do 800 calories.
+- **[12:54](https://www.youtube.com/watch?v=7yszU0-Molc&t=774s)** — And so to keep this really simple, what we're going to recommend is to do just vegetables, salad, steamed vegetables, steamed cruciferous vegetables, high quality extra virgin olive oil.
+- **[13:08](https://www.youtube.com/watch?v=7yszU0-Molc&t=788s)** — So that way you have something that you can it can be satisfying.
+- **[13:14](https://www.youtube.com/watch?v=7yszU0-Molc&t=794s)** — And plus you have all the phytochemicals from in the plants that can actually are anti carcinogenic.
+- **[13:21](https://www.youtube.com/watch?v=7yszU0-Molc&t=801s)** — So you can use herbs and all this detail we're going to put in this document that you'll be able to download.
+- **[13:27](https://www.youtube.com/watch?v=7yszU0-Molc&t=807s)** — But you can have herbs definitely have sea salt. There's there's going to be a supplement protocol that we're going to recommend.
+- **[13:33](https://www.youtube.com/watch?v=7yszU0-Molc&t=813s)** — We don't sell any of those supplements, just so you know, but these are going to do a certain thing.
+- **[13:38](https://www.youtube.com/watch?v=7yszU0-Molc&t=818s)** — But as far as the foods go, it's going to be basically vegetable and extra virgin olive oil and herbs.
+- **[13:44](https://www.youtube.com/watch?v=7yszU0-Molc&t=824s)** — You can do teas and you can make that in the soup. But that's it. That's it.
+- **[13:49](https://www.youtube.com/watch?v=7yszU0-Molc&t=829s)** — We're not recommending a lot of protein or any protein or other types of fats because what we want to do is we want to create a hormonal shift to really make sure that this
+- **[14:01](https://www.youtube.com/watch?v=7yszU0-Molc&t=841s)** — will leverage the fuel for this cancer to the point where it just doesn't have anything to live on and it can shrink and go away.
+- **[14:09](https://www.youtube.com/watch?v=7yszU0-Molc&t=849s)** — And you do that for five days. Now, let's say you're going to do chemo and usually do it for every third week.
+- **[14:17](https://www.youtube.com/watch?v=7yszU0-Molc&t=857s)** — So you would do this program every three weeks right before the chemo and through the chemo and right after because you're going to find that if you do this,
+- **[14:26](https://www.youtube.com/watch?v=7yszU0-Molc&t=866s)** — there's going to be a lot less complications and symptoms with your chemo.
+- **[14:31](https://www.youtube.com/watch?v=7yszU0-Molc&t=871s)** — But let's say you're not going to do chemo, then you would do this once a month.
+- **[14:36](https://www.youtube.com/watch?v=7yszU0-Molc&t=876s)** — And we'll also explain what to do on the other days. You want to eat clean and you want to get enough protein and other nutrition.
+- **[14:45](https://www.youtube.com/watch?v=7yszU0-Molc&t=885s)** — So you're basically doing a decent, prolonged fast once a month or once every three weeks.
+- **[14:53](https://www.youtube.com/watch?v=7yszU0-Molc&t=893s)** — Now, the more severe the cancer, the more frequent you should do this.
+- **[15:00](https://www.youtube.com/watch?v=7yszU0-Molc&t=900s)** — And if you can fast, you should probably fast and do exactly what Guy's doing. In fact, I mean, it's been six years.
+- **[15:09](https://www.youtube.com/watch?v=7yszU0-Molc&t=909s)** — And as soon as Guy found out that his cancer was no longer there, do you think he just stopped this protocol?
+- **[15:15](https://www.youtube.com/watch?v=7yszU0-Molc&t=915s)** — No, he's even do it right now. He started another 21 day fast.
+- **[15:25](https://www.youtube.com/watch?v=7yszU0-Molc&t=925s)** — So in other words, we can learn a lot about people that are successful.
+- **[15:30](https://www.youtube.com/watch?v=7yszU0-Molc&t=930s)** — And that's what we want to do is let other people learn from other people, right? Especially the ones that are successful.
+- **[15:36](https://www.youtube.com/watch?v=7yszU0-Molc&t=936s)** — And I have friends that have cancer that are going different directions.
+- **[15:42](https://www.youtube.com/watch?v=7yszU0-Molc&t=942s)** — And, you know, it's the bottom line is I always like to follow people that are successful and that are doing it.
+- **[15:50](https://www.youtube.com/watch?v=7yszU0-Molc&t=950s)** — And this guy here, he's still alive. He should have been dead six years ago.
+- **[15:54](https://www.youtube.com/watch?v=7yszU0-Molc&t=954s)** — So it's quite miraculous. So there's a lot of people looking at him closely under a magnifying glass to see what he's doing.
+- **[16:01](https://www.youtube.com/watch?v=7yszU0-Molc&t=961s)** — But fasting is important. If you can't do the fasting, do the fasting mimicking program.
+- **[16:05](https://www.youtube.com/watch?v=7yszU0-Molc&t=965s)** — Okay, so once a month, five days. And then the other days, if you could do OMAD one meal a day, that would be great.
+- **[16:16](https://www.youtube.com/watch?v=7yszU0-Molc&t=976s)** — But you're going to have to get all your calories and your nutrition.
+- **[16:19](https://www.youtube.com/watch?v=7yszU0-Molc&t=979s)** — And we do, of course, there's several key foods that are going to be important, like sardines, right?
+- **[16:28](https://www.youtube.com/watch?v=7yszU0-Molc&t=988s)** — Cruciferous. Cruciferous vegetables, a lot of garlic, things like that.
+- **[16:34](https://www.youtube.com/watch?v=7yszU0-Molc&t=994s)** — Green tea. Green tea. So let's go into the next part of this right here.
+- **[16:39](https://www.youtube.com/watch?v=7yszU0-Molc&t=999s)** — What kind of protocol? Well, based on the research that we did, led by Maurice Israel,
+- **[16:47](https://www.youtube.com/watch?v=7yszU0-Molc&t=1007s)** — you know, there's been a longstanding series of investigations into this. And just to keep it really simple.
+- **[16:57](https://www.youtube.com/watch?v=7yszU0-Molc&t=1017s)** — The theory that cancer can survive on ketones. Okay, so we're going to talk about that for a second.
+- **[17:02](https://www.youtube.com/watch?v=7yszU0-Molc&t=1022s)** — Some people will disagree with it. Some people will agree with it.
+- **[17:06](https://www.youtube.com/watch?v=7yszU0-Molc&t=1026s)** — But what we did is we did a mice study, put them on a protocol, a natural protocol,
+- **[17:12](https://www.youtube.com/watch?v=7yszU0-Molc&t=1032s)** — to block a certain enzyme that would starve the cancer from getting ketones. Okay?
+- **[17:22](https://www.youtube.com/watch?v=7yszU0-Molc&t=1042s)** — And this enzyme is called SCOT. I'm not going to give you the long name of it because you don't know it.
+- **[17:26](https://www.youtube.com/watch?v=7yszU0-Molc&t=1046s)** — But SCOT is an enzyme that allows this cancer cell to get ketones.
+- **[17:33](https://www.youtube.com/watch?v=7yszU0-Molc&t=1053s)** — So there's been a lot of experiments to figure out what would be the best SCOT inhibitors.
+- **[17:38](https://www.youtube.com/watch?v=7yszU0-Molc&t=1058s)** — And we wanted to use natural things that you could get that don't have toxic effects.
+- **[17:44](https://www.youtube.com/watch?v=7yszU0-Molc&t=1064s)** — And the research that we did showed a remarkable, significant improvement.
+- **[17:48](https://www.youtube.com/watch?v=7yszU0-Molc&t=1068s)** — And you can read up for yourself on what happened. But this was on animals, wasn't on humans.
+- **[17:55](https://www.youtube.com/watch?v=7yszU0-Molc&t=1075s)** — Okay? But still, I mean, it's very interesting to look at. And it's a starting point.
+- **[18:01](https://www.youtube.com/watch?v=7yszU0-Molc&t=1081s)** — So this SCOT inhibitor protocol, it uses about, I would say, seven or eight different natural remedies.
+- **[18:13](https://www.youtube.com/watch?v=7yszU0-Molc&t=1093s)** — And instead of going through each one and telling you the dosage,
+- **[18:16](https://www.youtube.com/watch?v=7yszU0-Molc&t=1096s)** — we're just going to have all that in writing for you so you can just look it up and take it.
+- **[18:21](https://www.youtube.com/watch?v=7yszU0-Molc&t=1101s)** — But some of these remedies addresses the SCOT inhibitor directly.
+- **[18:27](https://www.youtube.com/watch?v=7yszU0-Molc&t=1107s)** — Some handle various aspects of this, like one blocks glutamine.
+- **[18:34](https://www.youtube.com/watch?v=7yszU0-Molc&t=1114s)** — It's kind of a natural down inhibitor. And this is what Dr. Seyfried uses in his protocols.
+- **[18:41](https://www.youtube.com/watch?v=7yszU0-Molc&t=1121s)** — So we're using it. It's like a green tea extract.
+- **[18:45](https://www.youtube.com/watch?v=7yszU0-Molc&t=1125s)** — Absolutely. Yeah. So that's a really good protocol.
+- **[18:47](https://www.youtube.com/watch?v=7yszU0-Molc&t=1127s)** — And there's another one, allicin from garlic extract that helps another pathway with cancer.
+- **[18:56](https://www.youtube.com/watch?v=7yszU0-Molc&t=1136s)** — And so in other words, what we think is reasonable is to try a lot of different angles to this all at once,
+- **[19:05](https://www.youtube.com/watch?v=7yszU0-Molc&t=1145s)** — because there's a lot of things that will shrink the tumor.
+- **[19:09](https://www.youtube.com/watch?v=7yszU0-Molc&t=1149s)** — But then how do we really hit it from different angles?
+- **[19:13](https://www.youtube.com/watch?v=7yszU0-Molc&t=1153s)** — Just when you think you got it figured out, there's this other thing that happens that the cancer goes back.
+- **[19:17](https://www.youtube.com/watch?v=7yszU0-Molc&t=1157s)** — So the combination of doing this fasting mimicking program or an actual fast with the SCOT inhibitors with a couple other things,
+- **[19:26](https://www.youtube.com/watch?v=7yszU0-Molc&t=1166s)** — which we'll mention, I think this would be the most reasonable way to address cancer.
+- **[19:31](https://www.youtube.com/watch?v=7yszU0-Molc&t=1171s)** — What I discovered, it's not me, that it's cancer find always a way.
+- **[19:40](https://www.youtube.com/watch?v=7yszU0-Molc&t=1180s)** — When you try to find something to fight cancer and it works the day after or one year after, it doesn't work anymore.
+- **[19:51](https://www.youtube.com/watch?v=7yszU0-Molc&t=1191s)** — So that's why I try to find a way to avoid relapse.
+- **[20:00](https://www.youtube.com/watch?v=7yszU0-Molc&t=1200s)** — And I know that ketones saved me the first time.
+- **[20:07](https://www.youtube.com/watch?v=7yszU0-Molc&t=1207s)** — We had a friend, his name was Fred, and he developed cancer.
+- **[20:14](https://www.youtube.com/watch?v=7yszU0-Molc&t=1214s)** — He cured his cancer, but he has relapsed.
+- **[20:20](https://www.youtube.com/watch?v=7yszU0-Molc&t=1220s)** — And one year after, he died.
+- **[20:24](https://www.youtube.com/watch?v=7yszU0-Molc&t=1224s)** — So it's very disturbing for me.
+- **[20:28](https://www.youtube.com/watch?v=7yszU0-Molc&t=1228s)** — And I said, because I did the same thing than you, than him.
+- **[20:33](https://www.youtube.com/watch?v=7yszU0-Molc&t=1233s)** — So I started searching another way to cure cancer in case if the cancer tried another way.
+- **[20:48](https://www.youtube.com/watch?v=7yszU0-Molc&t=1248s)** — If the cancer finds a way to eat ketones, what I have to do to avoid that?
+- **[20:56](https://www.youtube.com/watch?v=7yszU0-Molc&t=1256s)** — So we searched, we studied the result of a lot of people who explained to me.
+- **[21:08](https://www.youtube.com/watch?v=7yszU0-Molc&t=1268s)** — We spoke with me, they called me, they asked me.
+- **[21:14](https://www.youtube.com/watch?v=7yszU0-Molc&t=1274s)** — And we discovered that perhaps there is another way to cure cancer.
+- **[21:23](https://www.youtube.com/watch?v=7yszU0-Molc&t=1283s)** — We know that there are a lot of things who give cancer.
+- **[21:28](https://www.youtube.com/watch?v=7yszU0-Molc&t=1288s)** — And we are sure that there are a lot of things that can cure cancer.
+- **[21:35](https://www.youtube.com/watch?v=7yszU0-Molc&t=1295s)** — And the things to have a lot of protocols, different protocols, in case if one is not working, it's very important.
+- **[21:47](https://www.youtube.com/watch?v=7yszU0-Molc&t=1307s)** — But if we don't search before, it's too late.
+- **[21:53](https://www.youtube.com/watch?v=7yszU0-Molc&t=1313s)** — So what I try to do is to have ideas to what I have to do if today what was working before doesn't work anymore.
+- **[22:08](https://www.youtube.com/watch?v=7yszU0-Molc&t=1328s)** — Exactly. And then just to piggyback on that, there are several things that are very important to avoid when you have cancer.
+- **[22:20](https://www.youtube.com/watch?v=7yszU0-Molc&t=1340s)** — Number one is iron. Make sure you're not taking iron in any supplements.
+- **[22:24](https://www.youtube.com/watch?v=7yszU0-Molc&t=1344s)** — Iron can feed the cancer. If cancer likes to eat iron, they use it.
+- **[22:30](https://www.youtube.com/watch?v=7yszU0-Molc&t=1350s)** — Calcium. Don't take any calcium supplements when you have cancer. That's another one that is not recommended.
+- **[22:36](https://www.youtube.com/watch?v=7yszU0-Molc&t=1356s)** — In fact, probably not have any dairy. Dairy is more anabolic, so it tends to make things grow.
+- **[22:43](https://www.youtube.com/watch?v=7yszU0-Molc&t=1363s)** — So avoid the dairy. As far as taking vitamin D, I think that would be super important because vitamin D feeds the immune system.
+- **[22:53](https://www.youtube.com/watch?v=7yszU0-Molc&t=1373s)** — So we want to keep your immune system really, really strong. There's so many different types of cancer that are linked to a vitamin D deficiency as far as triggering or lowering your immune system or adding more risk.
+- **[23:08](https://www.youtube.com/watch?v=7yszU0-Molc&t=1388s)** — I mean, you take a lot of cancer patients. They nearly always have low vitamin D levels.
+- **[23:14](https://www.youtube.com/watch?v=7yszU0-Molc&t=1394s)** — As far as exercise goes, it would probably be good to do walking but not do high type intense exercise when you're doing either a long prolonged fasting, unless you're really healthy.
+- **[23:28](https://www.youtube.com/watch?v=7yszU0-Molc&t=1408s)** — Or if you're doing...
+- **[23:30](https://www.youtube.com/watch?v=7yszU0-Molc&t=1410s)** — Not too lazy.
+- **[23:31](https://www.youtube.com/watch?v=7yszU0-Molc&t=1411s)** — Right. But long walks are going to be good in the sun, getting sun, getting... you'll get melatonin from the infrared.
+- **[23:43](https://www.youtube.com/watch?v=7yszU0-Molc&t=1423s)** — I would like to precise something very important for me.
+- **[24:00](https://www.youtube.com/watch?v=7yszU0-Molc&t=1440s)** — Thomas Seyfried, Professor Thomas Seyfried, helped me a lot. He explained me a lot of things and he helped me to save my life.
+- **[24:10](https://www.youtube.com/watch?v=7yszU0-Molc&t=1450s)** — And what I try to do today, it's not to say I'm a better biologist than Thomas Seyfried.
+- **[24:24](https://www.youtube.com/watch?v=7yszU0-Molc&t=1464s)** — I have no knowledge at all.
+- **[24:28](https://www.youtube.com/watch?v=7yszU0-Molc&t=1468s)** — But I think if my cancer comes back, what I have to do to save my life. If the cancer finds a way to eat my ketones, what I have to do. It's only this. It's only this. And I need to be prepared.
+- **[24:52](https://www.youtube.com/watch?v=7yszU0-Molc&t=1492s)** — Exactly. And on that note, we're going to put a link down below of where you can get the summary of what we talked about.
+- **[24:59](https://www.youtube.com/watch?v=7yszU0-Molc&t=1499s)** — So if you want to just study the information and share it, but I at least want to put this on your radar that...
+- **[25:05](https://www.youtube.com/watch?v=7yszU0-Molc&t=1505s)** — I don't know, if I had cancer, I would want to know this data. There's a lot of very interesting things that we're in the middle of right now with doing more research.
+- **[25:15](https://www.youtube.com/watch?v=7yszU0-Molc&t=1515s)** — But we're not going to get into them quite yet. We're going to wait till we get that done.
+- **[25:20](https://www.youtube.com/watch?v=7yszU0-Molc&t=1520s)** — But anyway, I want to thank you for being on Guy. And thank you for watching this long. We'll put the link down below and stay tuned for more information on this topic.
+- **[25:31](https://www.youtube.com/watch?v=7yszU0-Molc&t=1531s)** — Thank you, Dr. Berg. I'm sure we will continue to fight to find the best solution against cancer.
+- **[25:39](https://www.youtube.com/watch?v=7yszU0-Molc&t=1539s)** — Great.

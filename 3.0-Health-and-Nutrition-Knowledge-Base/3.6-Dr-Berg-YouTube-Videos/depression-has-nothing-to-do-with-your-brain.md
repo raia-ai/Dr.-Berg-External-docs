@@ -1,0 +1,134 @@
+# Depression Has NOTHING to Do With Your Brain
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=iJgti1K5A9g](https://www.youtube.com/watch?v=iJgti1K5A9g)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=iJgti1K5A9g&t=0s)** — Depression has absolutely nothing to do with your brain.
+- **[00:04](https://www.youtube.com/watch?v=iJgti1K5A9g&t=4s)** — It has everything to do with your gut.
+- **[00:07](https://www.youtube.com/watch?v=iJgti1K5A9g&t=7s)** — So many people have been operating off of this idea.
+- **[00:10](https://www.youtube.com/watch?v=iJgti1K5A9g&t=10s)** — Depression is a chemical imbalance that you need to fix with SSRIs,
+- **[00:16](https://www.youtube.com/watch?v=iJgti1K5A9g&t=16s)** — selective serotonin reuptake inhibitors.
+- **[00:19](https://www.youtube.com/watch?v=iJgti1K5A9g&t=19s)** — Well, this chemical imbalance theory has never been proven.
+- **[00:23](https://www.youtube.com/watch?v=iJgti1K5A9g&t=23s)** — In fact, in some studies, it shows that people that are depressed
+- **[00:27](https://www.youtube.com/watch?v=iJgti1K5A9g&t=27s)** — have normal serotonin or even higher amounts of serotonin.
+- **[00:32](https://www.youtube.com/watch?v=iJgti1K5A9g&t=32s)** — In your nervous system, you have all these different hormonal-like communications.
+- **[00:37](https://www.youtube.com/watch?v=iJgti1K5A9g&t=37s)** — One of them is serotonin.
+- **[00:38](https://www.youtube.com/watch?v=iJgti1K5A9g&t=38s)** — And serotonin does have an effect over your mood,
+- **[00:42](https://www.youtube.com/watch?v=iJgti1K5A9g&t=42s)** — just like dopamine has an effect of motivating you.
+- **[00:45](https://www.youtube.com/watch?v=iJgti1K5A9g&t=45s)** — But what an SSRI does is it blocks the uptake of serotonin.
+- **[00:51](https://www.youtube.com/watch?v=iJgti1K5A9g&t=51s)** — Let's say, for example, we have a marriage, right?
+- **[00:53](https://www.youtube.com/watch?v=iJgti1K5A9g&t=53s)** — We have a husband and a wife, and they're communicating.
+- **[00:55](https://www.youtube.com/watch?v=iJgti1K5A9g&t=55s)** — And the husband sends a communication over to the wife, but she's wearing earplugs.
+- **[01:00](https://www.youtube.com/watch?v=iJgti1K5A9g&t=60s)** — That's the SSRI effect, right? You wear earplugs.
+- **[01:03](https://www.youtube.com/watch?v=iJgti1K5A9g&t=63s)** — And so then the husband starts shouting.
+- **[01:05](https://www.youtube.com/watch?v=iJgti1K5A9g&t=65s)** — Is that going to fix the marriage? No.
+- **[01:07](https://www.youtube.com/watch?v=iJgti1K5A9g&t=67s)** — Dr. Peter Gosch wrote several books on this topic,
+- **[01:11](https://www.youtube.com/watch?v=iJgti1K5A9g&t=71s)** — and he basically said SSRIs are basically placebos.
+- **[01:16](https://www.youtube.com/watch?v=iJgti1K5A9g&t=76s)** — Hey, well, you know what? At least they're getting some benefit, right?
+- **[01:18](https://www.youtube.com/watch?v=iJgti1K5A9g&t=78s)** — Yeah, but what about the side effects?
+- **[01:20](https://www.youtube.com/watch?v=iJgti1K5A9g&t=80s)** — Because in his book, he talks about the massive serious side effects of SSRIs.
+- **[01:25](https://www.youtube.com/watch?v=iJgti1K5A9g&t=85s)** — Sexual dysfunction, no orgasm, decreased libido.
+- **[01:29](https://www.youtube.com/watch?v=iJgti1K5A9g&t=89s)** — You don't experience emotion anymore, worsening of the depression.
+- **[01:33](https://www.youtube.com/watch?v=iJgti1K5A9g&t=93s)** — Let's just compare that with something like St. John's Wort.
+- **[01:35](https://www.youtube.com/watch?v=iJgti1K5A9g&t=95s)** — St. John's Wort doesn't just deal with serotonin.
+- **[01:38](https://www.youtube.com/watch?v=iJgti1K5A9g&t=98s)** — It deals with dopamine. It's an anti-inflammatory.
+- **[01:41](https://www.youtube.com/watch?v=iJgti1K5A9g&t=101s)** — It even reduces cortisol.
+- **[01:43](https://www.youtube.com/watch?v=iJgti1K5A9g&t=103s)** — And what does the medical profession say about St. John's Wort?
+- **[01:45](https://www.youtube.com/watch?v=iJgti1K5A9g&t=105s)** — They say, well, you have to be careful not to take it,
+- **[01:47](https://www.youtube.com/watch?v=iJgti1K5A9g&t=107s)** — because if you're taking that and a psych drug,
+- **[01:50](https://www.youtube.com/watch?v=iJgti1K5A9g&t=110s)** — and you might increase serotonin, St. John's Wort has very little side effects.
+- **[01:54](https://www.youtube.com/watch?v=iJgti1K5A9g&t=114s)** — And it actually works better than the placebo,
+- **[01:57](https://www.youtube.com/watch?v=iJgti1K5A9g&t=117s)** — because it's a natural thing and it does a lot of different things.
+- **[02:00](https://www.youtube.com/watch?v=iJgti1K5A9g&t=120s)** — And there's some interesting things about Prozac.
+- **[02:02](https://www.youtube.com/watch?v=iJgti1K5A9g&t=122s)** — Prozac is an SSRI.
+- **[02:04](https://www.youtube.com/watch?v=iJgti1K5A9g&t=124s)** — When Prozac came on the market in 1988,
+- **[02:07](https://www.youtube.com/watch?v=iJgti1K5A9g&t=127s)** — a couple years later, in 1990,
+- **[02:09](https://www.youtube.com/watch?v=iJgti1K5A9g&t=129s)** — there was a outbreak of some serious side effects
+- **[02:13](https://www.youtube.com/watch?v=iJgti1K5A9g&t=133s)** — where they had a bad batch of tryptophan.
+- **[02:16](https://www.youtube.com/watch?v=iJgti1K5A9g&t=136s)** — So the FDA decided to ban tryptophan for quite some time.
+- **[02:22](https://www.youtube.com/watch?v=iJgti1K5A9g&t=142s)** — They lifted the band of tryptophan
+- **[02:24](https://www.youtube.com/watch?v=iJgti1K5A9g&t=144s)** — right after the patents for Prozac ran out.
+- **[02:27](https://www.youtube.com/watch?v=iJgti1K5A9g&t=147s)** — Let's shift gears to our gut.
+- **[02:30](https://www.youtube.com/watch?v=iJgti1K5A9g&t=150s)** — Your gut makes serotonin.
+- **[02:32](https://www.youtube.com/watch?v=iJgti1K5A9g&t=152s)** — It also makes something called oxytocin,
+- **[02:35](https://www.youtube.com/watch?v=iJgti1K5A9g&t=155s)** — a very powerful hormone that can help people with depression, stress.
+- **[02:40](https://www.youtube.com/watch?v=iJgti1K5A9g&t=160s)** — Typically, people think about oxytocin as the hormone
+- **[02:43](https://www.youtube.com/watch?v=iJgti1K5A9g&t=163s)** — for bonding between a mother and a baby,
+- **[02:45](https://www.youtube.com/watch?v=iJgti1K5A9g&t=165s)** — or when a mother is breastfeeding,
+- **[02:48](https://www.youtube.com/watch?v=iJgti1K5A9g&t=168s)** — Oxytocin is also there to increase contractions during a pregnancy.
+- **[02:52](https://www.youtube.com/watch?v=iJgti1K5A9g&t=172s)** — So it has multiple functions.
+- **[02:53](https://www.youtube.com/watch?v=iJgti1K5A9g&t=173s)** — But just realize that your gut makes oxytocin.
+- **[02:57](https://www.youtube.com/watch?v=iJgti1K5A9g&t=177s)** — And there is a highway between your gut and your brain.
+- **[03:02](https://www.youtube.com/watch?v=iJgti1K5A9g&t=182s)** — It's called the vagus nerve.
+- **[03:03](https://www.youtube.com/watch?v=iJgti1K5A9g&t=183s)** — Communication from your gut to your brain is very, very heavy.
+- **[03:06](https://www.youtube.com/watch?v=iJgti1K5A9g&t=186s)** — It's like 80%.
+- **[03:07](https://www.youtube.com/watch?v=iJgti1K5A9g&t=187s)** — And then we have 20% of information going from your brain down to the gut.
+- **[03:12](https://www.youtube.com/watch?v=iJgti1K5A9g&t=192s)** — So your brain is monitoring what's going on in your gut
+- **[03:15](https://www.youtube.com/watch?v=iJgti1K5A9g&t=195s)** — and then the rest of your heart and other organs as well.
+- **[03:19](https://www.youtube.com/watch?v=iJgti1K5A9g&t=199s)** — That's how your brain monitors the rest of your body through the vagus nerve.
+- **[03:21](https://www.youtube.com/watch?v=iJgti1K5A9g&t=201s)** — And so if your gut microbes are not doing well,
+- **[03:24](https://www.youtube.com/watch?v=iJgti1K5A9g&t=204s)** — this alone can create depression.
+- **[03:27](https://www.youtube.com/watch?v=iJgti1K5A9g&t=207s)** — In fact, when other studies, when you take depressed people
+- **[03:29](https://www.youtube.com/watch?v=iJgti1K5A9g&t=209s)** — and you look at their gut microbiome,
+- **[03:31](https://www.youtube.com/watch?v=iJgti1K5A9g&t=211s)** — there are some serious missing microbes.
+- **[03:34](https://www.youtube.com/watch?v=iJgti1K5A9g&t=214s)** — This area of gut microbiome is completely underappreciated
+- **[03:39](https://www.youtube.com/watch?v=iJgti1K5A9g&t=219s)** — in the area of mental health.
+- **[03:41](https://www.youtube.com/watch?v=iJgti1K5A9g&t=221s)** — Also, if you have gut inflammation,
+- **[03:43](https://www.youtube.com/watch?v=iJgti1K5A9g&t=223s)** — you're not going to feel good mood-wise.
+- **[03:45](https://www.youtube.com/watch?v=iJgti1K5A9g&t=225s)** — This is why what you eat is so vitally important with how you feel up here.
+- **[03:49](https://www.youtube.com/watch?v=iJgti1K5A9g&t=229s)** — And this is all very interesting.
+- **[03:51](https://www.youtube.com/watch?v=iJgti1K5A9g&t=231s)** — But when you also think about antibiotics,
+- **[03:53](https://www.youtube.com/watch?v=iJgti1K5A9g&t=233s)** — one of the big side effects of taking antibiotics is depression.
+- **[03:58](https://www.youtube.com/watch?v=iJgti1K5A9g&t=238s)** — Because you're now erasing the good bacteria
+- **[04:00](https://www.youtube.com/watch?v=iJgti1K5A9g&t=240s)** — that controls your mood chemicals.
+- **[04:03](https://www.youtube.com/watch?v=iJgti1K5A9g&t=243s)** — It wipes them out overnight.
+- **[04:05](https://www.youtube.com/watch?v=iJgti1K5A9g&t=245s)** — And then you think, oh yeah, the microbes will start to grow back.
+- **[04:08](https://www.youtube.com/watch?v=iJgti1K5A9g&t=248s)** — No, a lot of times they don't grow back.
+- **[04:10](https://www.youtube.com/watch?v=iJgti1K5A9g&t=250s)** — So now you have this imbalance and you wonder why you're depressed.
+- **[04:12](https://www.youtube.com/watch?v=iJgti1K5A9g&t=252s)** — In practice, I would ask people, when did you start getting depressed?
+- **[04:16](https://www.youtube.com/watch?v=iJgti1K5A9g&t=256s)** — Did you take an antibiotic right before that?
+- **[04:20](https://www.youtube.com/watch?v=iJgti1K5A9g&t=260s)** — Many times they would say, yes, how did you know?
+- **[04:23](https://www.youtube.com/watch?v=iJgti1K5A9g&t=263s)** — The gut microbiome is a chemical factory.
+- **[04:25](https://www.youtube.com/watch?v=iJgti1K5A9g&t=265s)** — Good chemicals that will send chemicals up through this nerve,
+- **[04:28](https://www.youtube.com/watch?v=iJgti1K5A9g&t=268s)** — goes up to your brain and infects your mood.
+- **[04:30](https://www.youtube.com/watch?v=iJgti1K5A9g&t=270s)** — If you have not seen my other video,
+- **[04:33](https://www.youtube.com/watch?v=iJgti1K5A9g&t=273s)** — I'm going to put a link down below,
+- **[04:33](https://www.youtube.com/watch?v=iJgti1K5A9g&t=273s)** — but I want to tell you a little bit about this amazing microbe.
+- **[04:36](https://www.youtube.com/watch?v=iJgti1K5A9g&t=276s)** — You can buy Elruderi as a microbe in a supplement.
+- **[04:39](https://www.youtube.com/watch?v=iJgti1K5A9g&t=279s)** — But many times it's not in the potency
+- **[04:41](https://www.youtube.com/watch?v=iJgti1K5A9g&t=281s)** — that you really need to create the effect.
+- **[04:43](https://www.youtube.com/watch?v=iJgti1K5A9g&t=283s)** — And Dr. William Davis told me about an amazing way
+- **[04:46](https://www.youtube.com/watch?v=iJgti1K5A9g&t=286s)** — to cultivate this microbe using all to pasteurize half and half.
+- **[04:51](https://www.youtube.com/watch?v=iJgti1K5A9g&t=291s)** — And you basically put it in a yogurt maker and for 36 hours
+- **[04:54](https://www.youtube.com/watch?v=iJgti1K5A9g&t=294s)** — and then you just take a half a cup a day.
+- **[04:56](https://www.youtube.com/watch?v=iJgti1K5A9g&t=296s)** — I've been doing this for months and I want to tell you something.
+- **[04:59](https://www.youtube.com/watch?v=iJgti1K5A9g&t=299s)** — It's a game changer.
+- **[05:00](https://www.youtube.com/watch?v=iJgti1K5A9g&t=300s)** — The first thing that my wife actually noticed
+- **[05:02](https://www.youtube.com/watch?v=iJgti1K5A9g&t=302s)** — is she kept saying, why are you hugging me five times a day?
+- **[05:07](https://www.youtube.com/watch?v=iJgti1K5A9g&t=307s)** — What's gotten into you? I said, I don't know.
+- **[05:09](https://www.youtube.com/watch?v=iJgti1K5A9g&t=309s)** — I just have been consuming this yogurt.
+- **[05:10](https://www.youtube.com/watch?v=iJgti1K5A9g&t=310s)** — It just makes me very social.
+- **[05:13](https://www.youtube.com/watch?v=iJgti1K5A9g&t=313s)** — I don't know. It's really wild.
+- **[05:14](https://www.youtube.com/watch?v=iJgti1K5A9g&t=314s)** — She goes, well, just keep keep taking that yogurt.
+- **[05:16](https://www.youtube.com/watch?v=iJgti1K5A9g&t=316s)** — I noticed my sleep is better.
+- **[05:18](https://www.youtube.com/watch?v=iJgti1K5A9g&t=318s)** — My muscle is better because it increases stem cell for your muscles.
+- **[05:21](https://www.youtube.com/watch?v=iJgti1K5A9g&t=321s)** — It reduces stress.
+- **[05:23](https://www.youtube.com/watch?v=iJgti1K5A9g&t=323s)** — And if you watch my previous videos on this and you read the comments,
+- **[05:26](https://www.youtube.com/watch?v=iJgti1K5A9g&t=326s)** — it'll blow your mind.
+- **[05:27](https://www.youtube.com/watch?v=iJgti1K5A9g&t=327s)** — How many people are just getting amazing results with this probiotic.
+- **[05:33](https://www.youtube.com/watch?v=iJgti1K5A9g&t=333s)** — It acts as a natural antibiotic without any side effects that I could perceive.
+- **[05:38](https://www.youtube.com/watch?v=iJgti1K5A9g&t=338s)** — Another interesting point about L-Rotoroy, where does it come from?
+- **[05:42](https://www.youtube.com/watch?v=iJgti1K5A9g&t=342s)** — Well, it's actually in mother's breast milk.
+- **[05:46](https://www.youtube.com/watch?v=iJgti1K5A9g&t=346s)** — Breastfeeding is not as common as it was years ago.
+- **[05:49](https://www.youtube.com/watch?v=iJgti1K5A9g&t=349s)** — And antibiotics are extremely common.
+- **[05:53](https://www.youtube.com/watch?v=iJgti1K5A9g&t=353s)** — And so these gut microbes are something that we need to put more attention on.
+- **[05:57](https://www.youtube.com/watch?v=iJgti1K5A9g&t=357s)** — So I highly recommend that you cultivate this L-Rotoroy.
+- **[05:59](https://www.youtube.com/watch?v=iJgti1K5A9g&t=359s)** — I will put some information down below of exactly how to do it.
+- **[06:04](https://www.youtube.com/watch?v=iJgti1K5A9g&t=364s)** — And then you're going to realize that your depression really had nothing to do with your brain.
+- **[06:11](https://www.youtube.com/watch?v=iJgti1K5A9g&t=371s)** — It had everything to do with your gut.
+- **[06:14](https://www.youtube.com/watch?v=iJgti1K5A9g&t=374s)** — Thanks for watching.

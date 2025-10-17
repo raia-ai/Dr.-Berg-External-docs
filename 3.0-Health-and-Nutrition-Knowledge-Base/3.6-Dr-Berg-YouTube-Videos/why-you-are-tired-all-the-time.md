@@ -1,0 +1,176 @@
+# Why You Are TIRED All the Time
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=8-OEeg2P9QM](https://www.youtube.com/watch?v=8-OEeg2P9QM)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=0s)** — Today we're going to talk about that... oh my goodness... the deeper source of your fatigue.
+- **[00:07](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=7s)** — Now I will say this, I am an expert in this area simply because I've been tired
+- **[00:11](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=11s)** — a good portion of my life and I overcame it. So I have something very important I want to share.
+- **[00:18](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=18s)** — I remember driving down the street with my wife in my late 20s, being completely exhausted,
+- **[00:22](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=22s)** — trying to find a healthy store to find some vitamin to give me energy. It never worked.
+- **[00:27](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=27s)** — I had tons and tons of vitamins and didn't know what was going on. So if I can teleport
+- **[00:32](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=32s)** — this video back in time and show it to myself, this video would have solved my problem if I
+- **[00:38](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=38s)** — really understood how the body makes energy. And also this is going to be very motivating
+- **[00:42](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=42s)** — to you, especially because you're going to finally understand what really is behind
+- **[00:47](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=47s)** — fatigue in general. Because you can take various vitamins and energy drinks and try
+- **[00:52](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=52s)** — and get more energy and more coffee. But that doesn't fix the real problem.
+- **[00:57](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=57s)** — And if you go to any of these 7-elevens, you'll see right at the front counter,
+- **[01:00](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=60s)** — this huge section, five hour energy drinks. Everything starts with this mitochondria. What
+- **[01:07](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=67s)** — is the mitochondria? It's an energy factory deep inside your cells that produces energy.
+- **[01:12](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=72s)** — If you have any aspects of fatigue, even if you exercise and you run out of gas really fast,
+- **[01:18](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=78s)** — or even if you have many of the different problems, the health problems that most people
+- **[01:21](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=81s)** — have, this mitochondria is at the root of it. In fact, most diseases come directly from
+- **[01:27](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=87s)** — this mitochondria. So what is the mitochondria? It's a battery making machine. Because food
+- **[01:34](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=94s)** — directly can't give you energy. It has to be converted into a chemical form of a battery
+- **[01:40](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=100s)** — so you can use it. And so the energy battery itself is called ATP. So the mitochondria is
+- **[01:47](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=107s)** — actually the battery maker and the ATP is the actual battery. And whether you took
+- **[01:53](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=113s)** — biochemistry or not, this might help you to understand the simplicity of what's going on
+- **[01:59](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=119s)** — with the massive complexity of what's happening inside that mitochondria.
+- **[02:04](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=124s)** — Maybe you have or you haven't heard about this Krebs cycle thing, right? That's actually
+- **[02:09](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=129s)** — the pre battery maker. Okay. So it comes right before the battery maker because the actual
+- **[02:14](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=134s)** — battery maker is connected to it. The Krebs cycle gets everything prepared and ready
+- **[02:18](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=138s)** — and helps strip out some of these electrons. But we have to somehow extract these electrons
+- **[02:25](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=145s)** — from the food that you eat. And since we're on the topic of food, certain foods have more
+- **[02:30](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=150s)** — energy than other foods. And so if you're living on ultra processed foods, it's going to
+- **[02:35](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=155s)** — be almost impossible to extract energy from that simply because it's dead. There's not a lot
+- **[02:40](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=160s)** — energy in there. And on top of that, there's a lot of nutritional factors in food that we need
+- **[02:47](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=167s)** — that the battery maker assembly line requires. In each step of the assembly line, okay, you
+- **[02:53](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=173s)** — need B1, B2, B3, folic acid, B12, magnesium, manganese, selenium, vitamin C, and something
+- **[03:03](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=183s)** — else called coenzyme Q10. So these are the helper molecules that are essential for making
+- **[03:08](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=188s)** — this battery. Now, there's a very, very important enzyme that's involved in making ATP. It's
+- **[03:15](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=195s)** — called ATP synthase. Not that you needed to know that, but what's interesting about this ATP
+- **[03:20](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=200s)** — enzyme is that it's very, very tiny and it's a turbine. It spins. It helps to generate
+- **[03:28](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=208s)** — energy, but it's very, very tiny. Okay, so it would take like 100,000 of these little enzymes
+- **[03:37](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=217s)** — to be the same width as one hair. Okay, so they're that tiny, but they're spinning at
+- **[03:43](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=223s)** — an incredible speed. And every time they rotate one rotation, they produce three
+- **[03:51](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=231s)** — ATP's. And so how fast do they rotate? Well, they're rotating roughly about 7,000 to 9,000
+- **[03:58](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=238s)** — rotations every single minute. So you can imagine how much ATP is generated. I mean,
+- **[04:04](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=244s)** — just one enzyme, you're talking like 27,000 ATP's per minute. Now, if we just look at one cell and
+- **[04:12](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=252s)** — determine how many mitochondria is in that one cell, you're looking at on average between
+- **[04:18](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=258s)** — a thousand to 2,500 mitochondria per cell. And how many cells do you have in your body?
+- **[04:26](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=266s)** — You have 10 trillion cells. Incredible. Now check this out. A healthy person makes a massive
+- **[04:33](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=273s)** — amount of ATP. The actual weight of that ATP would be equivalent to your own weight. So if I
+- **[04:40](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=280s)** — weigh 180 pounds, I make 180 pounds of ATP every single day. That would be equivalent to
+- **[04:49](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=289s)** — 1200 watts, which comes out to about 282 AA batteries. Now that might not seem like a
+- **[04:56](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=296s)** — lot of wattage, but your body is very efficient at using this energy. But the
+- **[05:01](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=301s)** — fascinating thing about this ATP is it's not really stored. It's generated on demand. So
+- **[05:08](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=308s)** — if you're not really exercising or moving, you're not going to generate nearly as much as if you
+- **[05:13](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=313s)** — were exercising. The point is that this ATP doesn't really get stored. Now when it's used,
+- **[05:19](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=319s)** — okay, it turns into ADP, which then can be recycled back to ATP. And ADP does get stored,
+- **[05:28](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=328s)** — but ADP gets recycled about a thousand times a day into ATP. And so at any given time during
+- **[05:36](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=336s)** — the day, you have really only a quarter of a kilogram of ATP. That's not that much. But as
+- **[05:44](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=344s)** — soon as you start exercising, that ATP generation goes way, way, way up. Now the next question is
+- **[05:50](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=350s)** — if we don't store ATP, what energy do we store? Well, there's two fuel sources. You have
+- **[05:57](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=357s)** — sugar stored as glycogen in your muscle and your liver, which it's not really that much. It's
+- **[06:03](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=363s)** — probably have 1700 calories worth of stored glycogen. And as soon as you deplete it,
+- **[06:09](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=369s)** — your body is going to require more sugar or glycogen if you're dependent on that sugar.
+- **[06:14](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=374s)** — But you also store energy as fat. And once your fat adapted, you can tap into this fat
+- **[06:21](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=381s)** — a lot easier because you've grooved into this ketosis by lowering your carbohydrates,
+- **[06:26](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=386s)** — and you become very efficient at burning fat. And then you can very easily use that fat as
+- **[06:31](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=391s)** — energy and have that go through this Krebs cycle. But if you're not fat adapted,
+- **[06:36](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=396s)** — you're going to run out of energy pretty quick because you haven't adapted to the fat fuel.
+- **[06:40](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=400s)** — You're just going to run out of energy. And so this is why the ketogenic diet is so important
+- **[06:44](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=404s)** — for your energy. First of all, you get more ATP from ketones and fat, then you do
+- **[06:49](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=409s)** — glycogen or sugar. And secondly, you have a lot of fat reserved to tap into. I mean,
+- **[06:54](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=414s)** — average person who's not overweight has about 100,000 calories of fat on their body compared
+- **[07:00](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=420s)** — to the glycogen storage, which is only like 1700, enough for one day. So with my problem,
+- **[07:07](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=427s)** — way back when I was in my late 20s, I would consume pure carbohydrates. Okay. And my energy
+- **[07:14](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=434s)** — would come up when I would eat and then it would come crashing down because I ran out of
+- **[07:18](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=438s)** — energy and I required more sugar or more carbs to get my energy. I was completely
+- **[07:23](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=443s)** — dependent on carbs. I didn't know about ketosis back then, but I was always tired, especially
+- **[07:29](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=449s)** — in my head. Even when I would wake up in the morning, I would be so tired and I couldn't wake
+- **[07:37](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=457s)** — up like mentally until later in the morning or even the midday. So what's significant about
+- **[07:44](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=464s)** — that is that 70% of all your ATP is used by your brain. Your brain hogs a lot of this ATP.
+- **[07:52](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=472s)** — So if there's not enough of this ATP to go around for various reasons, your brain's going
+- **[07:58](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=478s)** — to suffer. And this is why we have so many problems with dementia, ADD, brain degenerative
+- **[08:05](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=485s)** — disorders, mood disorders. I mean, try to be depressed when you have a lot of energy
+- **[08:11](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=491s)** — available with your mitochondria. It's virtually impossible. If you reflect back on the times
+- **[08:17](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=497s)** — that you were depressed, chances are you were also tired at the same time. So the first clue
+- **[08:21](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=501s)** — about getting energy is to get on the ketogenic diet. So then you can supply your body with a
+- **[08:26](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=506s)** — quick source of fuel, which is more efficient. So you can not only make more ATP, but then so
+- **[08:31](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=511s)** — you can tap into this energy reserve a lot quicker and not be stuck with this machine
+- **[08:38](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=518s)** — that's only dependent on glucose as your fuel. It's dependent on cofactors. Yeah, research
+- **[08:44](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=524s)** — now has shown that the primary source of oxidative stress in cells is leakage of oxygen
+- **[08:50](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=530s)** — and these electrons from the mitochondria. And this leakage increases when the key nutrients
+- **[08:57](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=537s)** — or protective molecules are missing, like coenzyme Q10, especially if the person is taking
+- **[09:03](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=543s)** — a statin drug or other drugs that deplete that nutrient. That's a really important nutrient
+- **[09:08](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=548s)** — to help transport electrons. Now it just so happens that that biochemical pathway that
+- **[09:14](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=554s)** — the coenzyme Q10, which is needed to generate energy, is the same pathway that we make cholesterol.
+- **[09:23](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=563s)** — And so the drug statin, which basically inhibits that enzyme, also inhibits coenzyme Q10. And
+- **[09:30](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=570s)** — this is why one of the biggest side effects from people taking statins involves muscle
+- **[09:37](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=577s)** — problems, weak muscles, inflamed muscles, muscle disorders, lack of energy. Because think
+- **[09:43](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=583s)** — just in general, your muscles need energy to function. I mean, this is how we move.
+- **[09:49](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=589s)** — You can't move without muscles. So you'd imagine how much mitochondria is in your muscles and how
+- **[09:55](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=595s)** — much coenzyme Q10 that we need in our muscles. In fact, if you wanted to consume something
+- **[10:00](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=600s)** — with high amounts of coenzyme Q10, you want to eat muscle, like red meat, fish, things like
+- **[10:08](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=608s)** — the food that has the highest amount would be organ meats, liver, and especially heart extract.
+- **[10:15](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=615s)** — You can probably get in supplements, but people don't typically eat heart. But it's something that
+- **[10:21](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=621s)** — has a lot of coenzyme Q10. But you have to also realize that your body makes coenzyme Q10.
+- **[10:26](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=626s)** — So it's not just necessarily dependent on the diet. You can make it as well. If you have all
+- **[10:31](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=631s)** — the cofactors that allow it to be generated. And so all those cofactors, especially B
+- **[10:36](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=636s)** — needed to allow coenzyme Q10 to work. So just as a side note, if you're on a statin,
+- **[10:43](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=643s)** — if you're in a beta blocker, if you're on some medication for diabetes, chances are your coenzyme
+- **[10:50](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=650s)** — Q10 is very, very low. So you should start taking that. There's an interesting study that
+- **[10:56](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=656s)** — I will put down below about exercise. They tested like athletes versus people who don't
+- **[11:03](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=663s)** — and they gave them coenzyme Q10. So in both groups, they found significant improvement in
+- **[11:10](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=670s)** — endurance. So you can go longer without being tired. And now you know why. Because that
+- **[11:16](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=676s)** — coenzyme Q10 is necessary in the generation of ATP, as well as acting as an antioxidant to
+- **[11:23](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=683s)** — protect you against all this free radical damage that's created from the exercise.
+- **[11:27](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=687s)** — So one big side effect from statins too is you just run out of gas really quick,
+- **[11:31](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=691s)** — especially if you exert yourself or you exercise. Now, as far as the food that you should be
+- **[11:35](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=695s)** — eating, you want food that contains a lot of electrons and a lot of life and a lot of energy
+- **[11:41](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=701s)** — so you can extract the energy from them. If you're consuming like what the average American
+- **[11:45](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=705s)** — consumes, processed foods, I think it's 83% of all the calories in the grocery store are
+- **[11:51](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=711s)** — ultra processed foods. They don't resemble the actual food. It's going to be literally impossible
+- **[11:56](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=716s)** — to get energy if you're eating those foods. So we want nutrient dense foods with red meat
+- **[12:01](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=721s)** — at the top of the list. I will tell you when I have red meat, I have more energy. It's not
+- **[12:05](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=725s)** — just the iron that helps build up my hemoglobin. There's a lot of other factors in that meat that
+- **[12:11](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=731s)** — give me energy, not just coenzyme Q10, but just a lot of energy generating factors. There's
+- **[12:17](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=737s)** — another interesting study about this. I just found this. I think it's fascinating. I will
+- **[12:21](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=741s)** — put the link down below. But what they did is they wanted to test the nutrition factors
+- **[12:27](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=747s)** — in red meat versus the plant-based meats that they're coming up with now, like the artificial
+- **[12:34](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=754s)** — meats. And so if you look at the nutritional labels on both of them, they look very similar,
+- **[12:39](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=759s)** — right? Look healthy. But what they found is out of 190 biomarkers, they found 171 out of 190
+- **[12:46](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=766s)** — were significantly higher than the plant-based fake meat type food, if you want to call it
+- **[12:53](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=773s)** — the point is that when you eat nutrient dense foods, like truly nutrient dense foods,
+- **[12:58](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=778s)** — there's a lot of things in there that can actually help you get healthy. And instead of trying to
+- **[13:02](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=782s)** — make food just taste good, I would focus on trying to help grow your food that's more
+- **[13:08](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=788s)** — nutrient dense and eat more food that is nutrient dense, because what they're trying
+- **[13:12](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=792s)** — to do with the fake meat now is just to try to mimic the taste of it, the texture of it.
+- **[13:17](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=797s)** — But what about the nutrition? The other really, really, really important thing about
+- **[13:21](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=801s)** — your mitochondria and actually producing more mitochondria is exercise. Hands down,
+- **[13:27](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=807s)** — that is the number one way to produce more mitochondria. This is another reason why you
+- **[13:32](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=812s)** — should consistently exercise on a regular basis. And that's going to override a lot of other
+- **[13:38](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=818s)** — bad things that you might have done in your past. And also if you have any type of
+- **[13:43](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=823s)** — disease or problems currently, this can help counter that. Why? Because a lot of disease comes
+- **[13:51](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=831s)** — from damage to the mitochondria. And if you're exercising and you're making more and combine
+- **[13:57](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=837s)** — that with intermittent fasting, that fasting triggers another thing called autophagy. Autophagy
+- **[14:04](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=844s)** — is recycling old damaged proteins, but also the recycling of the mitochondria. How cool is
+- **[14:10](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=850s)** — that? And then you're creating new mitochondria. This is how you're going to get more energy.
+- **[14:15](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=855s)** — This is the stuff that I wish I knew back in my early 20s. Actually, before that, I wish I
+- **[14:21](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=861s)** — knew this in kindergarten. I would have saved myself a lot of years of fatigue. Now, a couple
+- **[14:26](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=866s)** — other things that can increase your mitochondria. Cold therapy. I do that on a regular basis.
+- **[14:31](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=871s)** — And man, do I feel better after doing it? If you're a little hesitant of doing that,
+- **[14:36](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=876s)** — you can do kind of like a partial cold immersion with a cold shower. The most difficult part
+- **[14:43](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=883s)** — about this is when you submerge around your heart, because your heart is pumping and it's
+- **[14:47](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=887s)** — trying to keep you warm. And it's kind of like the most vulnerable area, but you can always do
+- **[14:53](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=893s)** — half of your body cold and you'll get some benefits from that. There's also phytonutrients
+- **[14:57](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=897s)** — that can increase the reproduction of mitochondria and actually help repair some of the
+- **[15:03](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=903s)** — mitochondria as well. Like sulforaphane in the cruciferous vegetables and the broccoli
+- **[15:07](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=907s)** — microgreens, as well as the radish microgreens. It's a lot of different foods. There actually
+- **[15:12](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=912s)** — are quite a few phytonutrients that when you consume those, they help your mitochondria.
+- **[15:16](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=916s)** — And then on the flip side, it's avoiding certain things too, like avoiding the refined
+- **[15:20](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=920s)** — foods, avoiding the sugar, going on keto, avoiding chronic stress, heavy metals, smoking,
+- **[15:27](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=927s)** — alcohol. These are all the things I wish I would have known back in my 20s. And also this
+- **[15:33](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=933s)** — understanding of what the mitochondria really is. Now because of the censoring and the
+- **[15:37](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=937s)** — suppressing of the algorithms on YouTube, it's becoming more difficult to find my content.
+- **[15:42](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=942s)** — And there's a lot of content that I cannot put on YouTube, unfortunately. So to make sure
+- **[15:47](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=947s)** — you have full access of all my information, go to drberg.com and subscribe to my newsletter
+- **[15:52](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=952s)** — by clicking the link down below in the description. I will see you on the other side.
+- **[15:58](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=958s)** — Now since I touched on this coenzyme Q10 thing,
+- **[16:02](https://www.youtube.com/watch?v=8-OEeg2P9QM&t=962s)** — if you haven't seen this video, check it out. It's pretty interesting.

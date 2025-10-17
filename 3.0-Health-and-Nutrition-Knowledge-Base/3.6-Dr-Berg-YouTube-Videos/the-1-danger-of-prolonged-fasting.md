@@ -1,0 +1,93 @@
+# The #1 Danger of Prolonged Fasting
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=qmzPV2x7Dcg](https://www.youtube.com/watch?v=qmzPV2x7Dcg)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=0s)** — You know, prolonged fasting is so beneficial for your immune system, for getting rid of cancer,
+- **[00:07](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=7s)** — for brain health, for anti-aging. But there's one aspect of prolonged fasting that is
+- **[00:15](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=15s)** — fairly dangerous. Okay, you could potentially die, and I need to make you aware of this.
+- **[00:19](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=19s)** — So it's called re-feeding syndrome. What is that? That's a situation where at the end of
+- **[00:25](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=25s)** — let's say you fasted for four days, you eat too much, too fast, and the wrong foods. Okay,
+- **[00:31](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=31s)** — that could be the problem. But before I get into this, I do want to point out something.
+- **[00:36](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=36s)** — This usually involves someone who has malnutrition, someone who maybe has an
+- **[00:43](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=43s)** — eating disorder, someone who is an alcoholic, someone who maybe has been a diabetic type 1 for
+- **[00:48](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=48s)** — a long period of time, or someone who has been starving, okay, which is different than a prolonged
+- **[00:54](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=54s)** — fast. But if you are following my recommendations, the risks of you having this problem are very,
+- **[00:59](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=59s)** — very low because you're not going into this having malnutrition. I always recommend when
+- **[01:04](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=64s)** — you do fasting, any type of fasting, that you at least, as a bare minimum, take electrolytes,
+- **[01:12](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=72s)** — and number two, B vitamins. Because a lot of studies indicate people who have this syndrome
+- **[01:18](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=78s)** — usually have really poor nutritional reserves. But I don't know your situation. I don't know
+- **[01:26](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=86s)** — how your diet has been in the past. I don't know what you're taking. So this video is
+- **[01:31](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=91s)** — very, very important for everyone who is prolonged fasting. Other than dying, you could
+- **[01:36](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=96s)** — potentially get a coma, seizures, convulsions. But again, these things are rare. So here's
+- **[01:41](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=101s)** — what happens in this situation. You go into a long-term fast, let's say it's three, four,
+- **[01:46](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=106s)** — five days or longer. Now, typically, if you check the blood, the person's going to be fine.
+- **[01:52](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=112s)** — They're not going to have any deficiencies of minerals, electrolytes, or any of these things.
+- **[01:57](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=117s)** — Right? But you have to realize that the great, great majority of certain minerals, like
+- **[02:03](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=123s)** — potassium, magnesium, phosphorus, are inside the cell, not in the blood. So like 95 to
+- **[02:12](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=132s)** — 98% of those minerals are inside the cell. So as you're doing fasting, okay, the body's
+- **[02:20](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=140s)** — going to be releasing all these minerals or electrolytes from the cell into the blood to
+- **[02:26](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=146s)** — keep them at a certain level. That's your body's stable kind of reference point. Always keep
+- **[02:32](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=152s)** — the blood normal, despite pulling nutrients from the cells, from your bone, from your muscles.
+- **[02:39](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=159s)** — So when you get a blood test for these electrolytes or nutrients, you're not actually
+- **[02:45](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=165s)** — testing the inside of your cells, the intracellular. You're checking the
+- **[02:50](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=170s)** — extracellular nutrients, right, in your blood. So you're not going to really know what's
+- **[02:54](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=174s)** — happening inside the cell unless you do an intracellular test. But if you're fasting
+- **[03:00](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=180s)** — for any period of time, a lot of these nutrients don't get stored for a long period
+- **[03:04](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=184s)** — of time. A lot of them aren't fat soluble, okay, they're water soluble. So you may find
+- **[03:09](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=189s)** — in a period of time they can go down pretty fast, especially if when you eat your diet has
+- **[03:15](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=195s)** — been poor in the past or you don't focus on getting nutrient dense foods. Then you decide,
+- **[03:21](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=201s)** — you know what, I hear all these great things about doing a prolonged fast. I'm going to do
+- **[03:24](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=204s)** — a four or five day fast. You do the fast, you don't take your electrolytes, you don't
+- **[03:28](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=208s)** — take your B vitamins. And then it's time to eat, okay. And you just pig out, you start eating
+- **[03:35](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=215s)** — all sorts of things and lots of things like carbohydrates, sugar, whatever. At this point,
+- **[03:41](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=221s)** — you can develop what's called the refeeding syndrome. And what is happening is you're
+- **[03:47](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=227s)** — very quickly raising insulin, not to mention being on that four or five day fast,
+- **[03:53](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=233s)** — your insulin sensitivity has become extremely sensitive. Those receptors are ready to pull in
+- **[04:02](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=242s)** — these nutrients from your blood very quickly. And what happens is you have this rapid shift
+- **[04:08](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=248s)** — of electrolytes, specifically phosphorus. That's the big one, potassium and magnesium,
+- **[04:14](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=254s)** — sometimes calcium, okay. And all of this shifts from the blood to the inside of your
+- **[04:20](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=260s)** — cell to replace what's missing. And you end up with extremely low electrolytes in the blood.
+- **[04:27](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=267s)** — And this is what puts the stress on the heart, okay. And this is what also can increase
+- **[04:32](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=272s)** — edema and swelling because you have this imbalance. You see, when you're fasting,
+- **[04:37](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=277s)** — you have very low insulin, because when you have low insulin, you actually get rid of
+- **[04:42](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=282s)** — a lot of fluid and sodium. And with some people, it could be 11, 20 pounds,
+- **[04:49](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=289s)** — 30 pounds of fluid, okay. That's a lot. But when you start eating, okay, and your insulin starts
+- **[04:55](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=295s)** — going up, you start retaining sodium as well. So this is where you can get some edema as well.
+- **[05:01](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=301s)** — So all of a sudden, you start holding fluid and you're like, what is going on here?
+- **[05:05](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=305s)** — And on top of that, if you're eating a lot of carbs, these carbs are going to be
+- **[05:09](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=309s)** — converted into glycogen. And glycogen needs potassium to store this sugar. So you're going
+- **[05:17](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=317s)** — to use up a lot of this potassium from the food you eat. And not to mention all this shift
+- **[05:21](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=321s)** — from the blood into the cells, you end up with a very low level of potassium. You're also
+- **[05:27](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=327s)** — going to be storing fat as well as protein. And both of those macronutrients need vitamins
+- **[05:34](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=334s)** — and minerals as well. So you deplete those. And you also deplete vitamin B1 in a big way
+- **[05:40](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=340s)** — when you do carbs. The metabolism of carbs requires B1 as the cofactor. And so anytime
+- **[05:47](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=347s)** — you eat carbs, you just deplete your B1 big time. And one of the big symptoms from a B1
+- **[05:53](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=353s)** — deficiency is memory loss. Okay. And that can create confusion. It could create anxiety
+- **[05:58](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=358s)** — and a whole host of other issues that relate from all the way over here from neurological
+- **[06:03](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=363s)** — problems to heart problems. And so that's the simplicity of what the refeeding syndrome is.
+- **[06:09](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=369s)** — So how do we prevent this problem from happening? Well, make sure number one,
+- **[06:13](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=373s)** — when you're eating, you're doing the healthy version of the ketogenic diet. You're doing
+- **[06:18](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=378s)** — nutrient-dense foods. Number two, take electrolytes and the B vitamins as a bare minimum.
+- **[06:24](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=384s)** — While you're fasting, it might also be good to take other things too, like olive oil to
+- **[06:29](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=389s)** — get you fat soluble vitamins, as well as your omega-3 fatty acids. It might be also
+- **[06:34](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=394s)** — good to take vitamin D and vitamin K2, as well as some trace minerals. And that way,
+- **[06:40](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=400s)** — you're not going to have malnutrition. Okay. So it's going to help you. And when you introduce
+- **[06:45](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=405s)** — food, you go slowly. I'm talking about maybe an egg. Okay. And you wait a couple hours
+- **[06:52](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=412s)** — and you eat something else. Maybe you have a little bit of soup. Okay. Wait a couple more
+- **[06:58](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=418s)** — hours and do, I don't know, some sauerkraut. Okay. And then wait a little bit and do a
+- **[07:03](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=423s)** — little bit of nuts. So that first day, you don't want to do more than like half of your
+- **[07:08](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=428s)** — calories. Okay. So let's say you're doing a thousand calories on the first day.
+- **[07:14](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=434s)** — And then you slowly increase food the next several days. Now this all depends on how long
+- **[07:20](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=440s)** — that you fast. If you fasted for a long period of time, let's say you fasted for
+- **[07:24](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=444s)** — 21 days or 30 days. Well, you're going to go even slower than if you fasted for three
+- **[07:29](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=449s)** — or four days. Now just realize that when you're doing intermittent fasting, like say
+- **[07:34](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=454s)** — one meal a day, you don't have to worry about this. Okay. I'm talking about
+- **[07:39](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=459s)** — when you fast for three, four, five days in a row. So now that you know the dangers
+- **[07:44](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=464s)** — and how to prevent this refeeding syndrome, the next thing to really wrap your wits around
+- **[07:50](https://www.youtube.com/watch?v=qmzPV2x7Dcg&t=470s)** — is the benefits of a long fasting. So I put that video up right here. Check it out.

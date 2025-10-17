@@ -1,0 +1,195 @@
+# The Dangers and Benefits of Baking Soda
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=udgEofYO4F4](https://www.youtube.com/watch?v=udgEofYO4F4)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=udgEofYO4F4&t=0s)** — So today we are going to talk about the benefits and the dangers of baking soda,
+- **[00:04](https://www.youtube.com/watch?v=udgEofYO4F4&t=4s)** — which is sodium bicarbonate.
+- **[00:06](https://www.youtube.com/watch?v=udgEofYO4F4&t=6s)** — Now, I don't know if you knew this, but your body actually makes baking soda.
+- **[00:10](https://www.youtube.com/watch?v=udgEofYO4F4&t=10s)** — Okay, it's made by the pancreas and it's triggered by a hormone
+- **[00:16](https://www.youtube.com/watch?v=udgEofYO4F4&t=16s)** — in your small intestine, which gets signaled when the acid comes
+- **[00:19](https://www.youtube.com/watch?v=udgEofYO4F4&t=19s)** — through from the stomach and the stomach, you have this super,
+- **[00:23](https://www.youtube.com/watch?v=udgEofYO4F4&t=23s)** — super acidic mixture between one and three.
+- **[00:26](https://www.youtube.com/watch?v=udgEofYO4F4&t=26s)** — And then it goes into the small intestine, which should go up to like,
+- **[00:29](https://www.youtube.com/watch?v=udgEofYO4F4&t=29s)** — maybe six or seven, sometimes even like 7.5.
+- **[00:34](https://www.youtube.com/watch?v=udgEofYO4F4&t=34s)** — Now, if you know anything about pH's, this is like an extreme difference of pH.
+- **[00:38](https://www.youtube.com/watch?v=udgEofYO4F4&t=38s)** — And so this is very important for several reasons to have these different pH's,
+- **[00:42](https://www.youtube.com/watch?v=udgEofYO4F4&t=42s)** — but the neutralization of that stomach acid is very, very important,
+- **[00:46](https://www.youtube.com/watch?v=udgEofYO4F4&t=46s)** — which I want to mention.
+- **[00:47](https://www.youtube.com/watch?v=udgEofYO4F4&t=47s)** — We don't neutralize the stomach acid, then we get a severe irritation
+- **[00:51](https://www.youtube.com/watch?v=udgEofYO4F4&t=51s)** — and inflammation in our small intestine.
+- **[00:54](https://www.youtube.com/watch?v=udgEofYO4F4&t=54s)** — But it's that baking soda, sodium bicarbonate, that's coming from the pancreas,
+- **[00:57](https://www.youtube.com/watch?v=udgEofYO4F4&t=57s)** — it's going to help neutralize this acid.
+- **[01:00](https://www.youtube.com/watch?v=udgEofYO4F4&t=60s)** — Now, why is this so important?
+- **[01:02](https://www.youtube.com/watch?v=udgEofYO4F4&t=62s)** — Well, because the majority of the enzymes that are needed for digestion
+- **[01:07](https://www.youtube.com/watch?v=udgEofYO4F4&t=67s)** — are activated.
+- **[01:09](https://www.youtube.com/watch?v=udgEofYO4F4&t=69s)** — They get turned on by a much higher pH.
+- **[01:14](https://www.youtube.com/watch?v=udgEofYO4F4&t=74s)** — I mean, if you think about it, if you just look at the stomach,
+- **[01:16](https://www.youtube.com/watch?v=udgEofYO4F4&t=76s)** — pepsin, that's a very powerful protein enzyme,
+- **[01:20](https://www.youtube.com/watch?v=udgEofYO4F4&t=80s)** — and that's activated by a pH between like one to 1.5.
+- **[01:26](https://www.youtube.com/watch?v=udgEofYO4F4&t=86s)** — So with that enzyme, you need a very strong stomach acid.
+- **[01:29](https://www.youtube.com/watch?v=udgEofYO4F4&t=89s)** — But with the other enzymes, right in your small intestine,
+- **[01:33](https://www.youtube.com/watch?v=udgEofYO4F4&t=93s)** — coming out from the pancreas,
+- **[01:34](https://www.youtube.com/watch?v=udgEofYO4F4&t=94s)** — you need a much higher, more alkaline pH for those enzymes to work.
+- **[01:39](https://www.youtube.com/watch?v=udgEofYO4F4&t=99s)** — Like trypsin, for example, which is a very important enzyme,
+- **[01:42](https://www.youtube.com/watch?v=udgEofYO4F4&t=102s)** — with a pH of 7.5 to 8.
+- **[01:45](https://www.youtube.com/watch?v=udgEofYO4F4&t=105s)** — And so this means that if you don't have the bicarbonates to kind of
+- **[01:49](https://www.youtube.com/watch?v=udgEofYO4F4&t=109s)** — buffer this pH, and we still have too much acidity coming down in the small
+- **[01:53](https://www.youtube.com/watch?v=udgEofYO4F4&t=113s)** — intestine, that enzyme trypsin cannot work. It's useless.
+- **[01:57](https://www.youtube.com/watch?v=udgEofYO4F4&t=117s)** — Even lipase, the lipid enzyme that comes from the pancreas,
+- **[02:03](https://www.youtube.com/watch?v=udgEofYO4F4&t=123s)** — needs a pH of 8.
+- **[02:05](https://www.youtube.com/watch?v=udgEofYO4F4&t=125s)** — And so I hope you can now see that the vital importance of having the
+- **[02:07](https://www.youtube.com/watch?v=udgEofYO4F4&t=127s)** — right pHs in the right place are essential for digestion,
+- **[02:12](https://www.youtube.com/watch?v=udgEofYO4F4&t=132s)** — especially when you talk about enzymes.
+- **[02:14](https://www.youtube.com/watch?v=udgEofYO4F4&t=134s)** — And this is why you can't really say that, oh yeah,
+- **[02:17](https://www.youtube.com/watch?v=udgEofYO4F4&t=137s)** — the body is alkaline or the body is to acid.
+- **[02:19](https://www.youtube.com/watch?v=udgEofYO4F4&t=139s)** — It's a combination of a lot of different pHs.
+- **[02:22](https://www.youtube.com/watch?v=udgEofYO4F4&t=142s)** — And so you need to understand this if you're going to try to alkalize the
+- **[02:25](https://www.youtube.com/watch?v=udgEofYO4F4&t=145s)** — body or even acidify the body.
+- **[02:28](https://www.youtube.com/watch?v=udgEofYO4F4&t=148s)** — Because as soon as you start to alkalize the body,
+- **[02:30](https://www.youtube.com/watch?v=udgEofYO4F4&t=150s)** — like with some remedy, like even baking soda,
+- **[02:32](https://www.youtube.com/watch?v=udgEofYO4F4&t=152s)** — it has to go through the stomach to get to different places.
+- **[02:36](https://www.youtube.com/watch?v=udgEofYO4F4&t=156s)** — Now bicarbonate is not just produced by your pancreas.
+- **[02:41](https://www.youtube.com/watch?v=udgEofYO4F4&t=161s)** — It's also produced by the little tubes that connect
+- **[02:47](https://www.youtube.com/watch?v=udgEofYO4F4&t=167s)** — in between the liver and the gallbladder.
+- **[02:49](https://www.youtube.com/watch?v=udgEofYO4F4&t=169s)** — The bile ducts actually secrete bicarbonate as well, which is interesting.
+- **[02:54](https://www.youtube.com/watch?v=udgEofYO4F4&t=174s)** — Let's say, for example,
+- **[02:55](https://www.youtube.com/watch?v=udgEofYO4F4&t=175s)** — you have a problem with your pancreas that you're not able to produce
+- **[02:58](https://www.youtube.com/watch?v=udgEofYO4F4&t=178s)** — enough enzymes, which is not very common because there's a huge reserve in
+- **[03:03](https://www.youtube.com/watch?v=udgEofYO4F4&t=183s)** — your pancreas for these enzymes, but it definitely occurs.
+- **[03:06](https://www.youtube.com/watch?v=udgEofYO4F4&t=186s)** — And if you have a deficiency, the treatment is taking enzymes,
+- **[03:11](https://www.youtube.com/watch?v=udgEofYO4F4&t=191s)** — but they rarely, if ever include bicarbonate with that.
+- **[03:16](https://www.youtube.com/watch?v=udgEofYO4F4&t=196s)** — So here you are taking these enzymes,
+- **[03:18](https://www.youtube.com/watch?v=udgEofYO4F4&t=198s)** — but what is going to activate it?
+- **[03:20](https://www.youtube.com/watch?v=udgEofYO4F4&t=200s)** — If you don't have the right pH, alkaline in your small intestine,
+- **[03:24](https://www.youtube.com/watch?v=udgEofYO4F4&t=204s)** — because the pancreas, for example, is too exhausted to release these
+- **[03:27](https://www.youtube.com/watch?v=udgEofYO4F4&t=207s)** — bicarbonates, then what's going to activate them?
+- **[03:31](https://www.youtube.com/watch?v=udgEofYO4F4&t=211s)** — So in other words, if you're going to take enzymes,
+- **[03:33](https://www.youtube.com/watch?v=udgEofYO4F4&t=213s)** — I would also recommend you take some baking soda with that
+- **[03:37](https://www.youtube.com/watch?v=udgEofYO4F4&t=217s)** — to help them get activated.
+- **[03:39](https://www.youtube.com/watch?v=udgEofYO4F4&t=219s)** — So from one aspect, baking soda might help your digestion
+- **[03:43](https://www.youtube.com/watch?v=udgEofYO4F4&t=223s)** — from just activating certain enzymes.
+- **[03:45](https://www.youtube.com/watch?v=udgEofYO4F4&t=225s)** — Now, on another hand, baking soda may be helpful in certain
+- **[03:49](https://www.youtube.com/watch?v=udgEofYO4F4&t=229s)** — situations with acid reflux or heartburn.
+- **[03:53](https://www.youtube.com/watch?v=udgEofYO4F4&t=233s)** — If you don't take it very often and you don't take it for a long period
+- **[03:56](https://www.youtube.com/watch?v=udgEofYO4F4&t=236s)** — of time, because if you're going to take it for weeks and months,
+- **[04:00](https://www.youtube.com/watch?v=udgEofYO4F4&t=240s)** — you're going to actually create other problems because usually the underlying
+- **[04:04](https://www.youtube.com/watch?v=udgEofYO4F4&t=244s)** — cause of heartburn or acid reflux is a lack of acid, not too much acid.
+- **[04:11](https://www.youtube.com/watch?v=udgEofYO4F4&t=251s)** — And so this is why some of the side effects of chronic consumption of
+- **[04:14](https://www.youtube.com/watch?v=udgEofYO4F4&t=254s)** — baking soda can create bloating, gas, and even something called acid
+- **[04:19](https://www.youtube.com/watch?v=udgEofYO4F4&t=259s)** — rebound, where your body now is going to make more acid to compensate.
+- **[04:24](https://www.youtube.com/watch?v=udgEofYO4F4&t=264s)** — So if you wanted to take it short-term here and there for some
+- **[04:28](https://www.youtube.com/watch?v=udgEofYO4F4&t=268s)** — acid reflux, that's fine.
+- **[04:30](https://www.youtube.com/watch?v=udgEofYO4F4&t=270s)** — As long as you're also focused on correcting that cause of it,
+- **[04:33](https://www.youtube.com/watch?v=udgEofYO4F4&t=273s)** — which is usually a lack of acid.
+- **[04:35](https://www.youtube.com/watch?v=udgEofYO4F4&t=275s)** — And this is why I think a much better remedy would be to
+- **[04:37](https://www.youtube.com/watch?v=udgEofYO4F4&t=277s)** — obtain hydrochloride and some apple cider vinegar.
+- **[04:41](https://www.youtube.com/watch?v=udgEofYO4F4&t=281s)** — But let's say, for example, you have an ulcer or let's say, for example,
+- **[04:46](https://www.youtube.com/watch?v=udgEofYO4F4&t=286s)** — you have gastritis.
+- **[04:47](https://www.youtube.com/watch?v=udgEofYO4F4&t=287s)** — Okay.
+- **[04:49](https://www.youtube.com/watch?v=udgEofYO4F4&t=289s)** — Your stomach lining is just raw.
+- **[04:51](https://www.youtube.com/watch?v=udgEofYO4F4&t=291s)** — If you take butane hydrochloride or apple cider vinegar, you're just
+- **[04:54](https://www.youtube.com/watch?v=udgEofYO4F4&t=294s)** — going to irritate the heck out of it, but you can very easily take
+- **[04:58](https://www.youtube.com/watch?v=udgEofYO4F4&t=298s)** — baking soda to give you some relief.
+- **[05:00](https://www.youtube.com/watch?v=udgEofYO4F4&t=300s)** — So I just wanted to kind of give you some specifics on like when you
+- **[05:03](https://www.youtube.com/watch?v=udgEofYO4F4&t=303s)** — may want to take it, when you might not take it.
+- **[05:06](https://www.youtube.com/watch?v=udgEofYO4F4&t=306s)** — Now, of course, there's going to be people commenting on the channel
+- **[05:09](https://www.youtube.com/watch?v=udgEofYO4F4&t=309s)** — that say, well, you know, my grandfather took this his whole life and he's,
+- **[05:13](https://www.youtube.com/watch?v=udgEofYO4F4&t=313s)** — you know, 120 years old.
+- **[05:16](https://www.youtube.com/watch?v=udgEofYO4F4&t=316s)** — So it's fine.
+- **[05:17](https://www.youtube.com/watch?v=udgEofYO4F4&t=317s)** — So I'm not here to tell you not to take it because I'm totally
+- **[05:20](https://www.youtube.com/watch?v=udgEofYO4F4&t=320s)** — into natural remedies.
+- **[05:21](https://www.youtube.com/watch?v=udgEofYO4F4&t=321s)** — But on the flip side, you always want to ask yourself, why do you
+- **[05:23](https://www.youtube.com/watch?v=udgEofYO4F4&t=323s)** — need to take any remedy at all?
+- **[05:25](https://www.youtube.com/watch?v=udgEofYO4F4&t=325s)** — And do you know the cause?
+- **[05:27](https://www.youtube.com/watch?v=udgEofYO4F4&t=327s)** — I think you should find natural remedies to kind of handle the
+- **[05:29](https://www.youtube.com/watch?v=udgEofYO4F4&t=329s)** — symptoms, but also at the same time, really understand the mechanism.
+- **[05:32](https://www.youtube.com/watch?v=udgEofYO4F4&t=332s)** — So you can really eventually get rid of the cause, which if you have
+- **[05:36](https://www.youtube.com/watch?v=udgEofYO4F4&t=336s)** — heartburn really relates to kind of what you're eating.
+- **[05:38](https://www.youtube.com/watch?v=udgEofYO4F4&t=338s)** — All right.
+- **[05:38](https://www.youtube.com/watch?v=udgEofYO4F4&t=338s)** — Another interesting benefit has to do with increasing athletic
+- **[05:44](https://www.youtube.com/watch?v=udgEofYO4F4&t=344s)** — performance.
+- **[05:44](https://www.youtube.com/watch?v=udgEofYO4F4&t=344s)** — Yeah.
+- **[05:45](https://www.youtube.com/watch?v=udgEofYO4F4&t=345s)** — Having a little more endurance because when you exercise, especially
+- **[05:49](https://www.youtube.com/watch?v=udgEofYO4F4&t=349s)** — intense exercise, you will generate lactic acid.
+- **[05:54](https://www.youtube.com/watch?v=udgEofYO4F4&t=354s)** — Okay.
+- **[05:55](https://www.youtube.com/watch?v=udgEofYO4F4&t=355s)** — So now we're going to change the pH of certain tissues in your body.
+- **[06:00](https://www.youtube.com/watch?v=udgEofYO4F4&t=360s)** — And so this lactic acid tends to inhibit oxygen.
+- **[06:03](https://www.youtube.com/watch?v=udgEofYO4F4&t=363s)** — And then what's going to happen is you're going to hit the
+- **[06:06](https://www.youtube.com/watch?v=udgEofYO4F4&t=366s)** — wall when you exercise.
+- **[06:07](https://www.youtube.com/watch?v=udgEofYO4F4&t=367s)** — So you'll have a limited endurance, but there's been a few
+- **[06:11](https://www.youtube.com/watch?v=udgEofYO4F4&t=371s)** — interesting studies that shows that if you consume baking soda,
+- **[06:15](https://www.youtube.com/watch?v=udgEofYO4F4&t=375s)** — 90 minutes before this exercise intensity routine, it can improve
+- **[06:21](https://www.youtube.com/watch?v=udgEofYO4F4&t=381s)** — your performance because it's going to neutralize this acidity and
+- **[06:26](https://www.youtube.com/watch?v=udgEofYO4F4&t=386s)** — then allow more oxygen to occur.
+- **[06:28](https://www.youtube.com/watch?v=udgEofYO4F4&t=388s)** — But not only that, I think another thing that it does is that
+- **[06:32](https://www.youtube.com/watch?v=udgEofYO4F4&t=392s)** — baking soda turns into as a by-product water and CO2, carbon
+- **[06:37](https://www.youtube.com/watch?v=udgEofYO4F4&t=397s)** — dioxide, which automatically allows oxygen to go into the body.
+- **[06:41](https://www.youtube.com/watch?v=udgEofYO4F4&t=401s)** — If that's new information for you, you should watch my video on
+- **[06:44](https://www.youtube.com/watch?v=udgEofYO4F4&t=404s)** — that topic.
+- **[06:44](https://www.youtube.com/watch?v=udgEofYO4F4&t=404s)** — I'll put that down below, but it's fascinating.
+- **[06:47](https://www.youtube.com/watch?v=udgEofYO4F4&t=407s)** — Now the CO2 connection relates to this next benefit, which, you
+- **[06:53](https://www.youtube.com/watch?v=udgEofYO4F4&t=413s)** — know, I found, I had to dig deep, but I found some interesting
+- **[06:56](https://www.youtube.com/watch?v=udgEofYO4F4&t=416s)** — research on the relationship between taking sodium bicarbonate and
+- **[07:01](https://www.youtube.com/watch?v=udgEofYO4F4&t=421s)** — cancer. And currently in this one study that I'll put down below,
+- **[07:05](https://www.youtube.com/watch?v=udgEofYO4F4&t=425s)** — there was a significant improvement in decreasing the incidence of
+- **[07:09](https://www.youtube.com/watch?v=udgEofYO4F4&t=429s)** — metastasis. Now this was in my studies, but still, this is
+- **[07:13](https://www.youtube.com/watch?v=udgEofYO4F4&t=433s)** — interesting data. Now, why would it do that?
+- **[07:15](https://www.youtube.com/watch?v=udgEofYO4F4&t=435s)** — Well, if you take a look at a normal cell versus a cancer cell
+- **[07:19](https://www.youtube.com/watch?v=udgEofYO4F4&t=439s)** — in relationship to pH, the outside of a cancer cell is way more
+- **[07:25](https://www.youtube.com/watch?v=udgEofYO4F4&t=445s)** — acid than a normal cell, but the inside of that cell, the
+- **[07:30](https://www.youtube.com/watch?v=udgEofYO4F4&t=450s)** — inside of a cancer cell is alkaline, more alkaline than a normal cell.
+- **[07:34](https://www.youtube.com/watch?v=udgEofYO4F4&t=454s)** — So that's interesting. So when people say that, oh yeah,
+- **[07:37](https://www.youtube.com/watch?v=udgEofYO4F4&t=457s)** — cancer is acid, are you talking about the inside of the cell
+- **[07:40](https://www.youtube.com/watch?v=udgEofYO4F4&t=460s)** — or the outside of the cell? And there's a more concentrated
+- **[07:43](https://www.youtube.com/watch?v=udgEofYO4F4&t=463s)** — amount of lactic acid and lactate, and that can actually
+- **[07:49](https://www.youtube.com/watch?v=udgEofYO4F4&t=469s)** — trigger the growth of tumors. So if you were to reduce that,
+- **[07:53](https://www.youtube.com/watch?v=udgEofYO4F4&t=473s)** — kind of neutralize that pH, potentially you can actually
+- **[07:57](https://www.youtube.com/watch?v=udgEofYO4F4&t=477s)** — prevent the growth of the tumor. Now, realize all this is kind of
+- **[08:01](https://www.youtube.com/watch?v=udgEofYO4F4&t=481s)** — down-chain. In other words, it's the kind of consequences of this
+- **[08:04](https://www.youtube.com/watch?v=udgEofYO4F4&t=484s)** — chain reaction that occurs originally from some type of
+- **[08:09](https://www.youtube.com/watch?v=udgEofYO4F4&t=489s)** — damage to the mitochondria, and then the oxygen machine
+- **[08:14](https://www.youtube.com/watch?v=udgEofYO4F4&t=494s)** — can't work, and then the body uses a different mechanism to
+- **[08:17](https://www.youtube.com/watch?v=udgEofYO4F4&t=497s)** — get its fuel, and then the body switches from normal cell
+- **[08:20](https://www.youtube.com/watch?v=udgEofYO4F4&t=500s)** — to now a cancer cell, which is kind of like a backup
+- **[08:24](https://www.youtube.com/watch?v=udgEofYO4F4&t=504s)** — system to get fuel, and in the process, there's a lot of
+- **[08:29](https://www.youtube.com/watch?v=udgEofYO4F4&t=509s)** — lactic acid generated. And so when you're taking baking
+- **[08:31](https://www.youtube.com/watch?v=udgEofYO4F4&t=511s)** — soda, you're not actually doing anything for this initial
+- **[08:35](https://www.youtube.com/watch?v=udgEofYO4F4&t=515s)** — cause of cancer in the mitochondria. But what I like
+- **[08:39](https://www.youtube.com/watch?v=udgEofYO4F4&t=519s)** — about it is that baking soda can increase CO2, and CO2
+- **[08:44](https://www.youtube.com/watch?v=udgEofYO4F4&t=524s)** — is all about allowing oxygen to kind of go deeper into
+- **[08:48](https://www.youtube.com/watch?v=udgEofYO4F4&t=528s)** — the tissues. We're taught that CO2 is just a waste
+- **[08:51](https://www.youtube.com/watch?v=udgEofYO4F4&t=531s)** — product, but it's essential for oxygen. So if you're just
+- **[08:55](https://www.youtube.com/watch?v=udgEofYO4F4&t=535s)** — like hyper-focused on this oxygen thing, and you're
+- **[08:57](https://www.youtube.com/watch?v=udgEofYO4F4&t=537s)** — ignoring CO2, it's not going to work. So even if you do
+- **[09:00](https://www.youtube.com/watch?v=udgEofYO4F4&t=540s)** — searches on like CO2, carbon dioxide, in relationship to
+- **[09:04](https://www.youtube.com/watch?v=udgEofYO4F4&t=544s)** — cancer, there's some therapies out there that shows that it
+- **[09:07](https://www.youtube.com/watch?v=udgEofYO4F4&t=547s)** — can inhibit the tumor growth just by doing CO2, which is
+- **[09:10](https://www.youtube.com/watch?v=udgEofYO4F4&t=550s)** — interesting, which is a byproduct of baking soda. Another
+- **[09:14](https://www.youtube.com/watch?v=udgEofYO4F4&t=554s)** — interesting thing about baking soda is that people use it
+- **[09:17](https://www.youtube.com/watch?v=udgEofYO4F4&t=557s)** — for their skin to help decrease rashes or some type of skin
+- **[09:23](https://www.youtube.com/watch?v=udgEofYO4F4&t=563s)** — allergy. Also, baking soda is good if you have a sinus
+- **[09:27](https://www.youtube.com/watch?v=udgEofYO4F4&t=567s)** — problem. If you could just put it in a neti pot, maybe a
+- **[09:31](https://www.youtube.com/watch?v=udgEofYO4F4&t=571s)** — fourth of a teaspoon with a little pinch of sea salt,
+- **[09:33](https://www.youtube.com/watch?v=udgEofYO4F4&t=573s)** — and you dissolve that and you get the vapors into your
+- **[09:38](https://www.youtube.com/watch?v=udgEofYO4F4&t=578s)** — sinuses, that can greatly help your sinus irritation. So
+- **[09:42](https://www.youtube.com/watch?v=udgEofYO4F4&t=582s)** — that would be more of like a sinus irrigation. And one
+- **[09:47](https://www.youtube.com/watch?v=udgEofYO4F4&t=587s)** — of the things that I recommend is baking soda. And of course,
+- **[09:49](https://www.youtube.com/watch?v=udgEofYO4F4&t=589s)** — when I recommend it, I'm always talking about this,
+- **[09:52](https://www.youtube.com/watch?v=udgEofYO4F4&t=592s)** — taking it sporadically, not like all the time every single
+- **[09:55](https://www.youtube.com/watch?v=udgEofYO4F4&t=595s)** — day to help reduce the risk of gout attacks. Because you
+- **[09:59](https://www.youtube.com/watch?v=udgEofYO4F4&t=599s)** — can inhibit the formation of that uric acid crystal if
+- **[10:03](https://www.youtube.com/watch?v=udgEofYO4F4&t=603s)** — you just get your pH a little higher. And so you'd
+- **[10:07](https://www.youtube.com/watch?v=udgEofYO4F4&t=607s)** — want to monitor the pH in your urine and take it until
+- **[10:10](https://www.youtube.com/watch?v=udgEofYO4F4&t=610s)** — the pH of your urine is like maybe a seven versus like a
+- **[10:14](https://www.youtube.com/watch?v=udgEofYO4F4&t=614s)** — five. So anyway, I just wanted to give you more of an a
+- **[10:17](https://www.youtube.com/watch?v=udgEofYO4F4&t=617s)** — different viewpoint of baking soda on maybe some potential
+- **[10:20](https://www.youtube.com/watch?v=udgEofYO4F4&t=620s)** — benefits for you. But if you haven't seen this video on
+- **[10:24](https://www.youtube.com/watch?v=udgEofYO4F4&t=624s)** — baking soda, which I talk about the very unusual and
+- **[10:28](https://www.youtube.com/watch?v=udgEofYO4F4&t=628s)** — surprising benefits, you should check it out. I put
+- **[10:30](https://www.youtube.com/watch?v=udgEofYO4F4&t=630s)** — it up right here.

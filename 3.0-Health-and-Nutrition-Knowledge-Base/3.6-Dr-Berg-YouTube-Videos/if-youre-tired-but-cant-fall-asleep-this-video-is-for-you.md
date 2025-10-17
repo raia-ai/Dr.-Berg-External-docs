@@ -1,0 +1,106 @@
+# If You're Tired But Can't Fall Asleep, This Video is for You!
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=PiO4QZ6ZAQw](https://www.youtube.com/watch?v=PiO4QZ6ZAQw)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=0s)** — You know, some people are actually too tired to be able to sleep and rest.
+- **[00:07](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=7s)** — No matter how exhausted they get, their body just does not allow them to get into the deep
+- **[00:14](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=14s)** — delt wave sleep. Yet other people have way too much energy and they can't sleep because you
+- **[00:20](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=20s)** — have too much adrenaline or nervous energy flowing through their bloodstream. So it takes
+- **[00:25](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=25s)** — a healthy amount of energy in your energy factories called the mitochondria to be able to
+- **[00:30](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=30s)** — have this really wonderful sleep. So today we're going to talk about three things that you can do
+- **[00:36](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=36s)** — to improve not just sleeping but resting. There just happens to be a clock in your brain. It's
+- **[00:55](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=55s)** — when to wake up. And so I'm going to give you some tips on how to get your clock to work better.
+- **[01:01](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=61s)** — All right, let's first talk about energy. We're talking about the mitochondria. And this is in
+- **[01:07](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=67s)** — relationship to healing or supporting the mitochondria in the brain. The organs that
+- **[01:15](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=75s)** — have the most mitochondria are in the heart and your brain. So both of those organs need a
+- **[01:23](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=83s)** — lot of oxygen. And when they don't get oxygen, when they're dysfunctional, you have problems.
+- **[01:32](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=92s)** — So there are several things you can do to increase oxygen into the mitochondria, into the
+- **[01:37](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=97s)** — brain to help you really sleep and go to sleep quickly. The first one is the obvious one,
+- **[01:45](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=105s)** — exercise. So when you exercise you get more oxygen. And so I like to do two types of
+- **[01:51](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=111s)** — mainly every day. I do a higher intense exercise and I do weight training. And with the higher
+- **[01:56](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=116s)** — intensity exercise, I do really short durations. But I always do long walks or hiking. I go up
+- **[02:05](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=125s)** — hills and things like that. So I'm always doing that, which is a low intensity walking. And
+- **[02:10](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=130s)** — that's great for sleeping. Okay, so exercise is the top of the list. Number two, B1.
+- **[02:16](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=136s)** — Another name for a B1 or thiamine deficiency is called pseudo hypoxia. That's right, hypoxia.
+- **[02:24](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=144s)** — That is a lack of oxygen. And so this can occur in the brain at the very heart of the
+- **[02:31](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=151s)** — autonomic nervous system, which is in the brainstem, which has everything to do with your
+- **[02:36](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=156s)** — breathing. Okay. And so when you're deficient in B1, your breathing is going to suffer and
+- **[02:42](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=162s)** — your oxygen is going to suffer and you're going to trigger what's called the stress reflex.
+- **[02:47](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=167s)** — And try to sleep when you're stressed. You can't. So it's all about increasing the amount of O2
+- **[02:52](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=172s)** — in the mitochondria. And B1 before bed is a great way to do that. The next thing is just
+- **[03:00](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=180s)** — to open your windows if you can at night when you're sleeping. That is going to give you more
+- **[03:04](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=184s)** — oxygen than trying to recirculate some of this kind of stale air that's in your room.
+- **[03:11](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=191s)** — Having plants in your room also will increase the oxygen because they give off oxygen and they take
+- **[03:18](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=198s)** — in CO2. Another thing that increases the oxygen is coenzyme Q10. And then another great remedy
+- **[03:25](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=205s)** — is called methylene blue. This was the first drug that medicine ever introduced in
+- **[03:32](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=212s)** — their healthcare system. Methylene blue. It's been around since the 1800s. Methylene blue
+- **[03:37](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=217s)** — will make your urine green. Because the blue mixes with the yellow and then it turns out green.
+- **[03:45](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=225s)** — But there's a lot of interesting positive things when you take it in small or diluted amounts.
+- **[03:52](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=232s)** — And I'm going to put the link down below on that video so you can learn more about it.
+- **[03:57](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=237s)** — But it can greatly increase oxygen in your brain and other parts of your body.
+- **[04:05](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=245s)** — All right, so now let's talk about that circadian rhythm controlled by the supra-chiasmatic
+- **[04:10](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=250s)** — nucleus. How do you get that to work correctly? It's controlled by light in dark cycles.
+- **[04:20](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=260s)** — Okay, so when you are in your house at night with the lights on all the way up until the
+- **[04:27](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=267s)** — time you go to bed, that is going to be very, very bad because it's going to work against that
+- **[04:32](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=272s)** — rhythm. The ideal situation is to work with this light and dark cycle, with this rhythm,
+- **[04:40](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=280s)** — with nature. And that means that you would want to start to turn down the lights at sunset.
+- **[04:48](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=288s)** — Okay, now that's really difficult in the winter, isn't it? When it gets dark out at 4 30.
+- **[04:54](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=294s)** — But typically in the summertime it starts to get dark at 9 o'clock. So if you were to
+- **[04:58](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=298s)** — be in your house and start to use dim lights, that would be a really good thing. So your body
+- **[05:05](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=305s)** — is starting to get used to this decrease in light. And you can even replace certain lights
+- **[05:12](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=312s)** — in your house with incandescent lights, which give off more infrared, which is very,
+- **[05:18](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=318s)** — very good for your sleep cycle. So infrared, you can also avoid blue lights like your computer.
+- **[05:24](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=324s)** — Now that's hard for some people, but not for me because I'm not on my computer at night.
+- **[05:28](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=328s)** — I'm in the computer in the morning. But the blue light that's emanating from your electrical
+- **[05:34](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=334s)** — devices definitely can worsen your melatonin. Okay, the thing that helps you sleep at night.
+- **[05:42](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=342s)** — You can get some red lights. You can start dimming your lights, get some incandescent
+- **[05:47](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=347s)** — lights and not be around the LEDs. If you had the light from your fireplace or even a campfire
+- **[05:56](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=356s)** — where you have that yellow golden light that's giving off a lot of infrared and very low blue
+- **[06:02](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=362s)** — light, if any, that's very therapeutic for sleeping. Or let's say you get the blue light,
+- **[06:09](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=369s)** — blocker glasses and you can filter out that blue light. That's beneficial. But the point
+- **[06:14](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=374s)** — is that if you're going to start watching TV, turn off the lights in the room. Okay,
+- **[06:19](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=379s)** — so it's really dark so you have just smaller amounts of light. That is going to be very,
+- **[06:24](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=384s)** — very therapeutic for your circadian rhythms. And I even wear an eye mask when I go to sleep
+- **[06:29](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=389s)** — because I have to have it pitch black. My wife can sleep if the lights are on. I can't.
+- **[06:36](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=396s)** — Your timing of eating, okay, you're going to find that if you don't eat too late,
+- **[06:41](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=401s)** — you're going to sleep better. I mean, if you can really do this, if you let's say you ate one meal
+- **[06:47](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=407s)** — a day, and that last meal was right around three o'clock, that would be the ideal situation
+- **[06:52](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=412s)** — to eat to improve your circadian rhythms. But it might interfere with your social life
+- **[06:57](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=417s)** — because a lot of people don't eat at that time. So you might be eating by yourself. Or if
+- **[07:04](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=424s)** — you're doing two meals a day, maybe you do the first meal in the morning and the second
+- **[07:07](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=427s)** — meal at three, right? That would be ideally the situation. If you can't do that, then do
+- **[07:14](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=434s)** — something that's related to that and just avoid eating five hours before you go to bed.
+- **[07:21](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=441s)** — So if you go to bed at 10, consume your food at five. Okay, that will at least give you
+- **[07:28](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=448s)** — five hours for your system to kind of get settled in to start aligning with their circadian
+- **[07:35](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=455s)** — wave. I mean, just do an experiment. Eat a very heavy meal before you go to bed and then see how
+- **[07:39](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=459s)** — you sleep. It just doesn't work. So I just want you to experiment with it and see if it doesn't
+- **[07:44](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=464s)** — help you. If you're traveling, okay, even in the same time zone, that is going to interfere
+- **[07:51](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=471s)** — with this clock in your brain and the GPS that's in your brain that can identify where your
+- **[07:58](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=478s)** — location is in space. And so a good way to handle jet lag when you travel is to take
+- **[08:06](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=486s)** — a lot more vitamin D3. Apparently that is the key nutrient that helps reset those mechanisms
+- **[08:14](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=494s)** — to really help get you on track a lot faster. I do this all the time. So I might take like
+- **[08:19](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=499s)** — say 30, 40, 50,000 I use of vitamin D if I'm traveling to a different country. Now what time
+- **[08:27](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=507s)** — should you go to bed? Typically the best time to go to bed is like 10 o'clock. I tend to go to
+- **[08:34](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=514s)** — bed between 930 and 945. But some people can't do that. There's too much going on.
+- **[08:41](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=521s)** — You definitely want to avoid going to bed before 12. Because there's definitely a situation
+- **[08:48](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=528s)** — if you go past 12, all of a sudden the body will start waking up and you miss that
+- **[08:52](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=532s)** — you have to kind of wait like 90 minutes before your body's tired. And that's happened to me
+- **[08:57](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=537s)** — several times where I'm extremely tired at 930. Now push through it and then now I'm awake. Now
+- **[09:04](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=544s)** — I have to wait for a period of time until I'm tired again. So you want to work with your
+- **[09:09](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=549s)** — body's waves. And you want to catch the wave so you can go right into the deep sleep.
+- **[09:14](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=554s)** — You know experiment what works for you. But 10 o'clock on average would be the best for most
+- **[09:19](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=559s)** — I do a little bit earlier. And then I will sleep for seven hours. Sometimes seven and a half hours.
+- **[09:26](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=566s)** — Some people need eight hours. But anywhere between seven and eight hours is the best
+- **[09:30](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=570s)** — situation. If you get up in the middle of night, let's say at two-ish or even one,
+- **[09:36](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=576s)** — that usually means that your adrenals are stressed out and you need to support the
+- **[09:40](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=580s)** — adrenals with certain types of adaptogens and whole desiccated adrenal supplements. And
+- **[09:47](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=587s)** — if you're getting up urinating frequently that means that you still have to deal with insulin
+- **[09:52](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=592s)** — resistance. I have videos on that. If a muscle cramp wakes you up you may need more magnesium,
+- **[09:59](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=599s)** — potassium, or calcium. Now I think sleep is so important for so many things. And if you
+- **[10:06](https://www.youtube.com/watch?v=PiO4QZ6ZAQw&t=606s)** — haven't seen my more comprehensive video on sleep, you should check that out. And I put it up right here.

@@ -1,0 +1,121 @@
+# The #1 Best Way to CLEAN a Fatty Liver
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=TjX5l5Vla2M](https://www.youtube.com/watch?v=TjX5l5Vla2M)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=0s)** — The best way to detoxify your liver. People automatically think,
+- **[00:03](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=3s)** — Oh, it's too much alcohol. Or it's too much sugar or something like that.
+- **[00:07](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=7s)** — Well, that doesn't even compare to what's really destroying the liver.
+- **[00:10](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=10s)** — You're exposed to this every single day. And there's really only one way to fix it.
+- **[00:13](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=13s)** — This entire topic is based on one piece of information.
+- **[00:17](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=17s)** — Pesticides, insecticides, herbicides, fungicides, plastics, forever chemicals.
+- **[00:23](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=23s)** — All of this toxicity mimics estrogen. What? Mimics estrogen?
+- **[00:27](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=27s)** — This is a cell. This hormone estrogen receptor is very, very different than other hormone receptors.
+- **[00:33](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=33s)** — All these other environmental toxins can fit into that estrogen receptor
+- **[00:37](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=37s)** — and activate the estrogen effect in certain parts of your body.
+- **[00:42](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=42s)** — What's really happening on a global scale is we're creating estrogen dominance.
+- **[00:46](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=46s)** — Let's take a look at what happens when that estrogen receptor gets too triggered.
+- **[00:50](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=50s)** — In the liver, you're not going to produce as much bile.
+- **[00:53](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=53s)** — And bile is like the key thing to help eliminate the toxins in the chemicals.
+- **[00:58](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=58s)** — If you don't have enough bile, the chemicals get recycled.
+- **[01:01](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=61s)** — This can lead to an inflamed liver, fatty liver, cirrhosis.
+- **[01:04](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=64s)** — Let's talk about the breast tissue. That has estrogen receptors too.
+- **[01:07](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=67s)** — We're dealing with the increased risk of breast cancer.
+- **[01:10](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=70s)** — Not from actual estrogen, but from chemicals that can fit into the estrogen receptor.
+- **[01:16](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=76s)** — There's estrogen receptors in the uterus. It can also affect fertility.
+- **[01:20](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=80s)** — And definitely it affects the menstrual cycle.
+- **[01:23](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=83s)** — Then you have receptors in your thyroid.
+- **[01:26](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=86s)** — And this is a classic situation where you're developing hypothyroidism
+- **[01:31](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=91s)** — from the estrogen that goes into the thyroid.
+- **[01:33](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=93s)** — And by the way, too much estrogen equals too much fat, especially around the hips.
+- **[01:37](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=97s)** — And even increase breast tissue in men.
+- **[01:40](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=100s)** — Your skin has receptors for estrogen.
+- **[01:43](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=103s)** — These toxins activate estrogen receptors which increase acne.
+- **[01:47](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=107s)** — And there's receptors in the testes too. So that's going to decrease testosterone.
+- **[01:51](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=111s)** — It's going to decrease sperm count.
+- **[01:54](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=114s)** — And also when they talk about postmenopausal females that are estrogen dominant,
+- **[01:57](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=117s)** — do you really think that's coming from estrogen?
+- **[02:00](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=120s)** — What happens is you're getting accumulation of this toxicity
+- **[02:04](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=124s)** — which is activating the estrogen receptors.
+- **[02:07](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=127s)** — Giving them the illusion that they have too much estrogen.
+- **[02:10](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=130s)** — When in reality, they have too many toxins.
+- **[02:13](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=133s)** — So the name of these toxins that act like estrogen in the environment,
+- **[02:17](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=137s)** — they're called Xenoestrogens.
+- **[02:20](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=140s)** — If there's a spill of a certain chemical in a lake,
+- **[02:23](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=143s)** — you get this feminization of fish,
+- **[02:26](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=146s)** — males turning to females.
+- **[02:28](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=148s)** — And so these chemicals affect animals and humans.
+- **[02:32](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=152s)** — Young girls are going through their puberty a lot earlier.
+- **[02:35](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=155s)** — Young boys have lower testosterone and lower sperm count.
+- **[02:38](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=158s)** — So luckily, our liver is equipped with an entire detox machine
+- **[02:45](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=165s)** — to get rid of these chemicals, but only if it's not overloaded.
+- **[02:49](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=169s)** — Well, I'm going to share with you right now
+- **[02:50](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=170s)** — what I think is the only solution to this problem.
+- **[02:53](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=173s)** — In addition to, of course, avoiding these chemicals as much as you can,
+- **[02:57](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=177s)** — but you cannot 100% avoid these chemicals.
+- **[03:00](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=180s)** — You want to support the liver's ability to detoxify.
+- **[03:04](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=184s)** — You're turning fat-siable chemicals, and that's what these are,
+- **[03:08](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=188s)** — into water-siable chemicals.
+- **[03:10](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=190s)** — It's in a group of vegetables called Perciverous Vegetables.
+- **[03:14](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=194s)** — Perciverous vegetables like kale, broccoli, brussel sprouts,
+- **[03:17](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=197s)** — arugula, cauliflower, all contain chemicals that can help detoxify
+- **[03:23](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=203s)** — these poisons that are mimicking estrogen.
+- **[03:26](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=206s)** — And for those people that don't like a lot of vegetables,
+- **[03:28](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=208s)** — you can get a concentrated version of the chemicals that are needed
+- **[03:32](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=212s)** — in something called DIM.
+- **[03:34](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=214s)** — D-I-M. DIM is basically a concentrated cruciferous extract
+- **[03:38](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=218s)** — that can help regulate the excess of the harmful estrogen
+- **[03:42](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=222s)** — and convert that into something that's a lot less toxic.
+- **[03:46](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=226s)** — And this is why a lot of people take DIM as a supplement,
+- **[03:48](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=228s)** — but you don't need to even take that.
+- **[03:49](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=229s)** — You can eat the food that it comes from, which is cruciferous vegetables.
+- **[03:53](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=233s)** — Even one phytonutrient called sulforaphane,
+- **[03:56](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=236s)** — in broccoli sprouts, it's in radishes,
+- **[03:59](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=239s)** — has the capacity to increase over 200 detox genes
+- **[04:03](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=243s)** — and also feed the gut bacteria
+- **[04:06](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=246s)** — that can help you detoxify these chemicals too.
+- **[04:09](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=249s)** — Now, in the liver, there's a certain protein,
+- **[04:12](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=252s)** — and it's called sex hormone-binding globulin.
+- **[04:15](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=255s)** — We want more of that to safeguard and protect you
+- **[04:19](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=259s)** — against the excess of estrogen in the body,
+- **[04:22](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=262s)** — especially to prevent cancer.
+- **[04:24](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=264s)** — Well, it just so happens that cruciferous vegetables
+- **[04:25](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=265s)** — have certain things in them to help increase
+- **[04:28](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=268s)** — that sex hormone-binding globulin.
+- **[04:31](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=271s)** — And also, the phytonutrients, including DIM,
+- **[04:33](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=273s)** — have the ability to reduce certain enzymes
+- **[04:35](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=275s)** — to decrease the conversion of testosterone into estrogen.
+- **[04:40](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=280s)** — But unfortunately, our bodies never evolved
+- **[04:42](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=282s)** — to deal with these environmental estrogen toxins.
+- **[04:47](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=287s)** — But our liver was designed to deal with plant estrogens,
+- **[04:51](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=291s)** — which can actually help us,
+- **[04:53](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=293s)** — and they're in the cruciferous vegetables.
+- **[04:55](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=295s)** — They're not going to actually increase the estrogen in your body.
+- **[04:58](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=298s)** — What they're going to do is help dismantle the chemicals
+- **[05:00](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=300s)** — that are mimicking the estrogen.
+- **[05:01](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=301s)** — So, you have a couple options.
+- **[05:03](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=303s)** — Consuming more cruciferous vegetables in your diet.
+- **[05:05](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=305s)** — You can take DIM as a supplement.
+- **[05:07](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=307s)** — There's a couple other things that are really good for the liver,
+- **[05:10](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=310s)** — especially when dealing with this toxicity.
+- **[05:12](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=312s)** — A supplement called NAC, which is really good for the liver,
+- **[05:16](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=316s)** — and also the brain.
+- **[05:17](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=317s)** — Choline is another one that will also help you
+- **[05:20](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=320s)** — get rid of fat off the liver.
+- **[05:22](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=322s)** — So, the reason why this video is so important is,
+- **[05:24](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=324s)** — number one, to give you the awareness of something,
+- **[05:27](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=327s)** — unfortunately, that it's almost impossible to avoid,
+- **[05:30](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=330s)** — which is the problem.
+- **[05:31](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=331s)** — But yet, at the same time, I gave you a solution,
+- **[05:34](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=334s)** — just within your diet.
+- **[05:35](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=335s)** — It doesn't have to be every day, you know, a few times a week.
+- **[05:38](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=338s)** — So, at the very least, you can reduce the load
+- **[05:41](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=341s)** — of estrogenic things that are hitting your liver on a daily basis.
+- **[05:44](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=344s)** — And for additional information on how to get rid of
+- **[05:47](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=347s)** — forever chemicals and plastics,
+- **[05:49](https://www.youtube.com/watch?v=TjX5l5Vla2M&t=349s)** — you might want to watch this video right here.

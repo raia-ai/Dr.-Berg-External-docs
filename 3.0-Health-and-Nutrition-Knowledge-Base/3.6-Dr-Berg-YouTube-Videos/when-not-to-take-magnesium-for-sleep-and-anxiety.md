@@ -1,0 +1,124 @@
+# When NOT to Take Magnesium for Sleep and Anxiety
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=UHd3ODiJxyQ](https://www.youtube.com/watch?v=UHd3ODiJxyQ)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=0s)** — So, if you're deciding to take magnesium to help yourself sleep or maybe for anxiety or stress,
+- **[00:06](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=6s)** — today we're going to talk about when you might not need magnesium. In fact, the worst thing you could
+- **[00:10](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=10s)** — do is buy some magnesium and then find out it doesn't really work for them. That's not what
+- **[00:14](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=14s)** — they needed. Or it worsens their sleep situation. Magnesium is supposed to calm you down. It's
+- **[00:20](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=20s)** — supposed to lower cortisol and adrenaline. How could it actually make you more stressed out?
+- **[00:27](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=27s)** — That's the question. Your anxiety could come from many different causes. So, magnesium is just one
+- **[00:33](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=33s)** — remedy to handle one aspect of sleep and anxiety. As far as sleep goes, we dissect sleep into two
+- **[00:39](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=39s)** — different categories. People that can't get the sleep versus people that can't stay asleep. When
+- **[00:45](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=45s)** — you initially try to go to sleep, if you can go to sleep very easily, chances are you have
+- **[00:51](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=51s)** — good parasympathetics. What does that mean? Well, there's two parts of the nervous system.
+- **[00:55](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=55s)** — You have the parasympathetic and that's kind of like the system that actually pushes you into a
+- **[01:00](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=60s)** — deep restful sleep. It keeps you calm and it's mainly responsible for the first part of the
+- **[01:06](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=66s)** — sleep, especially the deeper delta wave sleep. But the second part of the sleep is more
+- **[01:13](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=73s)** — what's called REM sleep. People that have higher levels of adrenaline and cortisol tend to wake up
+- **[01:20](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=80s)** — like two o'clock in the morning or two thirty or three o'clock in the middle of night.
+- **[01:25](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=85s)** — And they're like laying there like, okay, so I'm more awake now than I am during the day.
+- **[01:30](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=90s)** — So if we look at this circadian wave rhythm of cortisol hormone, the lowest point should be
+- **[01:37](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=97s)** — at 2 a.m. and the highest point should be roughly about eight o'clock in the morning.
+- **[01:43](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=103s)** — But a lot of times it's kind of backwards and you're always going to wake up feeling
+- **[01:47](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=107s)** — not very refreshed. So then people take magnesium because magnesium is supposed to lower
+- **[01:52](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=112s)** — cortisol and adrenaline, but sometimes it doesn't. Why? Because the actual cause of this high
+- **[01:57](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=117s)** — cortisol is not coming from a lack of magnesium. You see the problem is it's really hard to
+- **[02:01](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=121s)** — test for a magnesium deficiency because as soon as you test it in the blood, it's not going
+- **[02:07](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=127s)** — to really show up necessarily unless you're really, really deficient because most of your
+- **[02:12](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=132s)** — magnesium 98 to 99 percent is inside the cell. Let's say you don't consume a lot of green
+- **[02:18](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=138s)** — things. I'm talking about vegetables that are green because chlorophyll has magnesium in it,
+- **[02:24](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=144s)** — but it's also high in some nuts like almonds. It's high in chocolate. It's also high in
+- **[02:29](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=149s)** — pumpkin seeds. So let's say, for example, you don't eat a lot of those foods. Let's say
+- **[02:33](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=153s)** — instead you are heavy on the carbs. Okay. You do a lot of sugar and grains. Refined
+- **[02:39](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=159s)** — sugar and grains will deplete your magnesium. If you're fatigued or maybe have cramps in your
+- **[02:43](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=163s)** — legs at night, you could be deficient magnesium. Okay. So you go to bed and you're lying there.
+- **[02:49](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=169s)** — You just can't get into a sleep, right? Chances are you don't have enough parasympathetic
+- **[02:54](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=174s)** — nervous system. If you're experiencing a lot of stress and you're not exercising,
+- **[02:58](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=178s)** — that's definitely going to screw up your sleep. Exercise helps. Long walks help. But what
+- **[03:03](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=183s)** — really helps more than both of those is physical work. Yeah. Outside. Because it also
+- **[03:09](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=189s)** — handles the mental component. It takes your mind off the stress. Now also if you're low in
+- **[03:16](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=196s)** — vitamin B1, okay, you're going to have this situation where you're going to lie down and
+- **[03:21](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=201s)** — you're going to try to go to sleep, but you're thinking you're solving problems 24-7. You
+- **[03:25](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=205s)** — can't turn it off. That means you need B1. And chances are you're doing too many carbs,
+- **[03:31](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=211s)** — which deplete B1. In my situation when I was younger in my 20s, I'm in my 30s right now,
+- **[03:38](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=218s)** — and I'm being also very sarcastic. I used to consume a lot of carbs and not any B1.
+- **[03:45](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=225s)** — So I had restless leg syndrome. I had a lot of nervous anxiety. But one thing that could have
+- **[03:50](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=230s)** — helped me if just to take B1, if I would have known about it, I probably would have
+- **[03:54](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=234s)** — got rid of my restless leg syndrome. But when you take B1, you'll feel the sense of relief
+- **[03:59](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=239s)** — and you can finally turn it off and go to sleep. Also, if you're doing a lot of coffee or tea,
+- **[04:04](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=244s)** — that can deplete you of the B1. If you're going to take a B1, make sure it's a natural
+- **[04:08](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=248s)** — version. I'll put a link down below for more information on that point. Now you have another
+- **[04:12](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=252s)** — factor too. Melatonin. I don't recommend taking a melatonin supplement. Even though
+- **[04:19](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=259s)** — melatonin will help you get to sleep, it's not good at helping you stay asleep. I suggest
+- **[04:24](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=264s)** — kind of looking at the reason why you might not have enough melatonin in the first place.
+- **[04:28](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=268s)** — And there's a precursor thing that turns in the melatonin. That's called tryptophan. But there's
+- **[04:34](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=274s)** — another thing you can do as well. And this has to do with, I think, a better way to get your
+- **[04:40](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=280s)** — melatonin. See, melatonin is inhibited by blue light. Okay, like sitting in front of your
+- **[04:46](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=286s)** — computer screen, the cell phone, the whole thing that can really deplete your melatonin.
+- **[04:52](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=292s)** — What recharges the melatonin is number one darkness or certain types of light,
+- **[04:59](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=299s)** — like infrared. Over 50% of the sun's rays are infrared. One really good remedy for sleep
+- **[05:06](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=306s)** — cycles is just to be outside more to get exposure to the sun. The sunset and the
+- **[05:13](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=313s)** — sunrise has certain colors of like orange, yellow. That is higher levels of infrared,
+- **[05:19](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=319s)** — which can greatly help wind things down for you. So you can maybe even get one of those
+- **[05:28](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=328s)** — lights that helps wake you up. And this is really good in the wintertime when you're
+- **[05:33](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=333s)** — not outside very much. And it's also good if you have to stay inside a lot and work a lot
+- **[05:38](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=338s)** — inside and you don't have access to the outside, you should have some type of internal
+- **[05:42](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=342s)** — full spectrum light. But these lights are really, really important. We want to
+- **[05:47](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=347s)** — not be overexposed to the blue lights. If you can get incandescent, that would be the best thing.
+- **[05:52](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=352s)** — If you have a fireplace, if you could be exposed to that, that would be great. Or a campfire.
+- **[05:56](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=356s)** — All of this will give you infrared. Very beneficial. Also, I find that when people
+- **[06:02](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=362s)** — take vitamin D before bed, it really helps their sleep. And one more point about magnesium.
+- **[06:10](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=370s)** — Magnesium will not work if you're really low in vitamin D. And vitamin D won't work either
+- **[06:17](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=377s)** — if you're low in magnesium. If you're fasting and you're new at fasting and you go to bed hungry,
+- **[06:24](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=384s)** — that could keep you up because you're not adapted yet and starts releasing sugar.
+- **[06:29](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=389s)** — And all of a sudden you wake up because of the cortisol. Realize if the fasting
+- **[06:34](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=394s)** — triggered your sleep problem, maybe you need to gradually work into it slower. And maybe
+- **[06:43](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=403s)** — you increase your carbs to 50 grams. Have a bunch of berries, for example, and figure out
+- **[06:50](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=410s)** — what 50 grams would be to get more carbs, just to handle this spike in cortisol situation,
+- **[06:56](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=416s)** — which can be a problem for certain people. Now let's talk about what happens when people
+- **[07:01](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=421s)** — cannot stay asleep. They're getting up and they don't get that last part of the sleep.
+- **[07:05](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=425s)** — The sympathetic nervous system activates adrenaline, but also cortisol can be involved as well because
+- **[07:10](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=430s)** — they both work together in the stress response. And this REM sleep, rapid eye movement,
+- **[07:17](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=437s)** — is kind of a very superficial wave. Have these vivid dreams. It's almost like you're awake,
+- **[07:23](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=443s)** — but you're sleeping. So all it takes is just a little stress to kind of bump you out of
+- **[07:28](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=448s)** — that. What you need to do to reduce cortisol is to exercise more, but make sure you do
+- **[07:35](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=455s)** — not over train. Really working hard and you can sweat and use up a lot of your energy,
+- **[07:41](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=461s)** — but don't go overboard and don't do this every single day, maybe twice a week. And then you
+- **[07:47](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=467s)** — stopped exercising. Your mitochondria now are so used to that energy production and you're
+- **[07:53](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=473s)** — just like going to bed with all this extra energy. You just, you have to deplete it.
+- **[07:57](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=477s)** — Long walks are excellent at reducing cortisol as well. Anytime the blood sugars go low,
+- **[08:03](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=483s)** — you could have a situation with high cortisol. But here's the thing. If you do it right,
+- **[08:09](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=489s)** — you do intermittent fasting correctly and gradually over time, it'll be very smooth
+- **[08:14](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=494s)** — where you won't have a major problem with cortisol. Why? Because you've adapted to your
+- **[08:19](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=499s)** — fat and you're burning fat and there's not a need to rely on sugar. So I found that having
+- **[08:25](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=505s)** — a little bit more salt, especially if you're on a low carb diet or you're doing fasting,
+- **[08:29](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=509s)** — is going to be vital. That alone can solve your sleeping problems without even taking magnesium.
+- **[08:36](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=516s)** — Okay. Have some salt right before you go to bed and just see what happens. Cool thing about
+- **[08:39](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=519s)** — salt is salt retains fluid, which means you're not going to get up and have to use the
+- **[08:46](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=526s)** — bathroom as much. If you have a little more salt versus not having enough salt,
+- **[08:51](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=531s)** — you'll tend to pee more at night. But what about anxiety, right? Anxiety is kind of
+- **[08:57](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=537s)** — tied in with insomnia. But if you just have anxiety, obviously you want to evaluate what's
+- **[09:02](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=542s)** — causing anxiety, but if you just have anxiety for no reason, I'm telling you B1 is the answer
+- **[09:08](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=548s)** — to that. You should just try some. If you ever notice someone with anxiety, their inhalation
+- **[09:12](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=552s)** — is not matching the timing of their exhalation. And so what happens is that you don't get the
+- **[09:19](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=559s)** — right CO2 retention to allow the oxygen to go into the cells. I mean, just picture someone
+- **[09:26](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=566s)** — has a panic attack, right? They're getting too much oxygen. So just by slowing down the breath,
+- **[09:32](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=572s)** — and I've done other videos on this, especially if you're trying to go to sleep,
+- **[09:36](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=576s)** — or get back to sleep, breathing through your nose, slowly in, slowly out, the same rhythm.
+- **[09:43](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=583s)** — Boy, that helps a lot. But also like a lot of medications, especially metformin,
+- **[09:48](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=588s)** — will deplete you a B1. Let's say you do need magnesium, right? Magnesium glycinate is a
+- **[09:55](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=595s)** — good for sleep and anxiety because of the glycinate part. The glycinate part of the
+- **[10:02](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=602s)** — magnesium is really glycine. And glycine is a calming amino acid. When should you take
+- **[10:09](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=609s)** — magnesium glycinate? Maybe about a half hour before you go to bed. And so there's other
+- **[10:13](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=613s)** — types of magnesium out there. You can get this magnesium citrate. It works, but probably
+- **[10:18](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=618s)** — not as good. You can take the magnesium oxide or the carbonate. Those don't get absorbed as
+- **[10:25](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=625s)** — well. They're very cheap and they don't seem to work as well as the glycinate. The magnesium
+- **[10:30](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=630s)** — glycinate is really good because so many people are also deficient in glycine. And if you have
+- **[10:36](https://www.youtube.com/watch?v=UHd3ODiJxyQ&t=636s)** — not seen my video where I talk more on glycine, you should check that one out. It's

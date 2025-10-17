@@ -1,0 +1,141 @@
+# The #1 Best Remedy for Eczema
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=Wh8uodrOh-Q](https://www.youtube.com/watch?v=Wh8uodrOh-Q)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=0s)** — Today I want to share the best supplements for very specific health conditions.
+- **[00:04](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=4s)** — And I think everyone should really know this information, because sooner or later you might
+- **[00:09](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=9s)** — end up with one of these problems. And it'd be nice to know a remedy that could help you,
+- **[00:13](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=13s)** — especially if you're not into taking drugs. Now, when people research supplements, they have
+- **[00:18](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=18s)** — this idea that evidence-based research is the best way to find out if a supplement worked.
+- **[00:23](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=23s)** — This is very misleading because when you look at evidence-based research, you're going to
+- **[00:28](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=28s)** — a lot of mixed reviews when we get into supplements, simply because certain organizations,
+- **[00:35](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=35s)** — and I'm not going to mention their name, will purposely do research to invalidate the results
+- **[00:40](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=40s)** — of natural remedies that compete with commercial remedies that make a lot of money. Who's going
+- **[00:47](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=47s)** — to fund a natural remedy? It's very, very expensive to do research. And so you're not
+- **[00:51](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=51s)** — going to see a lot of credible research in the area of nutrition. We have this omitted
+- **[00:56](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=56s)** — research that people will say, well, there's no research to say that it works. That doesn't
+- **[01:01](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=61s)** — mean it doesn't work. It just means that no one wanted to pay for the research to validate
+- **[01:05](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=65s)** — if it worked. So what I'm going to share with you is based on a lot of personal experience
+- **[01:10](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=70s)** — working with a lot of people, tens, hundreds of thousands of people over years,
+- **[01:16](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=76s)** — and just observing what works the majority of the time and what doesn't work, as well as a
+- **[01:21](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=81s)** — lot of deep diving into the mechanics of how nutrition solves a problem. This video is not
+- **[01:26](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=86s)** — going to be a comprehensive study on every single health condition, but I'm going to talk about
+- **[01:32](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=92s)** — the top health conditions and how supplements or a nutrient or remedy could help that problem.
+- **[01:39](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=99s)** — Starting with probably the most important one, which is vitamin D. One thing you need to know
+- **[01:44](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=104s)** — about vitamin D is that we have a lot of resistance against absorbing vitamin D for all
+- **[01:48](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=108s)** — of the reasons from the lack of sun because we're not outside as much, depending on the season,
+- **[01:54](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=114s)** — where you live in relationship to the equator, how old you are, how much you weigh, if you have
+- **[01:59](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=119s)** — insulin resistance or diabetes. You can override all these problems by just taking more vitamin D3.
+- **[02:04](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=124s)** — You would need to have at least 10,000 IUs to up to 50,000 IUs every day and even more
+- **[02:10](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=130s)** — than that depending on certain circumstances. And I've done a lot of videos on this topic. One
+- **[02:14](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=134s)** — of the most important conditions with an S that vitamin D can help you with is autoimmune
+- **[02:20](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=140s)** — diseases. The common theme of an autoimmune condition is inflammation. So vitamin D in
+- **[02:26](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=146s)** — the right dosage can be a very potent anti-inflammatory. Vitamin D regulates
+- **[02:32](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=152s)** — the immune system. In other words, if you have a hyperimmune system, vitamin D can tone it
+- **[02:37](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=157s)** — down. And then we have other conditions where we're lacking immune support. And that would
+- **[02:43](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=163s)** — definitely be something like cancer, AIDS. Vitamin D is essential for those conditions.
+- **[02:47](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=167s)** — Vitamin D also works great for depression. Another condition that you might not realize
+- **[02:53](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=173s)** — that vitamin D is good for is glaucoma. In fact, a lot of problems with the eye can be
+- **[02:58](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=178s)** — greatly improved with high doses of vitamin D3. And then we have the classic low back pain
+- **[03:03](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=183s)** — or anything related to your pelvis like hip pain, deep bone pain, vitamin D3. Because
+- **[03:09](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=189s)** — vitamin D3 can help benign tumors as well as cancer. Another really great benefit of D3 is
+- **[03:16](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=196s)** — anything related to hair loss, dermatitis. A dermatologist would give one remedy, vitamin
+- **[03:22](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=202s)** — D3 in high amounts. They would get amazing results with almost every different type of
+- **[03:28](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=208s)** — skin inflammatory condition. And one key point about vitamin D, anytime you take vitamin D3,
+- **[03:33](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=213s)** — you also need to take the cofactors, magnesium and zinc and vitamin K2. Alright, the next
+- **[03:40](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=220s)** — supplement I'm going to recommend is magnesium glycinate. I don't recommend other forms of
+- **[03:45](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=225s)** — magnesium too much, especially because the absorption is not that great. So what is
+- **[03:50](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=230s)** — magnesium good for? Well, allowing vitamin D to work. They both work together. You could
+- **[03:55](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=235s)** — actually take vitamin D and be severely magnesium deficient and not see any of the results from
+- **[04:00](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=240s)** — The same thing goes with magnesium. If you're taking magnesium without vitamin D3, magnesium
+- **[04:08](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=248s)** — will only work to a certain degree. And anytime you take either magnesium by itself or vitamin D
+- **[04:15](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=255s)** — by itself and then develop side effects, it's usually because you're deficient in the other
+- **[04:21](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=261s)** — cofactor. There's a lot of body conditions that occur in the early morning because of
+- **[04:26](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=266s)** — the deficiency of magnesium. Because magnesium kind of goes on this wave and you're going to hit the
+- **[04:31](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=271s)** — lowest point in the early morning, maybe about between 5 a.m., 6 a.m., 7 a.m. What kind of
+- **[04:37](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=277s)** — problems occur more in the morning? A lot of problems. Cramps in the legs, cramps in the
+- **[04:42](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=282s)** — foot, increased risk of heart attacks, clotting happens more in the morning, strokes
+- **[04:47](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=287s)** — happen in the morning. Even the dawn phenomena, which is the higher blood sugars occur in the
+- **[04:51](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=291s)** — All of that means you need magnesium. Migraine headaches, magnesium. But you need higher
+- **[04:57](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=297s)** — amounts. If you're taking like 400 milligrams, you'll see the results. But with migraines,
+- **[05:02](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=302s)** — sometimes you need to take 800 to 1000 or even more milligrams of magnesium to create the
+- **[05:08](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=308s)** — effect with migraines, depending on how bad they are. Also, magnesium lowers cortisol and
+- **[05:13](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=313s)** — adrenaline. That's why it's good for sleep. Magnesium also helps thin the blood and helps
+- **[05:19](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=319s)** — prevent clotting. Magnesium is good for blood pressure, good for anti-clotting effects,
+- **[05:25](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=325s)** — good to prevent cramping of muscle. But magnesium is really good as an electrolyte to prevent
+- **[05:31](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=331s)** — arrhythmias, as an atrial fibrillation. So that's another really important heart effect.
+- **[05:36](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=336s)** — Magnesium is also at the heart of making energy. So anything related to chronic fatigue,
+- **[05:42](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=342s)** — a loss of energy in the mitochondria, magnesium is the answer. Especially if you're
+- **[05:47](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=347s)** — just don't have that endurance, you need magnesium. The way that I know that I have enough
+- **[05:51](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=351s)** — magnesium is all of the muscles in my body are calm and not tight. This last point is magnesium
+- **[05:58](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=358s)** — to prevent kidney stones. This is a huge reason why people have kidney stones,
+- **[06:04](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=364s)** — is they're magnesium deficient. Next is betaine hydrochloride. That should be taken
+- **[06:10](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=370s)** — anytime you have heartburn or indigestion. Betaine hydrochloride gives the stomach more
+- **[06:16](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=376s)** — acidification, okay, more acid. Most of this is a lack of acid and also the valve just doesn't
+- **[06:23](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=383s)** — close because there's a lack of acid. What betaine hydrochloride does is help you keep
+- **[06:28](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=388s)** — that top valve closed, giving you more acid so you can digest better. Sometimes you have to
+- **[06:34](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=394s)** — take three or four or five or six or seven before a meal to get it to work because it's
+- **[06:39](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=399s)** — highly concentrated. Next remedy is zinc carnosine. Hands down the best remedy for an ulcer in your
+- **[06:46](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=406s)** — stomach and it helps calm down gastritis. Now, next remedy is selenium. Okay, selenium,
+- **[06:53](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=413s)** — believe it or not, is really good if you have AIDS. Selenium seems to fix certain T-cells
+- **[07:00](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=420s)** — that will then help counter this AIDS situation because AIDS is really an acquired
+- **[07:07](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=427s)** — immunodeficiency syndrome. So basically you don't have an immune system anymore. You lost
+- **[07:12](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=432s)** — the quarterback of the immune system. So selenium is very, very important in that. You can get a
+- **[07:16](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=436s)** — good amount of selenium just from one Brazil nut a day. Selenium is also good to lower getting
+- **[07:21](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=441s)** — this autoimmune condition called Hashimoto's. If you have Hashimoto's, which is an autoimmune
+- **[07:26](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=446s)** — thyroid problem, you need selenium. So when you think selenium, think Hashimoto's and AIDS.
+- **[07:31](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=451s)** — Next remedy is vitamin B1. Here's another interesting thing. You need magnesium as a
+- **[07:39](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=459s)** — cofactor to allow B1 to work. So if you take B1 and it doesn't work, it could mean that
+- **[07:43](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=463s)** — you just need magnesium. B1 is an amazing remedy for nervous tension, worry, stress, anxiety,
+- **[07:53](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=473s)** — restless leg syndrome. Restless leg syndrome, you take magnesium and B1 and you're almost
+- **[07:58](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=478s)** — to get rid of that condition. Then we also have another type of B1 that's made in a fat
+- **[08:04](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=484s)** — soluble form called Benfotamine. Benfotamine is really good for anything with nerves in the
+- **[08:10](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=490s)** — peripheral part of the body, in the bottom of the feet, the toes and the hands. You take
+- **[08:15](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=495s)** — four pills through the day. Just keep it in your body and that condition will improve.
+- **[08:20](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=500s)** — Another supplement is calcium lactate for chronic coughing. But I normally do not recommend
+- **[08:28](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=508s)** — any calcium supplements other than if it's just a small amount. But you don't want large
+- **[08:33](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=513s)** — amounts of calcium. Over a thousand, twelve hundred, fifteen hundred milligrams because it's
+- **[08:38](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=518s)** — going to put you at risk for heart problems. And I recommend that you get your calcium from
+- **[08:41](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=521s)** — your food like cheese, vegetables, sardines with the bones in it, but not as a supplement.
+- **[08:47](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=527s)** — Same thing with iron. I don't recommend you taking an iron supplement. I'd rather you get
+- **[08:51](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=531s)** — it from food, red meat, liver or take liver pills. That's good for low blood pressure,
+- **[08:56](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=536s)** — but it's also good for energy. I also recommend potassium for people that are salt sensitive.
+- **[09:02](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=542s)** — They're told to lower their salt. I recommend you just increase your potassium. But the thing
+- **[09:07](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=547s)** — about potassium is that we need so much of it. We need 4,700 milligrams. I don't know of
+- **[09:14](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=554s)** — the next supplements. Coenzyme Q10. If anyone's on a statin, they better be on Coenzyme Q10
+- **[09:20](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=560s)** — because a statin which blocks cholesterol will deplete you of Coenzyme Q10. What about vitamin
+- **[09:26](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=566s)** — E? There's two different forms of vitamin E. I recommend the tocatrinols one because it
+- **[09:30](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=570s)** — works 50 times stronger. And tocatrinols are really good to prevent fibrosis. It's also
+- **[09:35](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=575s)** — good for angina, chest pain. It's good to support the inner layer of the arteries to
+- **[09:40](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=580s)** — prevent plaque. It's also good for infertility. Next supplement is one of my favorites. It's
+- **[09:46](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=586s)** — called tutka. The tutka is a very specialized type of bile salt. A lot of people have a
+- **[09:51](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=591s)** — problem with thickened bile and it creates pressure and causes pain that radiates to the
+- **[09:56](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=596s)** — right shoulder up to the neck. Tutka will just like make that go away. Tutka is also
+- **[10:01](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=601s)** — good for neurological problems in your brain. It does a lot, but I have separate videos on
+- **[10:06](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=606s)** — Let's talk about iodine. Great for fiber cystic breast. That's an excess amount of
+- **[10:11](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=611s)** — estrogen that's causing those cysts. And iodine is a natural inhibitor or regulator of excess
+- **[10:18](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=618s)** — estrogen. So iodine is great for that. Vitamin C is good for collagen, especially
+- **[10:22](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=622s)** — for bleeding gums. If you're brushing your teeth and it turns pink because you're
+- **[10:26](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=626s)** — bleeding easily because your gums are inflamed, you need vitamin C. Probiotics.
+- **[10:31](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=631s)** — If someone's on a lot of diet soda, they're going to really mess up their gut and they
+- **[10:34](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=634s)** — get off the artificial sweeteners. Biotin. Good for hair, nails, and skin, especially
+- **[10:40](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=640s)** — to make your hair and nails grow. Manganese. Good for Tourette's and Ticks. NAC is a
+- **[10:48](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=648s)** — wonderful supplement if you've accidentally taken too much Tylenol. It's really good
+- **[10:53](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=653s)** — for anything poisonous to the liver. Those snake bites, poisonous mushrooms.
+- **[10:57](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=657s)** — Think NAC and milk thistle. Mastic gum is good for gastritis. If you've tried a lot of different
+- **[11:05](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=665s)** — supplements for your sleep and it hasn't worked, I recommend melatonin for some people.
+- **[11:12](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=672s)** — Tends to help a lot of people and it does a lot of other things, which I'll have to do a
+- **[11:16](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=676s)** — video on. But I recommend that for severe sleep problems that you've tried everything
+- **[11:21](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=681s)** — and nothing's worked. Niacin. Really good for anything related to cholesterol. And I
+- **[11:27](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=687s)** — recommend taking higher amounts of it. 500mg, 1000mg. Work up to it. You will have a flush
+- **[11:32](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=692s)** — response and that's normal, but you want the one with the flush. Clove oil. Great for any
+- **[11:38](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=698s)** — pain in your teeth or gums. Now of course I can go on and on and on and on, but this is
+- **[11:43](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=703s)** — a fairly long video. I think you've learned the most important effects of certain
+- **[11:48](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=708s)** — supplements. If you want all this in a quick download, I put the link down below. Check it
+- **[11:54](https://www.youtube.com/watch?v=Wh8uodrOh-Q&t=714s)** — out. Go ahead and download it and use it when you need it.

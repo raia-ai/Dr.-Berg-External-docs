@@ -1,0 +1,96 @@
+# The Benefits of Drinking Clove Water at Night
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=XEcssz8NOhg](https://www.youtube.com/watch?v=XEcssz8NOhg)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=XEcssz8NOhg&t=0s)** — The benefits of drinking clove water at night. Let's talk about this.
+- **[00:03](https://www.youtube.com/watch?v=XEcssz8NOhg&t=3s)** — Cloves at one time were worth more than gold. This is what they look like. You could see it in this
+- **[00:09](https://www.youtube.com/watch?v=XEcssz8NOhg&t=9s)** — little jar right here. They're these little tiny structures. A lot of people might have had these
+- **[00:14](https://www.youtube.com/watch?v=XEcssz8NOhg&t=14s)** — in like ham and they're sold as a spice. And you have them already. You just need to know how
+- **[00:20](https://www.youtube.com/watch?v=XEcssz8NOhg&t=20s)** — to use them and what they're good for. They were so valuable. They were exchanging them with
+- **[00:24](https://www.youtube.com/watch?v=XEcssz8NOhg&t=24s)** — gold. Amazing. They've been used in China for over 2,000 years for certain medicines. They
+- **[00:28](https://www.youtube.com/watch?v=XEcssz8NOhg&t=28s)** — were also used in the Black Plague. You might have seen pictures of those people with those long
+- **[00:33](https://www.youtube.com/watch?v=XEcssz8NOhg&t=33s)** — masks. They'd be basically burning certain herbs and they would breathe in the vapors. Well,
+- **[00:37](https://www.youtube.com/watch?v=XEcssz8NOhg&t=37s)** — one of the spices they used was clove because of its anti-viral and antibacterial properties.
+- **[00:42](https://www.youtube.com/watch?v=XEcssz8NOhg&t=42s)** — Also, in early dentistry, before they had certain medications that numbed the tooth
+- **[00:46](https://www.youtube.com/watch?v=XEcssz8NOhg&t=46s)** — problem, they used clove oil. I mean, in fact, even with minor surgeries, they used
+- **[00:51](https://www.youtube.com/watch?v=XEcssz8NOhg&t=51s)** — clove oil because of its analgesic effect. Very similar to the synthetic lidocaine that
+- **[00:56](https://www.youtube.com/watch?v=XEcssz8NOhg&t=56s)** — certain dentists use. So it's a topical and you can put it externally on your skin. You can also
+- **[01:01](https://www.youtube.com/watch?v=XEcssz8NOhg&t=61s)** — put it on your gums. You could put it directly on the tooth. If there's a cavity and the nerve
+- **[01:06](https://www.youtube.com/watch?v=XEcssz8NOhg&t=66s)** — is exposed, it will help numb that nerve. Now, the cool thing about this is there's virtually
+- **[01:10](https://www.youtube.com/watch?v=XEcssz8NOhg&t=70s)** — no side effects. It has antibacterial, anti-fungal, anti-candida, anti-viral properties.
+- **[01:20](https://www.youtube.com/watch?v=XEcssz8NOhg&t=80s)** — In addition to numbing the tooth or numbing pain, it can also go after the microbes that
+- **[01:26](https://www.youtube.com/watch?v=XEcssz8NOhg&t=86s)** — are growing there, whether it's a fungal, candida, bacteria, or even virus. And where I found this
+- **[01:31](https://www.youtube.com/watch?v=XEcssz8NOhg&t=91s)** — information was in certain patents on using the oil of clove for various things. Helping increase
+- **[01:39](https://www.youtube.com/watch?v=XEcssz8NOhg&t=99s)** — the bioflow as well as increasing digestive enzymes. They patent a mouthwash, toothpaste,
+- **[01:44](https://www.youtube.com/watch?v=XEcssz8NOhg&t=104s)** — as well as a gingivitis treatment. So it works on everything oral. And then I started
+- **[01:49](https://www.youtube.com/watch?v=XEcssz8NOhg&t=109s)** — looking at medications and what medications that they can compare to in a similar
+- **[01:55](https://www.youtube.com/watch?v=XEcssz8NOhg&t=115s)** — effectiveness or even work better. So in this first study, they compared clove oil to something
+- **[02:00](https://www.youtube.com/watch?v=XEcssz8NOhg&t=120s)** — called benzocaine, which is a pain reliever that dentists use to numb the teeth. And this was in
+- **[02:05](https://www.youtube.com/watch?v=XEcssz8NOhg&t=125s)** — the Journal of Dentistry. They found that this oil from clove worked faster, it was longer
+- **[02:11](https://www.youtube.com/watch?v=XEcssz8NOhg&t=131s)** — lasting, and more effective for toothaches as well as tooth infections because it also had this
+- **[02:17](https://www.youtube.com/watch?v=XEcssz8NOhg&t=137s)** — anti-microbial effect as well. In another study, they compared eugenol to hydrocortisone
+- **[02:23](https://www.youtube.com/watch?v=XEcssz8NOhg&t=143s)** — and they found the effectiveness was equal or greater in reducing swelling and redness of the
+- **[02:29](https://www.youtube.com/watch?v=XEcssz8NOhg&t=149s)** — skin. And this study was in one of the inflammatory research journals. The next study I
+- **[02:33](https://www.youtube.com/watch?v=XEcssz8NOhg&t=153s)** — looked at was on fungal infections like toenail fungus, athlete's foot, and they compared
+- **[02:39](https://www.youtube.com/watch?v=XEcssz8NOhg&t=159s)** — tea tree oil to clove oil. And clove oil killed candida and fungus faster. Then there was
+- **[02:45](https://www.youtube.com/watch?v=XEcssz8NOhg&t=165s)** — a comparison between clove oil and lidocaine. And in that study, clove oil had longer lasting
+- **[02:52](https://www.youtube.com/watch?v=XEcssz8NOhg&t=172s)** — effects for numbing. That was in the Journal of Pain Research. So now let's get into how you can
+- **[02:57](https://www.youtube.com/watch?v=XEcssz8NOhg&t=177s)** — use this because you already have this in your pantry. You just need to know how to use it
+- **[03:01](https://www.youtube.com/watch?v=XEcssz8NOhg&t=181s)** — and what conditions you can use this on. And I'm going to give you a couple different
+- **[03:05](https://www.youtube.com/watch?v=XEcssz8NOhg&t=185s)** — recipes that you can make this in a salve and liquid that you can drink before bed.
+- **[03:10](https://www.youtube.com/watch?v=XEcssz8NOhg&t=190s)** — But let's first talk about the conditions that it's good for. Now of course I already
+- **[03:14](https://www.youtube.com/watch?v=XEcssz8NOhg&t=194s)** — mentioned it's great for anything with teeth pain or biofilms like plucking, things like
+- **[03:19](https://www.youtube.com/watch?v=XEcssz8NOhg&t=199s)** — And of course you can even just take one of these cloves and then just suck on it. Or you can just
+- **[03:24](https://www.youtube.com/watch?v=XEcssz8NOhg&t=204s)** — take the oil from it and with a little cotton swab and dab it on the tooth and the gum around
+- **[03:29](https://www.youtube.com/watch?v=XEcssz8NOhg&t=209s)** — the tooth. But if you have a cavity you want to actually put it right into that cavity directly.
+- **[03:34](https://www.youtube.com/watch?v=XEcssz8NOhg&t=214s)** — Another application is for muscle pain, okay, as well as joint pain. You're going to basically
+- **[03:40](https://www.youtube.com/watch?v=XEcssz8NOhg&t=220s)** — just take a couple drops, put it in a little olive oil or coconut oil, and rub it into the
+- **[03:46](https://www.youtube.com/watch?v=XEcssz8NOhg&t=226s)** — You can also mix a couple drops in Epsom salts and water all dissolved nicely and rub that into
+- **[03:54](https://www.youtube.com/watch?v=XEcssz8NOhg&t=234s)** — the muscle as well. Because the Epsom salts is the magnesium that can also help the muscles.
+- **[03:59](https://www.youtube.com/watch?v=XEcssz8NOhg&t=239s)** — Some people use it as a lip balm and you can put this on like a colesor which is Herpes
+- **[04:04](https://www.youtube.com/watch?v=XEcssz8NOhg&t=244s)** — Simplex. You'd have to mix a couple drops with either beeswax or coconut oil and just
+- **[04:10](https://www.youtube.com/watch?v=XEcssz8NOhg&t=250s)** — rub it into the lip. Remember it's anti-viral as well and Herpes Simplex is a virus. With
+- **[04:15](https://www.youtube.com/watch?v=XEcssz8NOhg&t=255s)** — mosquito repellent you would put a couple drops in a little spray bottle and you would spray that
+- **[04:20](https://www.youtube.com/watch?v=XEcssz8NOhg&t=260s)** — on your body. I actually use this on my cattle in the summer with all of these flies, not
+- **[04:27](https://www.youtube.com/watch?v=XEcssz8NOhg&t=267s)** — mosquitoes, and it works like a charm. But it's non-toxic. All right now the following things
+- **[04:31](https://www.youtube.com/watch?v=XEcssz8NOhg&t=271s)** — I'm going to talk about are using clove water which I'll explain how to prepare that. And I
+- **[04:36](https://www.youtube.com/watch?v=XEcssz8NOhg&t=276s)** — would drink this before bed. It seems to work really good because they help relax you and
+- **[04:41](https://www.youtube.com/watch?v=XEcssz8NOhg&t=281s)** — they can help you drift off into a wonderful sleep as well. So might as well take it before
+- **[04:45](https://www.youtube.com/watch?v=XEcssz8NOhg&t=285s)** — you go to bed. It's not a necessity but it can definitely help. So the first thing it does is
+- **[04:49](https://www.youtube.com/watch?v=XEcssz8NOhg&t=289s)** — it helps to detoxify the liver. So it's going to stimulate some of the enzymes to help break
+- **[04:54](https://www.youtube.com/watch?v=XEcssz8NOhg&t=294s)** — things down in the liver. It's going to help you with digestion. So if you have bloating,
+- **[04:59](https://www.youtube.com/watch?v=XEcssz8NOhg&t=299s)** — indigestion, gas, consume some of this clove water. Maybe you do this after a meal when you're
+- **[05:03](https://www.youtube.com/watch?v=XEcssz8NOhg&t=303s)** — bloating and it can help reduce the bloating. Another very potent effect of this clove water
+- **[05:07](https://www.youtube.com/watch?v=XEcssz8NOhg&t=307s)** — is to use it for respiratory problems like bronchitis, mucus in the lungs, a cold, a cough,
+- **[05:15](https://www.youtube.com/watch?v=XEcssz8NOhg&t=315s)** — asthma. You can consider it as like a natural antibiotic but without the side effects. Some
+- **[05:20](https://www.youtube.com/watch?v=XEcssz8NOhg&t=320s)** — people also use it for cognitive improvements to improve the memory, concentration, the focus.
+- **[05:26](https://www.youtube.com/watch?v=XEcssz8NOhg&t=326s)** — But this clove water also works with heart stuff so it can actually support a healthy heart
+- **[05:31](https://www.youtube.com/watch?v=XEcssz8NOhg&t=331s)** — as well. Especially when you get into blood circulation. Anything related to circulation,
+- **[05:36](https://www.youtube.com/watch?v=XEcssz8NOhg&t=336s)** — clove water is awesome. It also has immune properties so it can help support a healthy
+- **[05:41](https://www.youtube.com/watch?v=XEcssz8NOhg&t=341s)** — immune system because it's antimicrobial. Some people even use it as a mouthwash to help
+- **[05:46](https://www.youtube.com/watch?v=XEcssz8NOhg&t=346s)** — freshen their breath and I've already talked about the great benefits for biofilms and
+- **[05:49](https://www.youtube.com/watch?v=XEcssz8NOhg&t=349s)** — breaking down plaque. And then of course the last one which I kind of already mentioned was
+- **[05:54](https://www.youtube.com/watch?v=XEcssz8NOhg&t=354s)** — using this as a sleep aid because it's a natural sedative without the negative effects.
+- **[05:59](https://www.youtube.com/watch?v=XEcssz8NOhg&t=359s)** — It does not have side effects like sleeping medication does. And there's also some tryptophan
+- **[06:04](https://www.youtube.com/watch?v=XEcssz8NOhg&t=364s)** — there that will actually increase serotonin and help you increase melatonin. So how do you
+- **[06:09](https://www.youtube.com/watch?v=XEcssz8NOhg&t=369s)** — make clove water? What you do is you take about four or five of these little cloves.
+- **[06:13](https://www.youtube.com/watch?v=XEcssz8NOhg&t=373s)** — Okay, put them in a cup of water and bring it to a boil and then take it off boiling
+- **[06:18](https://www.youtube.com/watch?v=XEcssz8NOhg&t=378s)** — so it's simmering for five minutes. Now make sure that you cover it while it's simmering
+- **[06:23](https://www.youtube.com/watch?v=XEcssz8NOhg&t=383s)** — because you don't want to have all these vapors escape. A lot of the remedy is in the
+- **[06:29](https://www.youtube.com/watch?v=XEcssz8NOhg&t=389s)** — vapors that are coming off this thing that are supposed to go back into the water. After five
+- **[06:33](https://www.youtube.com/watch?v=XEcssz8NOhg&t=393s)** — minutes let it cool for one hour. What I like to do is put it back in the fridge and then what
+- **[06:37](https://www.youtube.com/watch?v=XEcssz8NOhg&t=397s)** — you want to do is consume it 30 minutes before you go to bed. Now if you're using for
+- **[06:41](https://www.youtube.com/watch?v=XEcssz8NOhg&t=401s)** — children it might be a little bitter so you might want to add a little bit of honey to it.
+- **[06:45](https://www.youtube.com/watch?v=XEcssz8NOhg&t=405s)** — Maybe a half a teaspoon. Dissolve raw honey into it and then have them drink it. It's
+- **[06:50](https://www.youtube.com/watch?v=XEcssz8NOhg&t=410s)** — actually pretty delicious with honey or I think it's good without it. If you want to make
+- **[06:54](https://www.youtube.com/watch?v=XEcssz8NOhg&t=414s)** — this into a cream just put a couple drops into some coconut oil or olive oil and use that.
+- **[07:00](https://www.youtube.com/watch?v=XEcssz8NOhg&t=420s)** — Also if you have like some type of wound that you want to increase the healing I would use aloe.
+- **[07:06](https://www.youtube.com/watch?v=XEcssz8NOhg&t=426s)** — Put a couple drops of aloe and put that over the wound so you can speed up healing and it
+- **[07:10](https://www.youtube.com/watch?v=XEcssz8NOhg&t=430s)** — can also act as an antiseptic. Now if you haven't seen my other video on clove I think
+- **[07:14](https://www.youtube.com/watch?v=XEcssz8NOhg&t=434s)** — you'll really enjoy it. I put it up right here. Check it out.

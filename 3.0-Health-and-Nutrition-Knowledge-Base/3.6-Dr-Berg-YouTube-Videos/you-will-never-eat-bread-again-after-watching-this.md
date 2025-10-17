@@ -1,0 +1,99 @@
+# You Will NEVER Eat Bread Again after Watching This
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=3Mo1F8ce1yY](https://www.youtube.com/watch?v=3Mo1F8ce1yY)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=0s)** — You may never eat bread again after watching this video.
+- **[00:03](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=3s)** — I'm talking about certain types of bread. There's actually two types of bread. The good
+- **[00:06](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=6s)** — and the bad.
+- **[00:08](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=8s)** — A lot of people have a confusion on which is which. Now, you can eat certain types of bread
+- **[00:12](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=12s)** — and I'm going to show you which ones I'm going to recommend. But humans have been
+- **[00:15](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=15s)** — consuming bread for a very long time. I mean, it's recommended in the Bible. Many
+- **[00:20](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=20s)** — health organizations recommend eating bread. Even the food pyramid recommends that you
+- **[00:23](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=23s)** — should eat bread. But all bread is not created equal. There's a huge difference between
+- **[00:28](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=28s)** — this bread and this over here. Of course, this entire topic revolves around this idea of
+- **[00:35](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=35s)** — whole grains being healthy. So of course, they put it in cereals and they call it
+- **[00:39](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=39s)** — heart healthy. This is the cereal that I consumed growing up as a child. Here's
+- **[00:43](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=43s)** — another one. But what are the other ingredients they're putting in it? I mean, right here,
+- **[00:46](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=46s)** — it says contains bioengineered food ingredients. That's another word for GMOs. Well,
+- **[00:52](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=52s)** — apparently even instant oatmeal is heart healthy because it has the whole grains.
+- **[00:57](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=57s)** — Of course, they kind of downplay the massive amounts of sugar and additional ingredients.
+- **[01:02](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=62s)** — Here's more instant oatmeal. And then they have the 100% whole grain certification right
+- **[01:09](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=69s)** — here. They recommend to eat at least three ounces or equivalents three servings size of
+- **[01:13](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=73s)** — whole grains every single day for fiber. By the way, there's not a lot of fiber
+- **[01:17](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=77s)** — in whole grains compared to vegetables. And of course, we even have snacks for babies
+- **[01:22](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=82s)** — here. Grain and grow. Here we go. Whole grain goodness, of course, with added sugar and
+- **[01:29](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=89s)** — starches. Okay, really simply, we have the bad bread and the good bread. You're never going
+- **[01:34](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=94s)** — to get people off bread. There's things that you can buy that are healthier. And I'm about
+- **[01:38](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=98s)** — to tell you why you don't want to eat this version right here, because this is going to
+- **[01:41](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=101s)** — create a lot of inflammation in your gut. It's going to create weight gain. It's going
+- **[01:45](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=105s)** — to create blood sugar issues. But the reason people love bread so much is really wrapped
+- **[01:50](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=110s)** — around this one protein called gluten. Now what's so special about gluten? First of all,
+- **[01:56](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=116s)** — it's the only protein that humans can't digest. Yet we eat a lot of it. But what's unique about
+- **[02:02](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=122s)** — this protein in grains is that it has a certain mouthfeel. So a lot of people are
+- **[02:08](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=128s)** — addicted to bread because of that pleasure feeling that they get. Opioids get rid of pain.
+- **[02:13](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=133s)** — They actually get rid of stress. But the problem is, once you start stimulating those
+- **[02:18](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=138s)** — receptors in the brain, you start becoming more addicted. American bread especially has...
+- **[02:22](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=142s)** — in the last 50 years, we've been increasing the amount of gluten in bread. And so now,
+- **[02:28](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=148s)** — if we compare now to back 50 years ago, we have five times as much gluten. So what's
+- **[02:32](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=152s)** — the problem with gluten? It creates inflammation in your gut. It creates diseases like what's
+- **[02:37](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=157s)** — called Celiac, which destroys the inside of your gut. A lot of people have allergies to
+- **[02:41](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=161s)** — this as well. In fact, certain autoimmune diseases, especially Hashimoto's, can be
+- **[02:45](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=165s)** — triggered by this whole gluten interaction with the gut. And then it goes across the
+- **[02:50](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=170s)** — immune barrier and then your body starts to misidentify these proteins as being foreign.
+- **[02:56](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=176s)** — And then now you have these antibodies against it. And sometimes they can cross over into
+- **[03:01](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=181s)** — our own tissues. And now we start having antibodies against our own tissues. Autoimmune
+- **[03:05](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=185s)** — diseases are the number one type of disease that actually surpassed heart disease and
+- **[03:11](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=191s)** — And out of all the autoimmune diseases, we have Hashimoto's is at the top of the list. And that
+- **[03:17](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=197s)** — is the thyroid autoimmune disease. And so what's the alternative? I like several types of
+- **[03:24](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=204s)** — alternatives. Now, what is einkorn flour? Well, that's an ancient grain that hasn't been
+- **[03:27](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=207s)** — altered, right? In a long, long time. So we've made this bread last night with einkorn
+- **[03:33](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=213s)** — flour. The einkorn gluten is less elastic. It's good for flat breads. It doesn't necessarily
+- **[03:40](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=220s)** — create as much of these sensations as well, but it's pretty darn close. But on the flip side,
+- **[03:46](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=226s)** — very few people have gut reactions to this. And the type of starch that's in this bread
+- **[03:52](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=232s)** — creates a less of a spike versus regular American bread. You have a different starch that will
+- **[03:57](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=237s)** — just really create this high spike in your blood sugars. The actual genetics of this grain,
+- **[04:03](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=243s)** — even though it's like it's a wheat flour, is very different than the genetics that they're
+- **[04:09](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=249s)** — using right here. So it's very, very different. And then we have this other thing called the
+- **[04:14](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=254s)** — phytic acid. Phytic acid binds with minerals. It connects with minerals, especially zinc,
+- **[04:23](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=263s)** — iron, magnesium, manganese, calcium, and copper. So when you consume foods high in phytic acid,
+- **[04:31](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=271s)** — it locks up these minerals and it goes through the small intestine. Phytic acid cannot be
+- **[04:37](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=277s)** — absorbed in the small intestine. So guess what? Those minerals are stuck to it. And now these
+- **[04:42](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=282s)** — minerals are going to be lost through the digestion. So when you consume foods high in
+- **[04:47](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=287s)** — phytic acid, it actually depletes you of certain minerals. Now, is this going to really
+- **[04:52](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=292s)** — be a problem with nutritional levels? Maybe not. It depends how much you consume bread.
+- **[04:57](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=297s)** — Certain cultures who eat a lot of grains, a lot of bread, have zinc deficiencies,
+- **[05:02](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=302s)** — iron deficiencies because of this phytic acid. Now, how do you get rid of phytic acid? Well,
+- **[05:07](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=307s)** — you can refine it. You can just use regular flour. So in this wonderful bread right here,
+- **[05:13](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=313s)** — it doesn't have much phytic acid, but of course it has a lot of other things. But you can also
+- **[05:18](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=318s)** — ferment it, okay, like sourdough bread, or even sprout it. And by the way, this bread
+- **[05:24](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=324s)** — is fermented. But sprouted bread, as in Ezekiel bread, has low amounts of phytic acid. The
+- **[05:38](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=338s)** — Also, I do notice when you consume bread in Europe, especially France or even Italy,
+- **[05:44](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=344s)** — and you buy bread from a bakery, it's a whole different experience. And that's simply because
+- **[05:48](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=348s)** — of the quality and they ferment the bread longer and they have different types of wheat
+- **[05:53](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=353s)** — that's not so high in gluten. I mean, think about this. France is a lot smaller than the U.S.
+- **[05:59](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=359s)** — yet they have 30,000 bakeries and the U.S. has 3,000. So you don't normally find bread
+- **[06:06](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=366s)** — in a bakery in the U.S. You go to the grocery store and it's been sitting on the shelf for
+- **[06:11](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=371s)** — quite some time and that's the type of bread that people consume. And I guess I should probably
+- **[06:15](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=375s)** — just quickly mention some of the dough conditioners are banned in Europe, but they're
+- **[06:20](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=380s)** — allowed in America. So BVO or ADA, which is a whitener or potassium bromate, these chemicals
+- **[06:26](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=386s)** — are banned in Europe, but we allow them, of course, in our wonderful bread. I'll put a few of
+- **[06:31](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=391s)** — those recipes down below and I think you're going to like them. But we're always experimenting
+- **[06:35](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=395s)** — with different flours. We've got almond flour, coconut flour, and of course, einkorn flour as well.
+- **[06:39](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=399s)** — A few more points that you need to know about with American bread. The way they dry the wheat
+- **[06:43](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=403s)** — out in America is they use glyphosate. That's the stuff in Roundup, okay? They spray it to
+- **[06:50](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=410s)** — dry out the wheat. Now other things that are exposed to glyphosate, if it's genetically
+- **[06:54](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=414s)** — modified, but wheat typically is not genetically modified, but the point is that it has glyphosate.
+- **[07:00](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=420s)** — You don't want to have your body exposed to this. Sometimes they use bleach. And when you heat
+- **[07:06](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=426s)** — or you toast this and you kind of burn it and you eat it, you get a nice dose of what's called
+- **[07:13](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=433s)** — acrylamide. Acrylamide is known to cause cancer. So that's just one more negative on this
+- **[07:18](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=438s)** — this list right here. Now I hope I convinced you to avoid certain types of bread, okay?
+- **[07:23](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=443s)** — And if you're still not convinced, you might want to watch this video right here
+- **[07:26](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=446s)** — and also click down below with some of these recipes that I just talked about, including this
+- **[07:33](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=453s)** — one right here. I think you'll really enjoy it. You can cut this up, put it in the toaster.
+- **[07:36](https://www.youtube.com/watch?v=3Mo1F8ce1yY&t=456s)** — I think you'll be pleasantly surprised at how delicious it is.

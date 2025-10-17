@@ -1,0 +1,106 @@
+# The Mind-Blowing Benefits of Berberine
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=QX6gCRJZ0dk](https://www.youtube.com/watch?v=QX6gCRJZ0dk)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=0s)** — Today I'm going to share some very important information about zinc.
+- **[00:03](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=3s)** — And the reason I'm talking about zinc is that zinc is involved in so many different things.
+- **[00:09](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=9s)** — It's involved in 300 different enzymes and over a thousand different factors related to your DNA.
+- **[00:16](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=16s)** — Its functions are very wide and helping certain enzymes, not just for digestion,
+- **[00:23](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=23s)** — but for a lot of other things. And if you can identify early signs of a zinc deficiency,
+- **[00:27](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=27s)** — sometimes they call it a subclinical deficiency, then you can prevent advanced problems related to
+- **[00:34](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=34s)** — zinc. And that could include a complete loss of appetite and then you end up having anorexia,
+- **[00:40](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=40s)** — necrosis because the tissue is not healing. And so zinc actually helps with wound healing.
+- **[00:46](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=46s)** — And if you're deficient in zinc, you can develop ulcers externally or internally on your
+- **[00:51](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=51s)** — body. Even ulcers in your mouth. And even some elderly that have these ulcers because
+- **[00:56](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=56s)** — they're in this bed and they're unhealing ulcers or wounds, they need zinc big time.
+- **[01:03](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=63s)** — Another advanced problem with zinc is hypogonadism where your testicles actually
+- **[01:08](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=68s)** — atrophy or shrink. So you're obviously going to have low testosterone. That could be an
+- **[01:14](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=74s)** — advanced zinc deficiency. And I'm going to put all this research down below in the description.
+- **[01:19](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=79s)** — Another interesting advanced problem would be thymus atrophy. The thymus gland is on top
+- **[01:24](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=84s)** — of the heart and that has a huge influence of making certain T cells that are involved with
+- **[01:30](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=90s)** — the immune system. It's like a training camp for your immune system. And if you have atrophy
+- **[01:34](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=94s)** — of the thymus gland, can you imagine what's going to happen to your immune system? You're
+- **[01:38](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=98s)** — not going to have an immune system. Then we have the adrenal hormone called cortisol. Your
+- **[01:43](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=103s)** — cortisol can greatly go up if you're deficient in zinc. Which could be the reason why it
+- **[01:48](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=108s)** — affects the thymus, the immune system. Because when you have high cortisol, that can paralyze
+- **[01:53](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=113s)** — the immune system in the white blood cell. You also have muscle loss because of the involvement
+- **[01:58](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=118s)** — with zinc. In fact, one of the best sources of zinc is in animal meat. Because we need that
+- **[02:04](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=124s)** — zinc in our muscles to create antioxidants to counter all the oxidative damage that occurs,
+- **[02:09](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=129s)** — especially with exercise. So if you can identify early signs of a zinc deficiency,
+- **[02:15](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=135s)** — you can head off or prevent bigger problems. And I want to show you one of my favorite
+- **[02:20](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=140s)** — books. It's called The Technology of War by Sun Tzu. You probably heard of The Art of War,
+- **[02:26](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=146s)** — right? But this book is a lot different. If you take a look at some of the books on Art of War,
+- **[02:30](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=150s)** — there's like 45 different versions. A lot of them are altered from the original translation.
+- **[02:36](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=156s)** — This book is an exact duplication of the original text that Sun Tzu wrote in Chinese.
+- **[02:43](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=163s)** — In this section, he's talking about supreme skill is not 100 victories in 100 battles.
+- **[02:48](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=168s)** — Supreme skill is subduing the enemy's operations and its forces without battle. And if we can
+- **[02:55](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=175s)** — relate this to this topic on your body, which I do all the time, you don't want to wait until
+- **[02:59](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=179s)** — you have an advanced disease before you do something about it. If you understand the early
+- **[03:04](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=184s)** — signs or the symptoms of something, you can easily prevent it because you have the knowledge.
+- **[03:09](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=189s)** — And so that way, understanding your body's early signs for something is extremely valuable.
+- **[03:15](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=195s)** — I have a lot of videos on that. So let's talk about the most common early sign of a zinc
+- **[03:20](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=200s)** — deficiency. Well, first of all, you have to have the intelligence or understanding of
+- **[03:25](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=205s)** — where zinc tends to affect certain organs more than others. And it just so happens
+- **[03:29](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=209s)** — that the organ that is most affected by a zinc deficiency is the pancreas. Okay? Now
+- **[03:36](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=216s)** — there's two parts of the pancreas. You have one that controls your blood sugars,
+- **[03:39](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=219s)** — which has to do with insulin, which zinc has a lot to do with. But also the other
+- **[03:43](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=223s)** — is called the extracrine part of the gland, which has to do with enzymes. Okay? And so this is the
+- **[03:50](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=230s)** — symptom. Are you ready for this? Foul smelling stool that floats. Yeah, that's right. You
+- **[03:56](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=236s)** — might have some cramping. You might have a little diarrhea. You might have abdominal pain.
+- **[04:01](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=241s)** — You might even have bloating. Okay? But this is a very easy thing to identify. And yes,
+- **[04:06](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=246s)** — it could come from other things too. It could come from what you just ate, but it can also
+- **[04:11](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=251s)** — zinc deficiency. And just as a side note, I did another video about this, I think four years ago,
+- **[04:16](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=256s)** — and there is another common first symptom, which is shortness of breath upon exertion,
+- **[04:23](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=263s)** — which is another indicator, which is good to know because sometimes people think, well,
+- **[04:26](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=266s)** — I'm just out of shape. Well, it could be a zinc deficiency. So we need to look at the
+- **[04:31](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=271s)** — diet. Are you eating enough zinc? Or maybe it's coming from what's called gut malabsorption.
+- **[04:38](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=278s)** — Maybe you have inflammation in your gut. That's a big cause of a zinc deficiency. Another cause
+- **[04:44](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=284s)** — of a zinc deficiency is consuming something with something called phytates, okay? Or phytic acid,
+- **[04:49](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=289s)** — which is in grains. If you are a cereal eater, if you eat a lot of refined carbs,
+- **[04:55](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=295s)** — you're going to get phytic acid, and that is going to potentially create a zinc deficiency.
+- **[05:01](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=301s)** — There's millions of children that have a zinc deficiency around the world that are consuming
+- **[05:07](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=307s)** — a lot of cereal. They don't consume a lot of meats, especially red meat. And then they end
+- **[05:13](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=313s)** — up with this diarrhea, which is very, very dangerous. And out of all the foods that are
+- **[05:18](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=318s)** — the highest in zinc, it's oysters. Okay. And then you have crab, other shellfish, meats,
+- **[05:25](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=325s)** — fish. And then you might have some zinc in cashews and peanuts, but you want to just look
+- **[05:30](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=330s)** — at the whole situation to see, could this situation be coming from my diet? Is it coming
+- **[05:35](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=335s)** — from something that I'm eating that's creating this deficiency? Because also sugar or even being a
+- **[05:41](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=341s)** — diabetic can create a deficiency. Too much stress can create a deficiency in zinc. Or let's say,
+- **[05:47](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=347s)** — for example, you drink alcohol on a regular basis, that could create a zinc deficiency.
+- **[05:51](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=351s)** — Okay. Having an infection can create a deficiency of zinc. So I think it's very
+- **[05:56](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=356s)** — important to use principles like this to be able to predict. And to be able to predict,
+- **[06:01](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=361s)** — you have to have the right information. You have to have all of the information to be able
+- **[06:05](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=365s)** — to understand the consequences or the early signs of something that can lead into something
+- **[06:10](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=370s)** — bigger. Because typically what would you do if you have a symptom like a digestive issue? You
+- **[06:14](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=374s)** — might go to the doctor, he gives you a pill, it masks the symptom. Your symptom is better.
+- **[06:21](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=381s)** — The problem is still there. And then it kind of goes downhill from there. And just to give
+- **[06:25](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=385s)** — you a little more intel or information on zinc, zinc is very much involved with your sleep
+- **[06:33](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=393s)** — If you have sleep problems, let's say you don't get enough of the last part of your sleep,
+- **[06:37](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=397s)** — zinc could be something you might want to take right before bed. Zinc is also heavily involved
+- **[06:42](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=402s)** — in a part of your brain called the hippocampus, which is kind of like the relay part for
+- **[06:49](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=409s)** — memory and learning and cognitive function. Zinc is also, like I said before, involved with
+- **[06:55](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=415s)** — insulin. Okay. If you don't have enough zinc, it can put you at risk for becoming a
+- **[07:01](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=421s)** — Zinc is also involved in making neurotransmitters like serotonin and dopamine, which can affect
+- **[07:07](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=427s)** — your mood. And zinc also makes up a very important group of antioxidants involved with
+- **[07:15](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=435s)** — your brain, your heart, and your muscles. The three parts of your body that use a lot of
+- **[07:22](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=442s)** — oxygen. And if you look a little bit deeper, zinc helps with this oxidative stress that's
+- **[07:28](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=448s)** — involved with your mitochondria, the energy factory of all these tissues. So I want you to
+- **[07:33](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=453s)** — start looking at these symptoms a little bit differently. Instead of just jumping and treating
+- **[07:37](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=457s)** — them, try to understand what your body is telling you. Realize that a lot of these
+- **[07:42](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=462s)** — problems could be related to a nutritional deficiency that could be related to your diet.
+- **[07:46](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=466s)** — And use these indicators or little red flags as something that you can have advanced knowledge
+- **[07:51](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=471s)** — or prediction to then prevent something. But unfortunately, this idea of prevention,
+- **[07:57](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=477s)** — you can't really talk too much about it because even like on the bottles of different nutrients,
+- **[08:03](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=483s)** — you'll see there's a mandatory label. It says this product is not intended to diagnose,
+- **[08:08](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=488s)** — treat, cure, or prevent any disease. So it's illegal to even prevent a disease. So what I
+- **[08:15](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=495s)** — try to do in my videos is to give you the knowledge of what you could end up with. So then
+- **[08:20](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=500s)** — that way you don't have to end up with a situation where you're battling it, which is
+- **[08:25](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=505s)** — so much easier to win the war by doing something like this than going into battle with a health
+- **[08:31](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=511s)** — condition. Now if you haven't seen my recent video on the dark side of zinc, I put it up
+- **[08:36](https://www.youtube.com/watch?v=QX6gCRJZ0dk&t=516s)** — right here. Check it out.

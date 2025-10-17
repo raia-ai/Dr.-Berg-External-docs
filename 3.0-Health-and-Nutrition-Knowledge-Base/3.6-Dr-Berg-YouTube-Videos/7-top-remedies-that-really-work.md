@@ -1,0 +1,123 @@
+# 7 Top Remedies that Really Work
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=3jZqe7RJ73M](https://www.youtube.com/watch?v=3jZqe7RJ73M)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=0s)** — I want to show you three simple but very important trace minerals that can hopefully reverse alopecia.
+- **[00:10](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=10s)** — Now, alopecia is an autoimmune disease that directly causes patches of hair loss throughout your scalp.
+- **[00:17](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=17s)** — And there are other autoimmune diseases like Hashimoto's and lupus that can also do the same thing.
+- **[00:24](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=24s)** — How can a trace mineral deficiency cause you to lose your hair?
+- **[00:28](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=28s)** — Well, trace minerals are minerals needed in very tiny amounts. But just because they're needed in
+- **[00:35](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=35s)** — tiny amounts doesn't mean they don't have a profound effect over your body. These trace
+- **[00:41](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=41s)** — minerals are essential for a lot of different things. Regarding hair, they're essential in
+- **[00:46](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=46s)** — preventing autoimmune diseases, also in treating autoimmune diseases, as well as their effect
+- **[00:52](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=52s)** — directly in building up the hair protein itself. You know, when we think about protein, people
+- **[00:59](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=59s)** — think about muscles, but there are a lot of other types of proteins in your body that people
+- **[01:04](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=64s)** — don't consider proteins. Enzymes, for example. And I'm not just talking about digestive enzymes.
+- **[01:10](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=70s)** — I'm talking about the enzymes that are involved in your biochemistry that help
+- **[01:14](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=74s)** — make hormones, that help do the work of the body. Relating to the thyroid, you actually have
+- **[01:20](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=80s)** — make body tissue. Regarding thyroid hormones, you have enzymes that actually can convert the
+- **[01:27](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=87s)** — inactive thyroid hormone, which is T4, to the active thyroid hormone, which is T3. And then
+- **[01:34](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=94s)** — you have proteins involved in your immune system that keep your immune system strong, that
+- **[01:39](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=99s)** — prevent you from a self-attack or the creation of antibodies against your own tissues. And out
+- **[01:46](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=106s)** — the minerals, there's three trace minerals that are very important to make sure that you get
+- **[01:52](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=112s)** — in your diet and understand other things that can create the deficiency. So let's first talk
+- **[01:58](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=118s)** — about iodine. You probably already know iodine is necessary to make thyroid hormones
+- **[02:03](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=123s)** — through enzymes. And as you're deficient in iodine, you can't make thyroid hormones. And
+- **[02:08](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=128s)** — when we're dealing with a thyroid autoimmune problem, there's some data out there that
+- **[02:14](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=134s)** — too much iodine can cause an autoimmune disease. But there's overwhelming evidence
+- **[02:19](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=139s)** — that that's actually not true. It's usually a deficiency of iodine that can create more of a
+- **[02:25](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=145s)** — problem than an excess. An average person is deficient iodine because it's hard to get
+- **[02:30](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=150s)** — from our food, because it's not in our soils. So unless they eat something from the sea,
+- **[02:35](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=155s)** — they're usually not going to get enough iodine unless they're taking something like
+- **[02:39](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=159s)** — sea kelp or seaweed, or in parts of the world where you eat a lot of seaweed,
+- **[02:45](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=165s)** — which is definitely not in America. We primarily get our iodine from sea salt. And even that,
+- **[02:50](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=170s)** — we probably don't get enough iodine to satisfy all the requirements that we need. When someone
+- **[02:55](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=175s)** — is deficient in iodine, they get an out of control estrogen level, because iodine helps
+- **[03:02](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=182s)** — buffer estrogen. And when they don't have enough iodine and they get too much estrogen,
+- **[03:07](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=187s)** — they can develop cysts on the ovaries, they can develop fibrocystic breasts, they can even
+- **[03:13](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=193s)** — develop nodules on the thyroid gland itself. Another interesting thing about iodine is that
+- **[03:18](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=198s)** — you can be deficient not from your diet, but from other things interfering with the
+- **[03:23](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=203s)** — absorption of iodine, like fluoride. Whether you're getting some type of dental whitening
+- **[03:31](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=211s)** — type therapy, or you're drinking tap water with fluoride, as well as chlorine. Chlorine
+- **[03:37](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=217s)** — also interferes with iodine. So there's three big things that can interfere with iodine.
+- **[03:43](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=223s)** — Fluoride, chloride, and bromine, which is in a lot of enriched flour products, as in the
+- **[03:49](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=229s)** — bread, pasta, cereal, crackers, biscuits, things like that, which you're probably not
+- **[03:54](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=234s)** — eating because you've been watching my channel. But there's another source of fluoride that you
+- **[03:59](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=239s)** — may not suspect. In fact, 20% of all medications out there are fluoride based, including Prozac,
+- **[04:10](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=250s)** — statin drugs, other antidepressants, certain antibiotics, certain antacid medications,
+- **[04:17](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=257s)** — as well as certain anti-inflammatories all contain fluoride, which can interfere with iodine.
+- **[04:24](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=264s)** — And by the way, as far as the amount of iodine you need on a daily basis, I would
+- **[04:29](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=269s)** — recommend about 200 micrograms, okay? Not milligrams, micrograms. Iodine is very, very
+- **[04:35](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=275s)** — important in a growing child. If a child or an infant is deficient, they can develop all
+- **[04:41](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=281s)** — sorts of cognitive deficiencies. But sea kelp, seafood, sea salt, is all good to take if you
+- **[04:49](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=289s)** — want to build up your iodine. Now the next trace mineral is called zinc, okay? Zinc, as
+- **[04:53](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=293s)** — you know, is very, very important in your immune system. And when people get autoimmune diseases,
+- **[05:00](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=300s)** — they're usually deficient in zinc. And this zinc deficiency allows a condition where your
+- **[05:06](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=306s)** — immune system can get out of control. But the best bioavailable sources of zinc is from meat,
+- **[05:12](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=312s)** — fish, and eggs, not plant-based sources. Plant-based sources are not good sources of zinc.
+- **[05:18](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=318s)** — One of the most common causes of a zinc deficiency is by consuming too much cereal, okay? Cereal has
+- **[05:25](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=325s)** — phytates, just like any grains, and these phytates block minerals, especially zinc. Zinc is
+- **[05:32](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=332s)** — one of the most important minerals for your immune system. And without it, you're very,
+- **[05:35](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=335s)** — very susceptible to infections and other problems, including inflammation. But zinc directly
+- **[05:41](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=341s)** — is involved in certain enzymes, which are proteins, that actually build up your hair.
+- **[05:49](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=349s)** — And as far as the amount of zinc, if you were going to take it as a supplement,
+- **[05:52](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=352s)** — I would recommend about 50 milligrams. But if you're consuming things like red meat,
+- **[05:58](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=358s)** — or even beef liver, or even oysters, or seafood, chances are you're getting enough zinc.
+- **[06:04](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=364s)** — But if you're exposed to mercury, that can increase the need for more zinc. If you consume
+- **[06:11](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=371s)** — a lot of sugar, or you're exposed to a lot of stress, your requirement for zinc goes
+- **[06:17](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=377s)** — dramatically up. Okay, the next mineral is selenium. Selenium is involved in 35 different
+- **[06:23](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=383s)** — proteins, okay? And again, I'm talking about those protein enzymes that do most the work
+- **[06:30](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=390s)** — in the body. If you're deficient in selenium, you can start getting graying of the hair.
+- **[06:35](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=395s)** — You can start developing alopecia directly. Or a deficiency of selenium can lead to
+- **[06:41](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=401s)** — selenium is a catch-22 because deficiency can create a problem with alopecia, and an excess or a
+- **[06:48](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=408s)** — toxicity can create alopecia. So it's one of those trace minerals that you just need just the
+- **[06:53](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=413s)** — right amount. You don't want to take more. More is not better. Mercury can also interfere
+- **[06:57](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=417s)** — with selenium. A lot of women who are pregnant are deficient in selenium, not to mention
+- **[07:04](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=424s)** — zinc and even iodine. So this is just another reason why if someone is going through pregnancy,
+- **[07:09](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=429s)** — it's so important to take these trace minerals. Now there are also genes that help you absorb
+- **[07:16](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=436s)** — selenium. And there also could be a genetic mutation that causes difficulty in getting enough
+- **[07:24](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=444s)** — selenium. So in this case, if you're just getting the minimum amount, you may have
+- **[07:29](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=449s)** — deficiency symptoms. And you can get a genetic test to determine this. And I've been doing a
+- **[07:39](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=459s)** — genetic problems with minerals and vitamins. And this especially relates to like B12,
+- **[07:47](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=467s)** — folate, vitamin D, and even vitamin C. The other interesting thing about selenium is that it seems to
+- **[07:54](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=474s)** — control vitamin E levels. It protects a person from becoming deficient in vitamin E.
+- **[08:01](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=481s)** — Maybe because selenium is a precursor for glutathione, which is a powerful antioxidant,
+- **[08:06](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=486s)** — and other antioxidants as well. The amount of selenium a person needs would be between 50
+- **[08:13](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=493s)** — micrograms to 200 micrograms, which really is a tiny amount. One Brazil nut is enough to
+- **[08:22](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=502s)** — satisfy what you would need. Don't eat the whole bag. Okay, just one at a time per day,
+- **[08:27](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=507s)** — because you can actually get a toxic amount fairly quick. There are other nutrients as
+- **[08:33](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=513s)** — that greatly influence the hair. And I'm just going to quickly run down the list.
+- **[08:37](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=517s)** — Iron, okay, and B12, primarily because of the function of what they can do to increase your
+- **[08:43](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=523s)** — oxygen levels and your blood levels, your red blood cell levels, to your scalp. Without
+- **[08:49](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=529s)** — this blood and oxygen to the scalp, the roots of the hair can't survive. And probably
+- **[08:54](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=534s)** — the biggest reason why women are deficient in iron is because of menstruation. And if
+- **[08:59](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=539s)** — that's your problem, I put a link down below of how to correct that specific issue.
+- **[09:03](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=543s)** — Regarding B12, it could be that you're a vegan, or it could also be that you have genetic issue
+- **[09:09](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=549s)** — with a problem called methylation. For more information, I put a link down below with that
+- **[09:14](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=554s)** — too. Now, vitamin D, very, very important with any autoimmune disease because it reduces
+- **[09:21](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=561s)** — inflammation. And even though a vitamin D deficiency doesn't cause alopecia directly,
+- **[09:28](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=568s)** — it can cause a loss of body hair, which is more of an alopecia for the entire body,
+- **[09:34](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=574s)** — but not necessarily just on the scalp. But if you have any type of autoimmune problem,
+- **[09:38](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=578s)** — you should be taking vitamin D on a daily basis, roughly about 20,000 IUs. Now let's
+- **[09:44](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=584s)** — talk about biotin for a second. A lot of people take biotin in very large amounts.
+- **[09:51](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=591s)** — Biotin is vitamin B7, and it's involved in protein synthesis, especially the hair and the
+- **[09:57](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=597s)** — nails. But if you're deficient in biotin, your hair is going to be very dry and frizzy. You
+- **[10:02](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=602s)** — might experience shedding of the hair. You may have just general hair loss. A couple reasons why
+- **[10:07](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=607s)** — people are deficient in biotin, because your gut flora makes it. It could be you have taken
+- **[10:14](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=614s)** — antibiotics. It could be you consume a lot of raw eggs, which by the way, the egg yolk
+- **[10:20](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=620s)** — is the thing that has the most biotin. But if you have raw eggs, there's a certain
+- **[10:25](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=625s)** — compound in there that locks up your biotin. So you could become deficient. Another cause would
+- **[10:30](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=630s)** — be pregnancy, which increases the demand for biotin. Or you may have a genetic problem
+- **[10:37](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=637s)** — with a certain protein that helps you absorb biotin. And you have a problem with that,
+- **[10:44](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=644s)** — which means you just need a little bit more. And lastly, folate. This is interesting because
+- **[10:48](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=648s)** — a folate deficiency is a very common deficiency. Even though folate comes from dark, leafy green
+- **[10:54](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=654s)** — vegetables, a lot of people have a problem with a certain gene called MTHFR, which requires
+- **[11:01](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=661s)** — them to consume more folate, not folic acid, but folate, so they can start to build up some
+- **[11:09](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=669s)** — of these proteins, including hair. Now I talked about one problem with hair loss. If you
+- **[11:14](https://www.youtube.com/watch?v=3jZqe7RJ73M&t=674s)** — haven't seen this video on hair loss, which covers other things, you should check it out. I

@@ -1,0 +1,115 @@
+# 8 Ways to Heal Trauma (Physical) without Medication — Dr. Berg
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=fYmq9JMlFRA](https://www.youtube.com/watch?v=fYmq9JMlFRA)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=0s)** — Today we're going to talk about eight different ways that you can heal your trauma.
+- **[00:04](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=4s)** — I'm talking about physical trauma without medication.
+- **[00:07](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=7s)** — I stumbled on one therapy that I've never heard about even in practice.
+- **[00:13](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=13s)** — And it was amazing. And I wish I would have known about this when I was in practice,
+- **[00:18](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=18s)** — because I could have helped a lot more people.
+- **[00:21](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=21s)** — At the heart of trauma, okay, we are dealing with inflammation.
+- **[00:25](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=25s)** — Inflammation is part of the healing response. You can't heal without it.
+- **[00:30](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=30s)** — But the problem is when it crosses over into chronic inflammation,
+- **[00:34](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=34s)** — which I am an expert at that because I have a lot of old injuries.
+- **[00:39](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=39s)** — And I think to be an expert in anything, you'd have to have results in it.
+- **[00:43](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=43s)** — And relating to inflammation, I do have that.
+- **[00:46](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=46s)** — But I want to deviate just for a minute on this topic of inflammation and cancer,
+- **[00:52](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=52s)** — because inflammation is the most potent carcinogen, which is really interesting.
+- **[00:58](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=58s)** — You know, when people think about carcinogens, they think about smoking or junk foods.
+- **[01:02](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=62s)** — But the common theme of a lot of things that can turn into cancer involve inflammation.
+- **[01:08](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=68s)** — In fact, cancer spreads into areas of inflammation.
+- **[01:14](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=74s)** — But there's something called the Warburg effect.
+- **[01:18](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=78s)** — So cancer came from a normal cell. Something about that cell became damaged.
+- **[01:22](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=82s)** — And then the cell had a plan B and shifted to a different type of metabolism,
+- **[01:27](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=87s)** — which involves the fermentation of glucose.
+- **[01:31](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=91s)** — Now, immune cells also follow the same pathway.
+- **[01:36](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=96s)** — In fact, a lot of chronic disease type conditions are also using this Warburg effect.
+- **[01:42](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=102s)** — And I don't even know this until recently. And I found it very interesting.
+- **[01:46](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=106s)** — Now, there's a certain test that you can do for cancer called a PET scan,
+- **[01:50](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=110s)** — where they're scanning the body for areas of high metabolism of glucose
+- **[01:55](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=115s)** — to locate where cancer cells are growing, but it also identifies inflammation as well.
+- **[01:59](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=119s)** — So my question is, how do you differentiate between inflammation and cancer cells?
+- **[02:04](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=124s)** — And I haven't found that information yet. I'll be looking into that.
+- **[02:07](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=127s)** — But just the fact that it can pick up inflammation is interesting.
+- **[02:11](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=131s)** — So what actually is inflammation?
+- **[02:13](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=133s)** — OK, at the cellular level, inflammation is where the cell is leaking protein.
+- **[02:22](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=142s)** — And now we have a higher concentration of protein outside the cell.
+- **[02:27](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=147s)** — You have fluid retention, right?
+- **[02:29](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=149s)** — And so when we're talking about fluid retention, we're really talking about something called an osmotic pressure.
+- **[02:35](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=155s)** — So edema fluid retention is really just like this pressure.
+- **[02:39](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=159s)** — And apparently that pressure causes this Warburg effect.
+- **[02:44](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=164s)** — So maybe it's because of the damage on the mitochondria. I don't know.
+- **[02:48](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=168s)** — So I just wanted you to remember that as we go through these different ways of helping the body heal from trauma.
+- **[02:55](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=175s)** — And of course, we really need inflammation. It's part of the healing process.
+- **[02:58](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=178s)** — But what we don't need is chronic inflammation, because chronic inflammation turns into scar tissue and fibrosis,
+- **[03:06](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=186s)** — which then can increase your risk for cancer.
+- **[03:09](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=189s)** — I mean, let's just take hepatitis or an inflamed liver that then turns into chronic cirrhosis of the liver.
+- **[03:17](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=197s)** — The next phase of that is liver cancer.
+- **[03:21](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=201s)** — The same thing with the lung.
+- **[03:22](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=202s)** — When you get inflammation in the lung through, you know, smoking for many years, you get scar tissue, chronic obstructive pulmonary disease.
+- **[03:30](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=210s)** — And now the risk for cancer goes way, way up.
+- **[03:33](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=213s)** — I mean, even like with diabetes, you're getting all this high levels of sugar and you're getting inflammation and you're going to be at risk for cancer.
+- **[03:42](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=222s)** — Anything that involves chronic inflammation can increase risk for cancer.
+- **[03:47](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=227s)** — And so you have a chronic consumption of alcohol that can do it.
+- **[03:50](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=230s)** — Eating junk foods, even having a chronic infection could create the same problem.
+- **[03:56](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=236s)** — Having a long term autoimmune disease.
+- **[04:00](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=240s)** — So when we're dealing with healing physical trauma, we're really dealing with trying to fix this chronic inflammatory state.
+- **[04:08](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=248s)** — And so when you develop scar tissue or calcification that occurs, things get stiff and then you get lack of circulation.
+- **[04:17](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=257s)** — And so these eight different methods are going to do one or more of what I just talked about.
+- **[04:22](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=262s)** — Now, of course, the first thing is just the elimination of the thing that is triggering this inflammation,
+- **[04:29](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=269s)** — whether it's a food or a bad habit like smoking or drinking alcohol, things like that, isolating what that is, eliminating it.
+- **[04:38](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=278s)** — I mean, so many people are consuming something that they know they shouldn't or maybe they're not even aware of it.
+- **[04:44](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=284s)** — And they might not even realize that that food is creating inflammation.
+- **[04:48](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=288s)** — They're experiencing maybe gas or bloating or something like that, but they don't know what's really happening deep inside.
+- **[04:57](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=297s)** — So this is one benefit of going on carnivore for a few weeks, especially if you have anything related to inflammation in your gut
+- **[05:05](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=305s)** — or at the very least doing keto, eliminating a lot of the refined sugars and carbs and correcting some bad habits.
+- **[05:12](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=312s)** — So that's number one. That's the most important foundation.
+- **[05:15](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=315s)** — Number two, a combination between heat and cold, like a hot shower or a cold shower or a sauna or a whirlpool or a cold immersion tank back and forth.
+- **[05:26](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=326s)** — What is that going to do? It's going to increase circulation in your lymphatic system.
+- **[05:30](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=330s)** — It's going to remove waste. It's going to stimulate healing at the cellular level.
+- **[05:34](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=334s)** — So sometimes you have to add trauma or on a microscopic level intermittently to stimulate the healing process.
+- **[05:42](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=342s)** — Alright, number three, this is an important one, exercise. Oh my gosh.
+- **[05:45](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=345s)** — This is one of the most potent things you can do for trauma because what's happened with chronic inflammation in scar tissue and an injured body part is you have now a lack of motion.
+- **[06:00](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=360s)** — And so when you put your body into motion, you automatically create all sorts of healing at many different levels, at the cellular level, at the muscle level, at the joint level.
+- **[06:11](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=371s)** — It's when we stop moving, we start to die.
+- **[06:15](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=375s)** — You know, so if you can just keep yourself going and keep moving, you're going to extend your life.
+- **[06:20](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=380s)** — Then we get actual stretching. I've done a tremendous amount of stretching and stretching can help you sleep.
+- **[06:26](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=386s)** — It can help with motion in the joints. It can help with posture.
+- **[06:30](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=390s)** — It can help break up the scar tissue that is interfering with your motion that's creating more inflammation.
+- **[06:36](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=396s)** — And then we have number five, taking high levels of vitamin D to remodel the tissues in your joints and other tissues.
+- **[06:46](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=406s)** — And then you have the famous omega-3 fatty acids, right? In olive oil, fish oil, things like that.
+- **[06:51](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=411s)** — You also have vitamin B3. There's two forms. One is niacin, another is niacinamide.
+- **[06:57](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=417s)** — You need to take the niacinamide version. I did a recent video on that and I will put that link down below so you'll figure out the dosages.
+- **[07:03](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=423s)** — And then you get polyphenols. In all the herbal remedies, curcumin, intermaric, green tea, they're in stinging nettle root.
+- **[07:13](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=433s)** — There's another great remedy that I talked about in a video called methylene blue.
+- **[07:18](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=438s)** — Methylene blue is the first synthetic drug that was ever created even before aspirin.
+- **[07:25](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=445s)** — And it used to be used for all sorts of infections, TB, malaria, as an antimicrobial.
+- **[07:34](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=454s)** — But it's also a pretty good anti-inflammatory, fairly non-toxic if you take it in small dosages.
+- **[07:41](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=461s)** — But what's really cool about methylene blue is that it helps you at the cellular level, at the level of the mitochondria.
+- **[07:49](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=469s)** — All right, number six is what I call the opposite technique. I have a lot of videos on this.
+- **[07:54](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=474s)** — If you haven't seen these, you need to check them out. The way that you want to treat it is working on the opposite side.
+- **[08:01](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=481s)** — Wherever you hurt on the left side, you work on the right side. If you hurt on the back, you work on the front side.
+- **[08:07](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=487s)** — I know this sounds weird, but I use this in practice as the most successful way to eliminate pain and reduce inflammation.
+- **[08:18](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=498s)** — How does it work? Probably has something to do with the nerve circuits. And you can also use this on old injuries as well.
+- **[08:25](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=505s)** — Number seven is fasting. Fasting is another potent way to drop inflammation and pain.
+- **[08:30](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=510s)** — It causes your body to adapt and survive better and turn off inflammation. It's quite amazing.
+- **[08:37](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=517s)** — And lastly, shock wave therapy. And I'm not talking about shock therapy, okay?
+- **[08:43](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=523s)** — No, I'm very much against that. I'm talking about shock wave therapy.
+- **[08:47](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=527s)** — Now they use shock wave therapy to break up kidney stones, even gallstones called lithotripsy.
+- **[08:53](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=533s)** — But they also have units that are not so focused on something small.
+- **[09:00](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=540s)** — In fact, I think pretty much every sports team at a high level uses this on their athletes.
+- **[09:06](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=546s)** — I had no idea. So I went to get some treatments. I was blown away.
+- **[09:13](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=553s)** — This technique just literally breaks up the cement. It doesn't hurt. It breaks up scar tissue.
+- **[09:20](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=560s)** — It increases healing. Now, of course, they do have home units, but I would recommend going to someone with the right frequency range that knows how to use this.
+- **[09:29](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=569s)** — It will stimulate more blood vessels to grow in a certain area. You can help reverse calcified tendonitis.
+- **[09:38](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=578s)** — I fractured my left elbow in 30 pieces. They had to reattach my tendon underneath the tricep, which is completely messed up.
+- **[09:50](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=590s)** — So when they did this therapy on that, it just like almost gave me a brand new elbow.
+- **[09:57](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=597s)** — I was like, what the heck? Why haven't I heard about this before? It's great on sciatica.
+- **[10:03](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=603s)** — So anyway, I just wanted to create this one video of all the therapies that I think could help a person recover a lot better from physical trauma.
+- **[10:14](https://www.youtube.com/watch?v=fYmq9JMlFRA&t=614s)** — Now, I did mention this Methylene Blue, and if you haven't seen this video, I think it would be a really good next video for you to watch. Check it out.

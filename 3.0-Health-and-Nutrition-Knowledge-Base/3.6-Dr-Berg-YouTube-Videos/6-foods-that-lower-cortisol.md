@@ -1,0 +1,116 @@
+# 6 Foods that Lower Cortisol
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=1mTzY9qUkIs](https://www.youtube.com/watch?v=1mTzY9qUkIs)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=0s)** — Now, I've done a lot of videos on cortisol, especially as it relates to the adrenal body type or the adrenal gland.
+- **[00:06](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=6s)** — But I haven't done any videos on how to lower it with foods. So that's the topic of today.
+- **[00:12](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=12s)** — I'm not going to get into the benefits of lowering cortisol because you probably already know that.
+- **[00:15](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=15s)** — You wouldn't be here if you didn't know about cortisol.
+- **[00:18](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=18s)** — But cortisol is the main stress hormone. There's another hormone like a compound called adrenaline.
+- **[00:23](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=23s)** — It's not a true hormone. It's a neurotransmitter. And both adrenaline and cortisol work together.
+- **[00:29](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=29s)** — And so if you ever look at the adrenal gland, you have an inside and an outside.
+- **[00:32](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=32s)** — The inside releases adrenaline and the outside releases cortisol.
+- **[00:37](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=37s)** — And both of those compounds have crossover functions.
+- **[00:41](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=41s)** — But in summary, they adapt the body to a stress state.
+- **[00:45](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=45s)** — Now, the thing you need to know is that the body does not know the difference between mental stress and physical stress.
+- **[00:53](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=53s)** — It reacts with these hormones and all the adaptations that occur with it for all stresses.
+- **[00:58](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=58s)** — But mental stress and physical stress are not necessarily differentiated.
+- **[01:02](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=62s)** — So nowadays we're not being chased by a tiger, right? Trying to get our food.
+- **[01:07](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=67s)** — We are hit with a lot of chronic mental stress, which creates the same effect on these two hormones.
+- **[01:14](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=74s)** — And yes, you can do a blood test or a saliva test for cortisol, which is quite extensive because you would have to test it every four hours.
+- **[01:23](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=83s)** — So you're basically getting up in the middle of the night and you're putting your saliva in this little tube.
+- **[01:28](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=88s)** — Then you have to send it out to the lab.
+- **[01:29](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=89s)** — There is a much better way of indirectly getting an idea of where your cortisol is at using something called heart rate variability, which measures the autonomic nervous system.
+- **[01:41](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=101s)** — I may have information on that, on how you can actually have your own device and how to measure yourself.
+- **[01:46](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=106s)** — But today we're just going to talk about what foods you should be eating or avoiding to really optimize your stress hormones.
+- **[01:53](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=113s)** — When we're dealing with the autonomic nervous system, we're dealing with a system that is on automatic and it's composed of mainly two things.
+- **[02:02](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=122s)** — The sympathetic fight or flight and the parasympathetic, which is rest and digest.
+- **[02:08](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=128s)** — Anytime that sympathetic system is activated by anything like mental stress, cortisol also gets activated.
+- **[02:16](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=136s)** — So probably one of the most important things to know before we even dive into this is the condition called diabetic dysautonomia,
+- **[02:25](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=145s)** — which basically means your autonomic nervous system is messed up because of this high level of sugar in your bloodstream.
+- **[02:32](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=152s)** — And that creates a lot of problems with all the different autonomic nerves, especially the peripheral nerves, the nerves in your feet, in your hands,
+- **[02:42](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=162s)** — and other nerves too, like your vagus nerve that goes to your digestive system.
+- **[02:45](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=165s)** — And so there's a lot of fancy words to describe those conditions too, like one being gastroparesis, another being diabetic autonomic neuropathy.
+- **[02:55](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=175s)** — All that means is your nerves are getting messed up because you have high blood sugars because you are diabetic.
+- **[03:00](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=180s)** — So the first thing to know is that sugar and starches really mess up that autonomic nervous system and they alter for the worse your cortisol as well as adrenaline.
+- **[03:12](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=192s)** — In other words, sugar and starches keep you in a stress mode.
+- **[03:14](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=194s)** — Now, of course, if you look at the opposite diet to a high sugar, high starch diet, that would be a ketogenic diet.
+- **[03:21](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=201s)** — And there's an interesting study, I think it's the only study out there, that looked at very low calorie and a low carb ketogenic plan.
+- **[03:30](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=210s)** — And so they combine a low calorie, which could describe doing like OMAD one meal a day, and you're also doing low carb.
+- **[03:37](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=217s)** — You greatly support the autonomic nervous system.
+- **[03:41](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=221s)** — So in other words, if you have too much sympathetic nervous system, it can help balance it out.
+- **[03:47](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=227s)** — There's some other research that shows how fasting can support the parasympathetic nervous system.
+- **[03:52](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=232s)** — And this is probably why people feel very calm when they start getting into this wonderful fasting state because the parasympathetic nervous system is kicked in.
+- **[04:03](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=243s)** — And so when you go on a ketogenic diet and you cut out the carbs and you also combine fasting, your mood changes.
+- **[04:10](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=250s)** — You can go from an irritable state or an anxiety state to a calm state because the shift in this parasympathetic sympathetic balance as well as the cortisol being lowered.
+- **[04:21](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=261s)** — In fact, my cortisol was very, very high at one time.
+- **[04:23](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=263s)** — And that was at the peak of when I was doing all the carbs.
+- **[04:26](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=266s)** — Okay, like I'm talking massive carbs.
+- **[04:29](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=269s)** — To support this autonomic nervous system to help balance the stress state, you definitely need B12.
+- **[04:36](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=276s)** — And what foods would be high in B12?
+- **[04:39](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=279s)** — All the animal products. Red meats, fish and organ meats.
+- **[04:43](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=283s)** — Because a B12 deficiency can cause a problem with that part of the autonomic nervous system.
+- **[04:49](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=289s)** — The next thing to talk about is this parasympathetic nervous system.
+- **[04:53](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=293s)** — That's your recovery system.
+- **[04:56](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=296s)** — The system that controls sleeping and digesting and being calm.
+- **[05:02](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=302s)** — And the neurotransmitter behind that system is called acetylcholine.
+- **[05:07](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=307s)** — And so the precursor for acetylcholine is choline.
+- **[05:11](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=311s)** — And guess what food has the highest amount of choline?
+- **[05:14](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=314s)** — You guessed it. Egg yolks.
+- **[05:15](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=315s)** — So eggs would be a really good thing to consume to support the lowering of the stress
+- **[05:22](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=322s)** — and the lowering of cortisol and adrenaline.
+- **[05:24](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=324s)** — But also you can get choline in organ meats, okay?
+- **[05:27](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=327s)** — Like liver, etc.
+- **[05:29](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=329s)** — Other two key nutrients to support acetylcholine would be vitamin B1 and vitamin B5.
+- **[05:37](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=337s)** — Both of them.
+- **[05:38](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=338s)** — And you can get both of those naturally from nutritional yeast,
+- **[05:42](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=342s)** — as well as sunflower seeds and many other foods.
+- **[05:45](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=345s)** — And this is why when people have that nutritional yeast,
+- **[05:47](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=347s)** — maybe they put it on their salad as part of the dressing with olive oil and a vinaigrette or ranch whatever.
+- **[05:54](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=354s)** — Or they might just consume it in a tablet form.
+- **[05:56](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=356s)** — But when they consume that nutritional yeast, they feel calmer about four or five minutes later.
+- **[06:01](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=361s)** — But to have enough acetylcholine for your parasympathetics,
+- **[06:05](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=365s)** — you need B1, B5 and choline.
+- **[06:07](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=367s)** — The other two key minerals that support the parasympathetics
+- **[06:13](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=373s)** — as well as calming down the sympathetics, as well as lowering cortisol,
+- **[06:19](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=379s)** — is both potassium and magnesium.
+- **[06:22](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=382s)** — Both of these minerals are physiological relaxers.
+- **[06:26](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=386s)** — Okay, so they calm the body down.
+- **[06:28](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=388s)** — And it just so happens when people go through a lot of stress,
+- **[06:32](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=392s)** — all that stress can actually deplete these two minerals, leaving you deficient.
+- **[06:36](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=396s)** — And so does sugar as well.
+- **[06:38](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=398s)** — But taking more potassium and magnesium can calm you down.
+- **[06:43](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=403s)** — It will help the restate. It helps lower cortisol.
+- **[06:45](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=405s)** — So the food that has the most potassium and magnesium together are deep leafy green vegetables,
+- **[06:52](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=412s)** — as in big salads, as in what I recommend in a healthy keto plan.
+- **[06:57](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=417s)** — All right, the next nutrient that if deficient can create a big problem on the autonomic nervous system is vitamin D3.
+- **[07:03](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=423s)** — So you can get vitamin D3 free from the sun, okay.
+- **[07:07](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=427s)** — You can also get it from fatty fish like salmon while caught.
+- **[07:12](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=432s)** — But what's unique about vitamin D in cortisol is this.
+- **[07:16](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=436s)** — Vitamin D is not really a vitamin.
+- **[07:18](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=438s)** — It's like a hormone. And it has very similar functions to cortisol.
+- **[07:23](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=443s)** — And when you raise cortisol, you tend to deplete vitamin D.
+- **[07:26](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=446s)** — People that have high cortisol levels where they're stressed out usually have low vitamin D.
+- **[07:31](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=451s)** — And so to create a very similar effect, okay, for stress, for inflammation, for sleeping, you can take vitamin D.
+- **[07:41](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=461s)** — So vitamin D can help modulate or regulate that cortisol.
+- **[07:45](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=465s)** — Now, when we talked about the parasympathetic nervous system, that is part of the vagus nerve.
+- **[07:51](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=471s)** — And the vagus nerve connects from your brain to your digestive system and other visceral organs as well.
+- **[07:58](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=478s)** — So you can actually support and improve that vagus nerve by doing something to your gut, by fortifying it with probiotics, okay,
+- **[08:09](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=489s)** — probiotic foods, which I will put some research down below in the description.
+- **[08:14](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=494s)** — But sauerkraut, kefir, pickles, kimchi, and probiotic supplements for the gut.
+- **[08:21](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=501s)** — And that can support the parasympathetic, which could explain why some people sleep really good
+- **[08:25](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=505s)** — after they consume a probiotic or kefir before bed.
+- **[08:30](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=510s)** — So that was six foods that support lowering cortisol and adrenaline to help you cope.
+- **[08:35](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=515s)** — Now, because of the censoring and the suppressing of the algorithms on YouTube, it's becoming more difficult to find my content.
+- **[08:42](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=522s)** — And there's a lot of content that I cannot put on YouTube, unfortunately.
+- **[08:46](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=526s)** — So to make sure you have full access of all my information, go to DrBurgon.com
+- **[08:50](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=530s)** — and subscribe to my newsletter by clicking the link down below in the description.
+- **[08:56](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=536s)** — I will see you on the other side. Now, to be complete about this topic, there are other things you need to do to lower stress.
+- **[09:02](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=542s)** — And if you haven't seen this very popular video on how to reduce cortisol using other methods than food, watch it.
+- **[09:09](https://www.youtube.com/watch?v=1mTzY9qUkIs&t=549s)** — I put it up right here.

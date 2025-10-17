@@ -1,0 +1,169 @@
+# The #1 Best Way to Prevent Cataracts
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=HT3oYW2pQSk](https://www.youtube.com/watch?v=HT3oYW2pQSk)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=0s)** — This is a very important video for anyone with an autoimmune disorder, or for that matter,
+- **[00:06](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=6s)** — any inflammatory disorders. Now of course, the thing to do if you have an autoimmune condition
+- **[00:11](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=11s)** — is go to the experts, right? So this is what they will tell you what to do, right? Consume
+- **[00:16](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=16s)** — plenty of fruits and vegetables and whole grains, legumes, only have moderate amounts of alcohol,
+- **[00:25](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=25s)** — limit your sugars and sodas, and also limit your refined grains. But of course, the diet is going
+- **[00:30](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=30s)** — to recommend you can have some sugars, you know, juice and alcohol and sugar and fine grains,
+- **[00:36](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=36s)** — just don't have too much and you'll be totally fine. Well, I'm going to let you know right now,
+- **[00:41](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=41s)** — you will never ever get better if you follow that recommendation. So let's go ahead and dissect
+- **[00:47](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=47s)** — and talk about what's really behind an autoimmune disorder. Most autoimmune disorders
+- **[00:53](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=53s)** — where your own cells are attacking itself, creating a lot of collateral damage with inflammation
+- **[01:00](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=60s)** — start in the gut. But I want to talk about the mechanism of what starts it. In the gut,
+- **[01:05](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=65s)** — we have this immune barrier. Okay, we also have other barriers on their skin, the internal
+- **[01:12](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=72s)** — skin, we have other immune things like acids in your stomach, bile that's produced by the
+- **[01:21](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=81s)** — microbes that all prevent pathogens from invading the body. And we also have this thing called
+- **[01:26](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=86s)** — the blood brain barrier, which protects pathogens from invading the brain. And so the immune
+- **[01:31](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=91s)** — system, and I just have to say this is so highly complex and so mysterious. Really,
+- **[01:38](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=98s)** — no one understands the complexity of this magical defense mechanism, and how amazing it is. And
+- **[01:46](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=106s)** — you appreciate it, you're much less susceptible to using things to try to bypass your immune
+- **[01:52](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=112s)** — system like antibiotics, for example, or anything to stop an infection, you want to
+- **[01:57](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=117s)** — let your body learn from it and develop more immunity. Before we get into this, I want to
+- **[02:03](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=123s)** — just touch on something that's really important. It's about the immune system. Since we're on
+- **[02:07](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=127s)** — the topic of autoimmune, our immune system is developed when we're small infants. Hopefully,
+- **[02:13](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=133s)** — you had a natural childbirth, you weren't c-sectioned, because that can inhibit
+- **[02:18](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=138s)** — the starting of the immune system because of the microbiome that's developed in a natural
+- **[02:24](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=144s)** — birthing process. And hopefully, you were breastfed too because of the probiotics
+- **[02:29](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=149s)** — that are in the breast milk really fortify that immune system early on. You know,
+- **[02:35](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=155s)** — when we talk about a fetus growing in a mother's womb, it's not a sterile environment.
+- **[02:40](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=160s)** — They did think it was sterile at one time, but they recently found microbes in the amniotic fluid.
+- **[02:47](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=167s)** — And some babies actually have their first bowel movement right inside the womb, and they found
+- **[02:53](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=173s)** — microbes in there. Where do they come from? Well, they came from the mother. And so,
+- **[02:57](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=177s)** — an infant's immune system starts at birth. And if they don't have these certain factors,
+- **[03:02](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=182s)** — okay, if things are too sterile, if an infant is exposed to antibiotics or anything that can
+- **[03:07](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=187s)** — inhibit that microbiome, boy, is that immune system affected later on in life.
+- **[03:12](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=192s)** — And the recent interest that I have in this topic relates to farming and growing certain plants.
+- **[03:21](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=201s)** — And I'm going to be doing some very interesting research on my farm relating to this topic.
+- **[03:25](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=205s)** — But a seed that is grown in the soil is not just a little packet of genetic information.
+- **[03:33](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=213s)** — It is literally Noah's Ark. You have all sorts of microbes growing inside that seed,
+- **[03:40](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=220s)** — and on the surface of that seed, that helps that seed be fortified in its growing process.
+- **[03:46](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=226s)** — And so they found that if you disrupt that microbiome early on, that plant won't really
+- **[03:51](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=231s)** — grow. It won't really have that microbiome to help it absorb nutrition. Well, the exact same
+- **[03:57](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=237s)** — thing happens with us, with our immune system, early on. We're talking about the gut barrier,
+- **[04:02](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=242s)** — okay? There are these protective things called tight junctions that keep the cells very, very,
+- **[04:09](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=249s)** — very tight and secure. So it forms a very, very nice barrier between the inside of your body
+- **[04:17](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=257s)** — and the outside of the body, or really the inside of the gut. So if there's a pathogen
+- **[04:21](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=261s)** — trying to invade the gut, these tight junctions prevent it from doing so. Now,
+- **[04:26](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=266s)** — the medical term for this is intestinal permeability. Of course, it's the same
+- **[04:31](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=271s)** — thing as a leaky gut, right? There's holes in your intestine that allow things to pass through
+- **[04:36](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=276s)** — that then don't get the stamp of immune approval through immigration. And then certain things can
+- **[04:42](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=282s)** — be tagged incorrectly, and then your immune system can go after them. And then we have
+- **[04:47](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=287s)** — a war, we have the inflammation, and then we can develop autoimmune diseases. Now, there's this
+- **[04:53](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=293s)** — protein that regulates these tight junctions. And if this zonulin and the tight junctions
+- **[05:00](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=300s)** — are not working correctly, the immune system is not going to have the ability to differentiate
+- **[05:05](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=305s)** — between self and non-self. In other words, your immune system can make a mistake and start
+- **[05:12](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=312s)** — incorrectly assigning your own tissue being a foreign pathogen and start developing antibodies,
+- **[05:19](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=319s)** — you know, whether it's for the thyroid, the brain, anything. And so this zonulin protein is
+- **[05:24](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=324s)** — always elevated in autoimmune diseases as well as a lot of inflammatory conditions. It is the
+- **[05:31](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=331s)** — primary regulator of that intestinal permeability. So if we look at what foods
+- **[05:37](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=337s)** — are best for an autoimmune disease, it would be those foods that reduce permeability
+- **[05:44](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=344s)** — and that keep this zonulin in check and prevent it from getting too high. So what I did
+- **[05:50](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=350s)** — is I cross-reference a lot of different foods and other things that relate to not only
+- **[05:57](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=357s)** — increasing or decreasing zonulin, but also affecting the intestinal permeability,
+- **[06:03](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=363s)** — as well as directly causing autoimmune diseases. So the number one thing that helps regulate
+- **[06:10](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=370s)** — zonulin is your own microbiome. So anything that destroys your microbiome is going to be
+- **[06:17](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=377s)** — very, very bad for the situation. Anything that supports it is going to be very, very good.
+- **[06:21](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=381s)** — And again, we come full circle to these microbes, right? They're not us, but they live with us
+- **[06:26](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=386s)** — and they greatly help us. A very large portion of our immune system is due to these microbes.
+- **[06:33](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=393s)** — And I really think if we look at the difference between like 50 years ago and now,
+- **[06:37](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=397s)** — we definitely do not have the numbers and the diversity of microbiome in our guts.
+- **[06:42](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=402s)** — And we definitely don't have the numbers and diversity of microbiome in this soil.
+- **[06:47](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=407s)** — I think that is really at the core of the problem. So the first food I'm going to recommend
+- **[06:52](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=412s)** — is a probiotic food, right? That would be sauerkraut, kimchi, kefir, okay? Anything that
+- **[07:01](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=421s)** — will give you these friendly microbes. And you might even want to take a probiotic as well,
+- **[07:05](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=425s)** — because we're trying to increase the diversity of microbes. Now, if we take in the flip
+- **[07:10](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=430s)** — side, I think we should also talk about what to avoid. Well, guess what? Antibiotics.
+- **[07:16](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=436s)** — Antibiotics directly increase leaky gut. Okay, they increase this zonulin and they
+- **[07:23](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=443s)** — directly relate and can cause autoimmune diseases. So at the first sign of a sickness,
+- **[07:29](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=449s)** — don't jump to start taking the antibiotic. And if you have to, okay, definitely take a
+- **[07:36](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=456s)** — same time. It's so important. I mean, the amount of antibiotics that I have taken in my life
+- **[07:41](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=461s)** — are just off the charts simply because I didn't know the long term effects.
+- **[07:45](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=465s)** — Do you realize that when you take an antibiotic, there are going to be certain
+- **[07:48](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=468s)** — microbes that are going to survive that are going to develop a resistance to that antibiotic.
+- **[07:53](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=473s)** — That microbe that now is resistant to that antibiotic can do something called
+- **[07:58](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=478s)** — horizontal gene transfer, where it shares this information with other microbes that were not
+- **[08:06](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=486s)** — exposed to that antibiotic to give them the genes that help them resist that antibiotic in
+- **[08:13](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=493s)** — the future. So these microbes can share information back and forth. And this is part of the
+- **[08:20](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=500s)** — survival mechanism that they have developed. And so the next time you take the antibiotic,
+- **[08:23](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=503s)** — it works less and less to the point where it won't work at all. Another food that is good
+- **[08:30](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=510s)** — potentially for autoimmune would be anything fermented. Okay, fermented. I'm not talking
+- **[08:35](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=515s)** — about like fermented like beer or alcohol. I'm talking about like fermented vegetables,
+- **[08:41](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=521s)** — because fermented vegetables are easier to digest. They have microbes. They have the
+- **[08:45](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=525s)** — fiber that can actually feed the microbes. They have all sorts of other secondary chemicals
+- **[08:51](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=531s)** — that support keeping that intestinal line really, really tight. But if you have the type of
+- **[08:58](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=538s)** — autoimmune that involves damage to your gut, there's too much inflammation, then you might
+- **[09:04](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=544s)** — have a problem with vegetables in general. You might have to do carnivore for a little while.
+- **[09:08](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=548s)** — But if you don't have that, you might benefit from fermented vegetables. And this
+- **[09:13](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=553s)** — also includes vegetables, okay, because personally I do very well on them. I don't
+- **[09:18](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=558s)** — apparently have that much gut damage that it's a problem. Some people don't. But if you have an
+- **[09:24](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=564s)** — autoimmune disease that's affecting the gut, you might not do well on vegetables. But if you
+- **[09:29](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=569s)** — don't, vegetables can contribute to a good gut microbiome because they feed the microbes
+- **[09:36](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=576s)** — from the fiber, but also the phytonutrients in these vegetables greatly support zonulin.
+- **[09:43](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=583s)** — And one of the biggest ones that is very well researched is sulforaphane. And not only broccoli
+- **[09:49](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=589s)** — sprouts, but in broccoli, cabbage, and other cruciferous vegetables. So sulforaphane directly
+- **[09:57](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=597s)** — helps reverse gut dysbiosis, okay, alteration in the microbiome. Sulforaphane is a great
+- **[10:06](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=606s)** — remedy for H. pylori, another microbe in your body that is in the stomach that can get out of
+- **[10:14](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=614s)** — control and turn unfriendly in certain environments. And then it can create ulcers.
+- **[10:20](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=620s)** — But guess what? Sulforaphane can help kill H. pylori and put it back into remission.
+- **[10:27](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=627s)** — Sulforaphane helps the mucous lining in your gut. And sulforaphane directly inhibits
+- **[10:35](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=635s)** — autoimmune conditions, okay, especially like lupus and even psoriasis and other autoimmune
+- **[10:41](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=641s)** — conditions. So you could probably get the most sulforaphane in broccoli sprouts. You can just
+- **[10:46](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=646s)** — put that on your salad each day, or you can get sulforaphane in a supplement. All right,
+- **[10:50](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=650s)** — let's go to the flip side. What to avoid, okay? Anything with the herbicide glyphosate,
+- **[10:57](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=657s)** — this is in the Roundup Ready and in GMO Foods. And if you look this up, it's interesting because
+- **[11:04](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=664s)** — you'll see these mixed reviews. Of course, the ones that they say the glyphosate is fine
+- **[11:09](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=669s)** — are funded by companies that have a vested interest. But if you think about it, glyphosate
+- **[11:15](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=675s)** — has a patent on it being an antibiotic. Yeah, because it kills microbes. Certain things you'll
+- **[11:21](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=681s)** — see on the internet will say that there is no danger to glyphosate in humans because the pathway
+- **[11:28](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=688s)** — that biochemically it interrupts is not part of the human body. Well, it is part of the microbes
+- **[11:37](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=697s)** — that live inside of our gut that we depend on. So it definitely affects us from the microbiome
+- **[11:44](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=704s)** — level. But glyphosate is in so many different things, even in non-GMO things, including wheat,
+- **[11:50](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=710s)** — in other grains, not to mention soy, corn. It's just all over the place. And so now I think it's
+- **[11:58](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=718s)** — appropriate to bring up another really bad thing for autoimmune diseases, and that would be
+- **[12:03](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=723s)** — gluten in certain grains. Gluten is a kind of a general term for several
+- **[12:10](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=730s)** — types of proteins that have a very devastating effect on our GI system.
+- **[12:15](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=735s)** — Now you might think just about celiac, which is a very severe disorder, which is
+- **[12:20](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=740s)** — not as common as other disorders. But then you also have gluten intolerance, gluten sensitivity,
+- **[12:26](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=746s)** — which is pretty common. But what about for those people that don't have a problem with
+- **[12:31](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=751s)** — gluten, right? Well, check this out. Gluten, whether you have an intolerance or not, gluten
+- **[12:38](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=758s)** — is going to increase zonulin in everyone. So it's going to open up those tight junctions
+- **[12:44](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=764s)** — in people that are not sensitive to it. And the big problem with gluten is that it's
+- **[12:49](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=769s)** — the only protein that our bodies cannot fully digest. So if we get this undigested protein
+- **[12:58](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=778s)** — floating down our GI tract, and then it opens up the hole in the gut and it goes right through,
+- **[13:03](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=783s)** — now we're going to start to have immune reactions or at least inflammation, especially if you're
+- **[13:07](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=787s)** — consuming it on a chronic basis, which most people are. And unfortunately, lately in the
+- **[13:13](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=793s)** — 20 years or more, gluten has really increased in wheat and in other foods. And so you can
+- **[13:20](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=800s)** — imagine the amount of inflammation going on in our guts without us even knowing it.
+- **[13:24](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=804s)** — All right, let's talk about number four, okay, the food that you should be consuming.
+- **[13:28](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=808s)** — Food, and this is kind of just a general category, but foods high in glutamine,
+- **[13:33](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=813s)** — okay, glutamine. Maybe you've heard of this, maybe you haven't, but glutamine is a good
+- **[13:37](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=817s)** — to reduce inflammation in your gut. Now, glutamine is an amino acid that is a precursor
+- **[13:44](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=824s)** — for glutathione, right, which is one of the most important antioxidants in your body.
+- **[13:50](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=830s)** — And so what foods are high in glutamine? Well, red cabbage. And by the way, cabbage
+- **[13:56](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=836s)** — is just good for any type of gastrointestinal problem. Grass-fed beef, eggs, fish, these are
+- **[14:04](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=844s)** — really high in glutamine. Now on the flip side, additional things you should avoid would be,
+- **[14:09](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=849s)** — of course, glucose, fructose. Both glucose and fructose increase zonulin and increase
+- **[14:16](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=856s)** — permeability. Alcohol is another one that will just put a hole right through your gut.
+- **[14:20](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=860s)** — And of course, vegetable oils, another big one like corn oil, soy oil,
+- **[14:27](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=867s)** — cottonseed oil, canola. These vegetable oils are highly inflammatory and they definitely
+- **[14:31](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=871s)** — will create increased permeability. And of course, trans fats are also really bad for
+- **[14:37](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=877s)** — the intestinal lining. And number five food would be the omega-3 fats. And that's another
+- **[14:41](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=881s)** — category that includes, you know, cod liver oil, fish, salmon, sardines. Omega-3 is really
+- **[14:50](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=890s)** — good for the gut and keeping those junctions really, really tight, as well as reducing the
+- **[14:56](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=896s)** — risk for autoimmune. Now this last part is very, very important too. And this is not foods,
+- **[15:00](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=900s)** — just nutrients. And these nutrients that I'm going to talk about are hands down the most
+- **[15:06](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=906s)** — important nutrients to support the zonulin, to support autoimmune, support the gut lining to
+- **[15:11](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=911s)** — make it really, really tight. Okay. We have zinc, vitamin D, vitamin A, which is in egg
+- **[15:18](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=918s)** — yolks, beef liver, butter, things like that. So now you have the basic information
+- **[15:22](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=922s)** — on what you should be consuming if you have an autoimmune disease. And since we're on the
+- **[15:28](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=928s)** — topic of the gut, another really important video for you to watch would be my more comprehensive
+- **[15:33](https://www.youtube.com/watch?v=HT3oYW2pQSk&t=933s)** — video on the digestive system. And I put that up right here. Check it out.

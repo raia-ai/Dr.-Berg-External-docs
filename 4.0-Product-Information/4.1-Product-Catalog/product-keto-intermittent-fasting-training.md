@@ -1,0 +1,5 @@
+# [PRODUCT] Keto & Intermittent Fasting Training
+
+[PRODUCT] Keto & Intermittent Fasting Training
+# Keto & Intermittent Fasting Training – Digital Program – Dr. Berg ## Dr. Berg Keto & Intermittent Fasting Coach Training * **Expert-led training:** Benefit from Dr. Berg’s expansive knowledge and vast experience * **Flexible learning:** Self-paced online course with nine hours of content * **Comprehensive curriculum:** 96 training videos covering keto, intermittent fasting, insulin resistance, nutrition basics, and effective coaching techniques * **Professional certification:** Earn recognition as a certified Dr. Berg-trained coach * **Exclusive annual virtual meeting:** Gain access to a live Q&A with Dr. Berg, available only to Keto Course purchasers and Certified Coaches * * * * * * ![](https://shop.drberg.com/cdn/shop/files/free-shipping-truck-icon.png?v=17164945451504368884)Free Shipping on Orders over $160 USD
+Learn more: https://shop.drberg.com/products/dr-bergs-keto-intermittent-fasting-coach-training

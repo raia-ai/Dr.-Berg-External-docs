@@ -1,0 +1,175 @@
+# This Can't Be Real...Magic
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=5f5JF2VXpWQ](https://www.youtube.com/watch?v=5f5JF2VXpWQ)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=0s)** — Today I'm going to tell you the fastest way to get relief from trigeminal neuralgia.
+- **[00:07](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=7s)** — And there's two types. So type one is unilateral, could be one side or the other, sudden,
+- **[00:13](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=13s)** — brief, shooting, stabbing. And it can reoccur like every two seconds up to two minutes,
+- **[00:20](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=20s)** — twice a day up to 200 times a day. So it can be very devastating. Type two is more achy,
+- **[00:27](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=27s)** — chronic, not intense, kind of always there. One of the big problems you're probably running into is
+- **[00:32](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=32s)** — doing a search on YouTube or Google to find good information on this topic. Because very recently
+- **[00:38](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=38s)** — with these new changes with Google, now it's just all medical. There's no alternatives,
+- **[00:44](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=44s)** — especially when you type in a medical condition, which okay, fair enough. And even if we type in
+- **[00:49](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=49s)** — natural remedy for trigeminal neuralgia, we get the same thing, medical, medical, medical.
+- **[00:54](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=54s)** — Unfortunately, it's very difficult to find alternatives to medical. Before I kind of go
+- **[00:59](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=59s)** — into this topic, let's just take a look at what the top video says about trigeminal neuralgia.
+- **[01:07](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=67s)** — Welcome back to Mayo Clinic Radio. I'm Dr. Tom Shives. And I'm Tracy McCray. Tracy,
+- **[01:12](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=72s)** — we recently had a listener, as you know, contact us and ask us to do a program on
+- **[01:16](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=76s)** — trigeminal neuralgia. And we listen, we're paying attention. And so if people want to
+- **[01:21](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=81s)** — hear about it, we're going to listen. We invited two of the world's experts on trigeminal
+- **[01:25](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=85s)** — to answer that inquiry. On trigeminal neuralgia. Oh, on trigeminal neuralgia to answer that
+- **[01:32](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=92s)** — inquiry. Thanks for listening. Joining us in studio are Mayo Clinic neurologist,
+- **[01:36](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=96s)** — Dr. Chris Baez and neurosurgeon, Dr. Bruce Pollock. Welcome to the program.
+- **[01:41](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=101s)** — Okay, so that's not really giving me a lot of confidence in this video so far. And why do
+- **[01:46](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=106s)** — they have the comments off, right? I look at the comments a lot, especially when I'm
+- **[01:51](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=111s)** — talking about the brain. And I'm going to talk a lot more about the comments and what people
+- **[01:53](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=113s)** — are saying. But let's go back to this video. I just want to know what type of treatment that
+- **[01:58](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=118s)** — they do for this condition. Let's take a look at that. Assuming all that's come true,
+- **[02:02](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=122s)** — and either the medicines have stopped working, or you can't tolerate the medications,
+- **[02:06](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=126s)** — then we sort of go through the different surgical options that are available.
+- **[02:11](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=131s)** — The best surgery that we have in terms of outcomes is where we go in and actually
+- **[02:15](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=135s)** — move the blood vessels away from the nerve. It is a small craniotomy, so we make a small opening
+- **[02:21](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=141s)** — behind the ear. And we don't go through any brain, but we work in these natural water
+- **[02:26](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=146s)** — sacs that we have to go down and see the trigeminal nerve and mobilize a small artery
+- **[02:31](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=151s)** — off the nerve and then put some padding in to keep it away. The surgery is known as a
+- **[02:36](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=156s)** — microvascular decompression. Typically takes us about two hours and the hospital stay is
+- **[02:41](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=161s)** — typically two days. But you have to go through the skull to get that. Yes, it is an open surgery.
+- **[02:46](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=166s)** — So the incision is behind the ear about an inch and a quarter.
+- **[02:48](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=168s)** — Alright, so I need to get another opinion. I need to get more information about this topic.
+- **[02:53](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=173s)** — Something that does involve medications and surgery. I wonder if there's anything else.
+- **[02:57](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=177s)** — How am I going to go about finding this? I'm just going to show you what I do. The first
+- **[03:01](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=181s)** — thing I do, number one, is I go to the authority on a lot of things, Wikipedia. But I
+- **[03:10](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=190s)** — recommend it so I can go in the exact opposite direction. And I especially look at what they
+- **[03:16](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=196s)** — say that definitely does not work because chances are it probably works. So I do get a lot of
+- **[03:21](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=201s)** — great information with Wikipedia, but it's in the reverse direction. So the next thing I do
+- **[03:27](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=207s)** — is I look at animal research. You will find all sorts of great remedies and information
+- **[03:33](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=213s)** — for animals. Because the thing with animals is that either it's going to work or it's not.
+- **[03:38](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=218s)** — There's not a lot of subjective things. You can't ask your pet dog how they feel about certain
+- **[03:42](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=222s)** — things. You have to create a change or they're not going to use it. And then the next thing I
+- **[03:48](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=228s)** — do is I look for what is the gold standard? What is the main treatment for a particular
+- **[03:53](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=233s)** — disorder? And I start looking at the mechanism. Like how this drug actually works. What does it
+- **[04:00](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=240s)** — do? Does it inhibit an enzyme? What exactly does it do? So then I can actually look at
+- **[04:05](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=245s)** — things like herbs and plants that might create a similar effect, but of course without the
+- **[04:11](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=251s)** — side effects. And then I'll do a patent search. I'll look at patents on this particular
+- **[04:18](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=258s)** — disorder or disease or problem in Europe or in some other country in relationship to
+- **[04:26](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=266s)** — something natural or an herb or something that I can get some clues on. Because what's really
+- **[04:35](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=275s)** — that's on that particular topic that you'll never be able to find if you do a search.
+- **[04:39](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=279s)** — Now I also will get a good understanding of the condition. And in this situation,
+- **[04:45](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=285s)** — trigeminal neuralgia, there's definitely problems with the myelin sheath. So I will
+- **[04:49](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=289s)** — look deeply at anything related to what can affect myelin, especially in the area of
+- **[04:55](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=295s)** — demyelinating nerves. And by the way, myelin is just the coating around the nerve. It's a
+- **[05:04](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=304s)** — seasonal. Does it come at a certain time of the year? Is it more in men than women? Because I
+- **[05:10](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=310s)** — want to know if estrogen could be more involved. At what age does a person usually get it? Is there
+- **[05:15](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=315s)** — anything that usually comes before this problem? Like for example, a surgery, an injury,
+- **[05:22](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=322s)** — a stress event, maybe it happens later in life or earlier. All these factors give me clues.
+- **[05:27](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=327s)** — So let me share what I found about this condition. The first bit of information I found
+- **[05:31](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=331s)** — related to something called polyunsaturated fatty acids. There was some research done on
+- **[05:38](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=338s)** — rats. So if you have a pet hamster or a gerbil or a rat, this might pertain to you.
+- **[05:44](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=344s)** — But this polyunsaturated fatty acid, you have two different kinds. You have the omega-3
+- **[05:49](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=349s)** — fatty acids, which they were using in high doses to get rid of inflammation in the nervous
+- **[05:56](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=356s)** — system and in the brain. But they were also looking at omega-6 fatty acids, the seed oils,
+- **[06:03](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=363s)** — which are not anti-inflammatory. In fact, they're pro-inflammatory. They create inflammation.
+- **[06:08](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=368s)** — They create a lot of oxidative stress and insulin resistance and a lot of problems. And
+- **[06:14](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=374s)** — these omega-6 oils, seed oils, can invade fatty membranes like the myelin sheath.
+- **[06:21](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=381s)** — Whereas omega-3 fatty acids help build myelin sheath. But if you're consuming both at the same
+- **[06:28](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=388s)** — time, they compete with each other. The omega-3 is not going to work. So you must eliminate
+- **[06:35](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=395s)** — the omega-6 fatty acids out of the diet. And especially in the area of processed foods and
+- **[06:39](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=399s)** — all the different oils in the salad dressing and the condiments and things like that. I'm
+- **[06:50](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=410s)** — consumed between 400 to 700 calories of the seed oil every single day. This is insane.
+- **[07:00](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=420s)** — We are human guinea pigs just experimenting with this oil. And it does correlate with so
+- **[07:05](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=425s)** — many health problems. Okay, the introduction of these oils, which are not vegetable oils.
+- **[07:10](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=430s)** — When you think about these oils, none of them relate to any vegetables that you eat
+- **[07:15](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=435s)** — on a regular basis. It's seed oils. I mean, how much corn do you have to crush to get certain
+- **[07:21](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=441s)** — amounts of oil and also the soybeans and the cotton seeds. So it's weird that they call them
+- **[07:25](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=445s)** — vegetable oils because they're really seed oils. Now I found some other interesting data
+- **[07:30](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=450s)** — relating to viruses. This is a pretty heavy duty association. In one research, they did
+- **[07:35](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=455s)** — experiments on cadavers that had this condition. And they opened it up and they found these
+- **[07:40](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=460s)** — viruses that apparently make their home out of your ganglion, which is the kind of a nerve
+- **[07:46](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=466s)** — bundle, where the trigeminal nerve originates from. So there are four primary viruses that
+- **[07:53](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=473s)** — they talked about, with the most common one being a herpes virus, HHV6. The next one being
+- **[08:02](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=482s)** — like shingles, the varicella zoster, which is like the chickenpox virus. The next one is
+- **[08:09](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=489s)** — the abstin-bar virus. And then you also had a cytomegaloviruses. What's interesting about
+- **[08:13](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=493s)** — all of these viruses is they go in and out of remission. So they're called latent viruses.
+- **[08:20](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=500s)** — They can be reactivated, which does explain why trigeminal neuralgia can come and go
+- **[08:27](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=507s)** — based on various factors. One is stress. So I want to kind of just briefly go through
+- **[08:32](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=512s)** — all four of these viruses to tell you some of the other research I found as the potential
+- **[08:37](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=517s)** — Let's start with the HHV6, the herpes virus. Because there's like 245 different herpes viruses.
+- **[08:45](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=525s)** — This one is more common. It can be other ones, but they're not as common. But I found a really
+- **[08:51](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=531s)** — good remedy for this. It's an extract from shiitake mushrooms. And I'll just give you the
+- **[08:56](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=536s)** — abbreviation AHCC, but there's some interesting research to show that using that to help
+- **[09:02](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=542s)** — reduce pain from that virus and potentially even clearing out that virus. So what I'm
+- **[09:06](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=546s)** — doing now is just pointing you into a certain direction to do more research on. I'm not going
+- **[09:11](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=551s)** — to give you specific brands or doses and things like that, because we don't know.
+- **[09:15](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=555s)** — Because there are multiple reasons why you might have this condition.
+- **[09:18](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=558s)** — It could be even from a tumor, which is very rare. It could be from physical injury.
+- **[09:22](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=562s)** — It could be from a surgery that you had in your sinuses. So you really want to look at
+- **[09:27](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=567s)** — all these factors too. Okay, now what about this varicella zoster, this like shingles virus?
+- **[09:35](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=575s)** — Vitamin D3 in high doses, like 50,000 I use would be a really good thing. And I would add zinc
+- **[09:41](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=581s)** — to that, because in order for vitamin D to work, you need zinc and you need magnesium as well.
+- **[09:47](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=587s)** — But vitamin D is a powerful anti-inflammatory. And it's something that you can even get
+- **[09:53](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=593s)** — topically for shingles. And it also works good on sciatic pain and other types of pain and
+- **[10:00](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=600s)** — back pain. But it can definitely help put this shingles virus back in remission. Now,
+- **[10:05](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=605s)** — what about Epstein-Barr virus? This is one that is really nasty, because it can really make
+- **[10:10](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=610s)** — you tired, cause fibromyalgia. There is a lot of different remedies out there. I'm just going
+- **[10:15](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=615s)** — to tell you from personal experience, from myself, and from working with a lot of patients,
+- **[10:20](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=620s)** — this is like 100% activated by stress. So you just have to find out what is stressing
+- **[10:25](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=625s)** — you out and figure out how you can reduce that stress. And that is probably the best advice I
+- **[10:30](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=630s)** — can give you on that virus. The cytomegalovirus. This is another one. I found some research on
+- **[10:35](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=635s)** — berberine. Yeah, berberine actually can help put this virus back in remission. I did find some
+- **[10:40](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=640s)** — other research on trigeminal neuralgia, specifically supporting that nerve tissue to drop
+- **[10:48](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=648s)** — inflammation. And I'll list the full name down below, but I'm just going to kind of give you
+- **[10:55](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=655s)** — initials of it. It's PEA slash luteolin, which is a natural thing in a lot of different foods
+- **[11:03](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=663s)** — that you eat. And because these molecules are fairly big, you want to get it micronized or
+- **[11:08](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=668s)** — broken up into small particles. But it apparently is a very powerful, neuroprotective
+- **[11:14](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=674s)** — anti-inflammatory. And then with the second compound, luteolin, that adds the antioxidants,
+- **[11:20](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=680s)** — because the first compound doesn't have that factor. But apparently this is something you
+- **[11:25](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=685s)** — can take orally with some good results. Now, another remedy that I found some interesting
+- **[11:30](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=690s)** — research on is called DMSO, which has great anti-inflammatory properties. It's very, very
+- **[11:39](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=699s)** — penetrating. You can put some on your foot and you can just actually taste it within seconds.
+- **[11:44](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=704s)** — It's like you taste like a garlic taste to it. But DMSO has been used for a lot of
+- **[11:50](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=710s)** — pain problems, pain syndromes. The only thing it's... it penetrates the tissues pretty fast. So
+- **[11:57](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=717s)** — you wouldn't want to put it with something that's toxic. So for example, if you're
+- **[12:02](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=722s)** — trying to kill your rat with rat poisoning and it's on your hands and you put the
+- **[12:06](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=726s)** — this DMSO on your hands, it's going to drive that poison rather than your tissue. So you
+- **[12:11](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=731s)** — want to clean the area before you put it on that tissue. So like if you have, I don't
+- **[12:16](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=736s)** — know, makeup on your face or some type of skin lotion, clean that off. Then you can rub in
+- **[12:23](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=743s)** — that DMSO wherever it originates. And there's been some really fascinating research on this.
+- **[12:30](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=750s)** — It's been around for a long time for things like phantom pain, post-operative, like you
+- **[12:35](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=755s)** — had in surgery, now you have pain. It's also good for post-traumatic type problems.
+- **[12:40](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=760s)** — If you had some injury and trigeminal neuralgia. So in one study, which I'm going to put down
+- **[12:45](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=765s)** — below, 32 out of 37 people experienced relief. And you could literally combine that first remedy,
+- **[12:54](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=774s)** — the PEA slash glutolin with the DMSO to drive that in deeper. I don't know. It's just an idea.
+- **[13:02](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=782s)** — It may work because anything you put with DMSO, it drives it in there, whether you do
+- **[13:08](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=788s)** — aloe vera or other types of things. Now we come to the technique I'm going to show you to
+- **[13:14](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=794s)** — dramatically reduce the pain very quickly. This technique doesn't fix the problem permanently,
+- **[13:20](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=800s)** — but it can greatly reduce the pain very fast. And I use this in practice. It was very effective.
+- **[13:28](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=808s)** — It works probably in 70% of the cases. The type of cases that it doesn't work on, if it's
+- **[13:34](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=814s)** — really, really viral related and there's like this active outbreak or infection, it will not
+- **[13:39](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=819s)** — work. It works really good on if you had some type of injury or post-surgery. So the whole
+- **[13:46](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=826s)** — theory of it is you're breaking up this brain circuitry that it keeps causing pain. It just
+- **[13:52](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=832s)** — keeps going and going. There's an amazing technique that I'm going to show you right
+- **[13:55](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=835s)** — now to drop the pain. It doesn't correct it, but at least it'll drop the pain pretty fast.
+- **[14:01](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=841s)** — And here's what you do. First of all, you isolate where the pain is coming from. Let's
+- **[14:09](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=849s)** — on the mirror image on the opposite side. The key is to mirror image to get the exact epicenter
+- **[14:16](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=856s)** — of wherever this is on the good side. Don't mess on the bad side. Just press on the good
+- **[14:22](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=862s)** — side and you're going to massage it. Now, the way that you know you have the exact correct
+- **[14:27](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=867s)** — spot to press on is it'll be very tender. It will. The good side will be tender,
+- **[14:32](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=872s)** — actually probably more tender than the side. So you find it and you just kind of massage it
+- **[14:37](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=877s)** — for about a minute. And then notice the bad side. If it's there at all, it's going to drop the
+- **[14:46](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=886s)** — pain. So let's say, for example, you did this and it moved down. Then you just go down.
+- **[14:51](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=891s)** — And then all of a sudden, oh wow, that got rid of that. But now it moved back over here
+- **[14:55](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=895s)** — and you keep doing that until this is manageable. This is something you could do through the day
+- **[15:01](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=901s)** — as you start using some of these other remedies to help yourself. But I've used this in
+- **[15:05](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=905s)** — practice for years. It really came in handy and it's not something they teach you in school.
+- **[15:10](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=910s)** — In fact, they teach you the opposite. They'll teach you to put therapy on this side,
+- **[15:15](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=915s)** — you know, mess with this nerve. No, work on the good side. You'll see it'll work. Just
+- **[15:20](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=920s)** — try it out. Now, if you're not on my list to receive my newsletter on all sorts of unfiltered
+- **[15:27](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=927s)** — content on my website, I put that link down below too because I have a lot of cool things
+- **[15:32](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=932s)** — I want to share with you that unfortunately I can't put on YouTube. So click the link
+- **[15:35](https://www.youtube.com/watch?v=5f5JF2VXpWQ&t=935s)** — down below and I will see you on the other side.

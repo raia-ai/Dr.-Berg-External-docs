@@ -1,0 +1,214 @@
+# Get Your Omega-6 to Omega-3 Ratios Balanced
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=FjfyBJcyoJI](https://www.youtube.com/watch?v=FjfyBJcyoJI)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=0s)** — So, when we talk about essential fatty acids,
+- **[00:03](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=3s)** — primarily we're talking about two different kinds.
+- **[00:06](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=6s)** — We have omega-6 and omega-3.
+- **[00:09](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=9s)** — I want to focus on both of them today because
+- **[00:11](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=11s)** — we have a big problem.
+- **[00:14](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=14s)** — The ratios at which people are consuming the omega-6 to omega-3
+- **[00:17](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=17s)** — are way, way, way, way off.
+- **[00:19](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=19s)** — On an average American, they're at 20 to 1
+- **[00:22](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=22s)** — to sometimes 70 to 1 or more.
+- **[00:25](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=25s)** — And this introduction of the seed oils
+- **[00:28](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=28s)** — are a relatively new thing for humans.
+- **[00:31](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=31s)** — And I know people call them vegetable oils,
+- **[00:33](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=33s)** — but there's no vegetables in these oils.
+- **[00:35](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=35s)** — They're seed oils.
+- **[00:36](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=36s)** — So this whole seed oil thing started in 1866
+- **[00:39](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=39s)** — with cotton seed oil.
+- **[00:41](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=41s)** — I mean, before this, we used cotton seed oil
+- **[00:44](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=44s)** — in lamps as a fuel.
+- **[00:47](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=47s)** — We used it as a lubricant in machinery.
+- **[00:49](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=49s)** — And then someone had a great idea to put it in the food supply
+- **[00:53](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=53s)** — and turn it into edible oil.
+- **[00:55](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=55s)** — In fact, all the information I'm sharing with you
+- **[00:57](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=57s)** — is out of this book right here,
+- **[00:58](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=58s)** — The Ancestral Diet Revolution by Dr. Chris Kenobemdi.
+- **[01:03](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=63s)** — An incredible textbook on everything you'd ever want to know
+- **[01:08](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=68s)** — about these seed oils and the effects that it can create
+- **[01:12](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=72s)** — for our health.
+- **[01:14](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=74s)** — But I want to read you a quote on page 30.
+- **[01:17](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=77s)** — On the topic of cotton seed oil use,
+- **[01:19](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=79s)** — an issue of popular science
+- **[01:22](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=82s)** — from the turn of the 20th century era,
+- **[01:26](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=86s)** — summed up cotton seed and cotton seed oil
+- **[01:27](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=87s)** — with a single phrase.
+- **[01:30](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=90s)** — What was garbage in 1860 was fertilizer in 1870,
+- **[01:35](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=95s)** — cattle feed in 1880, and table food in 1890.
+- **[01:41](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=101s)** — There's so many things we have in our environments
+- **[01:44](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=104s)** — that are considered waste that we somehow turn it into food.
+- **[01:47](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=107s)** — I mean, even toxic sewage sludge
+- **[01:49](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=109s)** — is recycled into biosolids and used as fertilizer.
+- **[01:55](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=115s)** — You have a restaurant grease is recycled
+- **[01:58](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=118s)** — and put in the food supply.
+- **[01:59](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=119s)** — But let me not divert from this topic.
+- **[02:01](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=121s)** — Let's get back to this omega-6, omega-3 fatty acid ratio.
+- **[02:06](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=126s)** — We need both of these essential fatty acids,
+- **[02:09](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=129s)** — but we definitely don't need it in the imbalanced amounts.
+- **[02:11](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=131s)** — Not to mention the source of the seed oils, right?
+- **[02:14](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=134s)** — You're talking about using petroleum-derived hexane,
+- **[02:19](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=139s)** — which is a solvent in this process,
+- **[02:21](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=141s)** — chemical alkalization, bleaching, deodorizing,
+- **[02:26](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=146s)** — and you're heating these very unstable oils
+- **[02:28](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=148s)** — many different times.
+- **[02:30](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=150s)** — And what's really wild about this
+- **[02:31](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=151s)** — is roughly about a fourth to a third
+- **[02:35](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=155s)** — of all your calories.
+- **[02:36](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=156s)** — It's not just in cooking oil,
+- **[02:38](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=158s)** — it's in a lot of different things.
+- **[02:39](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=159s)** — We already have a problem with inflammation.
+- **[02:41](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=161s)** — The number one selling drug on the planet
+- **[02:44](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=164s)** — is an anti-inflammatory.
+- **[02:46](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=166s)** — And when your fat cell becomes inflamed,
+- **[02:48](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=168s)** — that can produce insulin resistance.
+- **[02:51](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=171s)** — And then also at the heart of this inflammation,
+- **[02:54](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=174s)** — we have a lot of associated mitochondrial dysfunction.
+- **[02:58](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=178s)** — The majority of illnesses and disease
+- **[03:00](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=180s)** — are in mitochondrial origin.
+- **[03:02](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=182s)** — Now I'll just show you two graphs right here.
+- **[03:04](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=184s)** — The top graph is the omega-6 fatty acids.
+- **[03:09](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=189s)** — Okay?
+- **[03:09](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=189s)** — The bottom graph is the omega-3 fatty acids.
+- **[03:11](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=191s)** — As you can see, the trend for omega-3
+- **[03:14](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=194s)** — is not nearly as high as omega-6.
+- **[03:17](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=197s)** — I'm going to show you this graph right here.
+- **[03:19](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=199s)** — If you look at heart disease going up
+- **[03:21](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=201s)** — and look at saturated fat right in the center there.
+- **[03:24](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=204s)** — That is not spiking parallel with seed oils.
+- **[03:29](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=209s)** — So in other words, we've replaced our saturated fats
+- **[03:31](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=211s)** — with seed oils with this false idea
+- **[03:34](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=214s)** — that the saturated fats are the problem
+- **[03:36](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=216s)** — and the unsaturated fats are the solution.
+- **[03:39](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=219s)** — Unsaturated fats do have the capacity to lower cholesterol
+- **[03:44](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=224s)** — but they're not heart protective.
+- **[03:46](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=226s)** — There's a lot of data that indicates that
+- **[03:47](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=227s)** — these highly processed industrial seed oils
+- **[03:50](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=230s)** — create a lot of damage at the cellular level.
+- **[03:53](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=233s)** — You can see total meat, okay?
+- **[03:57](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=237s)** — And you can also see over time red meat
+- **[04:00](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=240s)** — is not really a big spike.
+- **[04:04](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=244s)** — But poultry is. Interesting.
+- **[04:06](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=246s)** — So the big spike in meat is really chicken
+- **[04:10](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=250s)** — which is very high in omega-6 fatty acids.
+- **[04:13](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=253s)** — If you're doing grass-fed meats
+- **[04:15](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=255s)** — it's going to be very low in this omega-6 fatty acid.
+- **[04:18](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=258s)** — In this graph right here we have cardiovascular deaths
+- **[04:21](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=261s)** — correlate more with vegetable oils
+- **[04:24](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=264s)** — than it does with sugar.
+- **[04:27](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=267s)** — Seed oils are in so many different foods
+- **[04:30](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=270s)** — and it's definitely part of pretty much
+- **[04:32](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=272s)** — every single ultra-processed food.
+- **[04:35](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=275s)** — A.K.A. junk foods.
+- **[04:38](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=278s)** — A lot of times people think that
+- **[04:40](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=280s)** — ultra-processed foods are just saturated fats.
+- **[04:44](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=284s)** — Well, really the only saturated fats
+- **[04:46](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=286s)** — in these ultra-processed foods
+- **[04:47](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=287s)** — is palm oil in very small amounts.
+- **[04:51](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=291s)** — I mean, really no one's talking about
+- **[04:52](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=292s)** — the seed oils in these ultra-processed foods.
+- **[04:54](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=294s)** — The unsaturated fatty acids
+- **[04:56](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=296s)** — which are very unstable.
+- **[04:58](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=298s)** — That's enough for omega-6 fatty acids.
+- **[05:00](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=300s)** — Now what about omega-3 fatty acids?
+- **[05:02](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=302s)** — Where do we get that?
+- **[05:03](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=303s)** — We get it from fish.
+- **[05:05](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=305s)** — Cod liver oil.
+- **[05:06](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=306s)** — Cod liver has probably the most omega-3 fatty acids.
+- **[05:10](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=310s)** — Sardines and wild caught shellfish.
+- **[05:13](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=313s)** — But the animals that consume these grains
+- **[05:17](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=317s)** — like pigs and chickens and even the grain-fed beef
+- **[05:20](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=320s)** — are much higher in omega-6 fatty acids.
+- **[05:23](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=323s)** — So this is one reason why a lot of people
+- **[05:26](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=326s)** — are turning to grass-fed, grass-finished beef.
+- **[05:29](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=329s)** — Because it's going to contribute to the omega-3 fatty acids.
+- **[05:32](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=332s)** — People are doing more and more fish
+- **[05:34](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=334s)** — which is also going to contribute.
+- **[05:36](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=336s)** — Now when we have this omega-6 fatty acid
+- **[05:38](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=338s)** — and omega-3 fatty acid
+- **[05:40](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=340s)** — they go through a series of pathways
+- **[05:42](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=342s)** — to be able to turn into certain compounds
+- **[05:44](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=344s)** — that benefit our bodies.
+- **[05:46](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=346s)** — And the enzymes that allow
+- **[05:48](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=348s)** — this biochemical conversions
+- **[05:50](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=350s)** — are shared by both the omega-6 and omega-3.
+- **[05:54](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=354s)** — In other words, both of these oils
+- **[05:56](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=356s)** — compete with each other.
+- **[05:58](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=358s)** — And so if there's any problem
+- **[06:00](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=360s)** — in this biochemical pathway
+- **[06:03](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=363s)** — because maybe we are missing cofactors
+- **[06:07](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=367s)** — then you're going to get dysfunctional fats.
+- **[06:10](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=370s)** — You're not going to get the benefit of the omega-3
+- **[06:12](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=372s)** — and we're not going to be able to use
+- **[06:14](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=374s)** — some of these oils.
+- **[06:15](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=375s)** — Now don't get me wrong, we do need omega-6 as well
+- **[06:18](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=378s)** — but we don't need it in such high quantities.
+- **[06:20](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=380s)** — And we also need it from a much higher quality source.
+- **[06:23](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=383s)** — So the cofactors that allow this to happen
+- **[06:25](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=385s)** — include like magnesium, B2, B3, B6
+- **[06:30](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=390s)** — vitamin C, and, and this is interesting, insulin.
+- **[06:34](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=394s)** — Now you have to realize that the great majority of people
+- **[06:36](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=396s)** — are insulin resistant, which means
+- **[06:39](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=399s)** — they're deficient in insulin.
+- **[06:42](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=402s)** — So therefore they're not going to have the cofactor
+- **[06:45](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=405s)** — to allow this to happen.
+- **[06:47](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=407s)** — So I really think based on that data
+- **[06:49](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=409s)** — that if you're doing a lot of seed oils
+- **[06:51](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=411s)** — and you're insulin resistant
+- **[06:54](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=414s)** — there's going to be a lot more compounded damage
+- **[06:56](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=416s)** — versus if you were to correct insulin resistance
+- **[06:59](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=419s)** — through a diet that's low on carb
+- **[07:02](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=422s)** — and doing intermittent fasting for a period of time
+- **[07:04](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=424s)** — you're going to be able to utilize
+- **[07:06](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=426s)** — more of the benefits of these essential fatty acids
+- **[07:08](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=428s)** — and not have dysfunctional problems with them.
+- **[07:11](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=431s)** — Primarily we have like EPA in DHA.
+- **[07:14](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=434s)** — EPA is more for inflammation.
+- **[07:17](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=437s)** — DHA is really important in cognitive function,
+- **[07:21](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=441s)** — attention, focus, learning.
+- **[07:23](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=443s)** — And that's going to come from fatty fish in fish oil.
+- **[07:27](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=447s)** — Now there's also a precursor that turns into EPA
+- **[07:30](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=450s)** — that's called ALA.
+- **[07:32](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=452s)** — Sometimes you'll see in various articles that
+- **[07:36](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=456s)** — you know, consume more flax and chia seed
+- **[07:38](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=458s)** — and walnuts if you want to get more omega-3 fatty acids
+- **[07:42](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=462s)** — but they're not talking about EPA
+- **[07:44](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=464s)** — they're talking about the precursor.
+- **[07:46](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=466s)** — There's a really important test
+- **[07:49](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=469s)** — that measures your omega-6 to your omega-3 fatty acid ratio.
+- **[07:54](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=474s)** — And so that way you can actually know if you're okay or not.
+- **[07:57](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=477s)** — They'll tell you based on a simple blood spot test
+- **[08:01](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=481s)** — where you just take a drop of blood
+- **[08:02](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=482s)** — put it on this little card, send it in.
+- **[08:03](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=483s)** — It'll give you more information
+- **[08:05](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=485s)** — into what's happening internally in your body.
+- **[08:07](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=487s)** — And I highly recommend that test done over time
+- **[08:11](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=491s)** — to be able to correct these ratios if they're off.
+- **[08:14](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=494s)** — So in summary, start to consume
+- **[08:17](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=497s)** — wild-caught fish on a regular basis
+- **[08:19](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=499s)** — like salmon and sardines, things like that.
+- **[08:21](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=501s)** — And at the same time start limiting
+- **[08:23](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=503s)** — the amount of omega-6 fatty acids
+- **[08:26](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=506s)** — because never in history have we consumed
+- **[08:29](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=509s)** — the quantities and the out of balance ratios
+- **[08:32](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=512s)** — of omega-6 to omega-3.
+- **[08:35](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=515s)** — And I'm going to put a link down below
+- **[08:37](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=517s)** — for Dr. Kenobi's book
+- **[08:39](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=519s)** — as well as a link if you wanted to get that test
+- **[08:42](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=522s)** — to evaluate.
+- **[08:44](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=524s)** — And instead of me taking an affiliate commission
+- **[08:47](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=527s)** — I'm going to share that commission with you as a discount
+- **[08:51](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=531s)** — so you pay the least amount possible.
+- **[08:54](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=534s)** — So I'll put that link down below.
+- **[08:55](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=535s)** — You can get that test and see where you're at.
+- **[08:57](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=537s)** — So thanks for watching.
+- **[08:58](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=538s)** — And if you have not seen my video on cod liver oil,
+- **[09:02](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=542s)** — that's a good one to watch too.
+- **[09:03](https://www.youtube.com/watch?v=FjfyBJcyoJI&t=543s)** — I put it up right here.

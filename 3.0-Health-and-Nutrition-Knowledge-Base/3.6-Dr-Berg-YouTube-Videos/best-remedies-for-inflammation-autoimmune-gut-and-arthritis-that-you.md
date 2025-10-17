@@ -1,0 +1,154 @@
+# Best Remedies for INFLAMMATION (Autoimmune, Gut, and Arthritis) That You Never Considered
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=Ixf0DFExhq0](https://www.youtube.com/watch?v=Ixf0DFExhq0)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=0s)** — I like to talk about the science of inflammation.
+- **[00:02](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=2s)** — Unfortunately, a lot of people have inflammation. They go to the doctor.
+- **[00:05](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=5s)** — They get put on a certain medication. And that's pretty much it.
+- **[00:08](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=8s)** — But they're covering up the root cause. Dealing with inflammation goes way beyond just taking some fish oils.
+- **[00:13](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=13s)** — And I've been very lucky to be in practice for over 30 years to really see the underlying root causes of inflammation.
+- **[00:20](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=20s)** — Because some of these causes are not in the medical literature.
+- **[00:23](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=23s)** — Inflammation is an immune reaction. It's not just about treating a pathogen or some virus or bacteria.
+- **[00:30](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=30s)** — The problem is when inflammation goes on too long, that's when we get all sorts of problems.
+- **[00:35](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=35s)** — Like cancer. Cancer tends to invade areas of inflammation.
+- **[00:40](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=40s)** — And anytime we have inflammation, we also have a lack of oxygen.
+- **[00:44](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=44s)** — And both inflammation and hypoxia causes cancer to grow more aggressively.
+- **[00:50](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=50s)** — Let's start with the first one. Fibromyalgia.
+- **[00:53](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=53s)** — Which is inflammation that spreads throughout the entire body.
+- **[00:56](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=56s)** — Now, one time when I was in practice, I reached out to my patients to find out who had fibromyalgia.
+- **[01:02](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=62s)** — 100% of all of these patients had fibromyalgia only on the right side of their body.
+- **[01:08](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=68s)** — As I was digging in further, I found out that they all had problems underneath the red rib cage.
+- **[01:14](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=74s)** — That's where you have the little tubes that are called bile ducts.
+- **[01:18](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=78s)** — And sometimes the bile that's supposed to flow from the liver into the gallbladder becomes thickened.
+- **[01:24](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=84s)** — And it can create a backup of bile into the liver.
+- **[01:29](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=89s)** — And that bile is like a detergent. It can irritate the liver.
+- **[01:32](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=92s)** — And it can cause pain that radiates up into the right shoulder, up into the neck, from something called bile sludge.
+- **[01:39](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=99s)** — I did something very interesting. I had them massage underneath the right rib cage.
+- **[01:44](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=104s)** — Just to hold that pressure for about a minute.
+- **[01:47](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=107s)** — And then I would re-evaluate the pain. It went down to almost zero.
+- **[01:51](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=111s)** — I put them all on a remedy of taking bile salts with their food and also on an empty stomach.
+- **[01:57](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=117s)** — One type of bile salt is called tutka. And that just kind of really opens up that flow.
+- **[02:02](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=122s)** — And a person can see huge results very quickly.
+- **[02:06](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=126s)** — If someone has fibromyalgia through the entire body, it's usually not coming from the gallbladder.
+- **[02:11](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=131s)** — It's usually coming from a virus that has come out of remission.
+- **[02:15](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=135s)** — Epstein-Barr virus is shingles. Another one is the herpes viruses.
+- **[02:19](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=139s)** — And all those viruses come out when your immune system is weak.
+- **[02:23](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=143s)** — What happens with stress is it activates cortisol. And cortisol suppresses the immune system.
+- **[02:28](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=148s)** — The next thing that can cause pain is Lyme disease. Lyme can create a lot of inflammation in your body.
+- **[02:33](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=153s)** — It downgrades your ability to use vitamin D.
+- **[02:38](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=158s)** — Vitamin D, hands down, is the most important vitamin for your immune system.
+- **[02:42](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=162s)** — Vitamin D does two things. It will increase the immune system or bring down the immune system
+- **[02:48](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=168s)** — if your immune system is overactive. So it's the ultimate solution for both problems.
+- **[02:54](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=174s)** — Next one is old injuries. As you age, you get things like arthritis, stiffness.
+- **[03:01](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=181s)** — I am the poster child of old injuries. I broke my left elbow in 30 places.
+- **[03:06](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=186s)** — My left shoulder. I broke my neck. Other than that, I did pretty good.
+- **[03:10](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=190s)** — You are going to have to constantly work on stretching, not just your ligaments and muscles,
+- **[03:15](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=195s)** — but something more important. And that's called your fascia.
+- **[03:19](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=199s)** — My worst enemy, and your worst enemy if you have this, is being sedentary.
+- **[03:24](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=204s)** — You have to keep moving, keep stretching. The next one is inflammatory oncotaxis.
+- **[03:30](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=210s)** — That is a situation where cancer spreads into areas of inflammation.
+- **[03:35](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=215s)** — For example, if you are a smoker, you'll have inflammation in the lungs from damage.
+- **[03:40](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=220s)** — Cancer will spread into that area a lot easier. I will get to some really powerful strategies in a minute.
+- **[03:46](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=226s)** — Next one is food allergies. If you're eating something that is irritating your colon,
+- **[03:51](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=231s)** — whether it's gluten or a peanut or soy, you're going to get constant inflammation.
+- **[03:58](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=238s)** — This is basically the gut-brain axis. Whatever is going down here, it's going to affect up here.
+- **[04:03](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=243s)** — It's pretty wild how whole grains are really promoted as a health food, and we should eat more of them.
+- **[04:09](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=249s)** — Not if we don't want gut inflammation. When you have leaky gut or bleeding gums,
+- **[04:14](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=254s)** — what happens is certain microbes can get into the body, go into the bloodstream, and create a lot of problems.
+- **[04:21](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=261s)** — One of the things that can create gingivitis is a severe vitamin C deficiency,
+- **[04:25](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=265s)** — because you're eating too much sugar or carbs, and then you start getting a breakdown in the collagen.
+- **[04:30](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=270s)** — The microbes are there to help build up this mucus layer, to kind of create a barrier.
+- **[04:36](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=276s)** — If those microbes are missing because you took an antibiotic, now we don't have that protective layer,
+- **[04:42](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=282s)** — and now we have an imbalance between the good bacteria and the bad bacteria.
+- **[04:46](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=286s)** — We get an overgrowth, and then we have all sorts of issues with the gut.
+- **[04:49](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=289s)** — Next one involves cortisol. People that have high levels of cortisol have a lot of inflammation
+- **[04:54](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=294s)** — because they have developed something called cortisol resistance,
+- **[04:59](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=299s)** — where you have too much of a certain hormone, and then all of a sudden the receptors don't work anymore.
+- **[05:04](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=304s)** — Now we have the opposite effect. If cortisol is an anti-inflammatory, now we just get more inflammation.
+- **[05:09](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=309s)** — Another big one is consuming junk food. I'm really talking about sugar, and I'm not talking about just regular sugar,
+- **[05:15](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=315s)** — I'm talking about the junky industrial synthetic sugars.
+- **[05:19](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=319s)** — And then we have something else, which is interesting. It's a hidden sugar. It's actually a starch.
+- **[05:23](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=323s)** — Modified corn starch, modified food starch, maltodextrin.
+- **[05:27](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=327s)** — And an average person consumes over 150 pounds of this stuff every single year.
+- **[05:32](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=332s)** — It will spike your blood sugar super high, and it will keep you inflamed.
+- **[05:36](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=336s)** — I said sugar, starch, and seed oils. It's the worst of the worst.
+- **[05:41](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=341s)** — These seed oils are fats that don't really provide energy.
+- **[05:45](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=345s)** — There's a cell right here. These seed oils get locked into the membranes,
+- **[05:49](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=349s)** — and they affect the function of the cell. It's very hard to get these seed oils out of the body.
+- **[05:55](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=355s)** — If you stop eating them, it will probably take a year and a half to completely get them out of the system,
+- **[06:00](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=360s)** — and I highly recommend you do that. And an average person consumes between five and eight gallons every single year.
+- **[06:06](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=366s)** — Next one is having too much visceral fat. That's the fat around the organs.
+- **[06:12](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=372s)** — If you consume too much sugar, starch, or seed oil, you start developing insulin resistance.
+- **[06:17](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=377s)** — Insulin is not going into the fat cell. All that fat now is stored outside the fat cell.
+- **[06:22](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=382s)** — And that's all the fat in your liver, around your organs.
+- **[06:26](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=386s)** — Next one, autoimmune diseases are even more common than heart disease and cancer.
+- **[06:32](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=392s)** — Normally you have certain T-cells, it's part of the immune system, to prevent that from happening.
+- **[06:38](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=398s)** — And when that cell becomes diminished or dysfunctional, a person will develop an autoimmune disease.
+- **[06:44](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=404s)** — We have an overreactive immune system. Another one is soy protein isolates.
+- **[06:51](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=411s)** — It's in protein powders, fake meats, and even certain diets.
+- **[06:55](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=415s)** — And then you're going to use that as a protein to help your body.
+- **[06:58](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=418s)** — I know people that came into my practice consuming a lot of that protein.
+- **[07:02](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=422s)** — And a large percentage of them came in with a lot of inflammation around the liver.
+- **[07:08](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=428s)** — I took them off that product and it cleared up.
+- **[07:12](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=432s)** — Next one is EMF, electromagnetic fields.
+- **[07:16](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=436s)** — If you do a lot of talking like this, you're going to get a lot of electromagnetic fields into your brain.
+- **[07:24](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=444s)** — That can create inflammation.
+- **[07:26](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=446s)** — I had someone come in my house and scan the entire house for EMF radiation.
+- **[07:32](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=452s)** — At the time I had palpitations and I was trying every nutritional remedy.
+- **[07:37](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=457s)** — And I also had insomnia.
+- **[07:38](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=458s)** — As soon as this individual came close to scanning around my bed, the meter just went off the chart.
+- **[07:45](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=465s)** — It just started buzzing.
+- **[07:47](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=467s)** — It was behind the headboard and the wall where my bed was.
+- **[07:51](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=471s)** — And there were wires that were crossed, creating a magnetic field that extended 8 feet from the wall.
+- **[07:57](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=477s)** — I was literally being bathed in a magnet.
+- **[08:01](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=481s)** — As soon as we fixed that, all my palpitations completely went away and I started sleeping like a baby.
+- **[08:07](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=487s)** — Next one, certain medications.
+- **[08:09](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=489s)** — I'll guarantee you're going to have more inflammation as a side effect.
+- **[08:11](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=491s)** — That will lead to a problem and that will be treated with another medication and it just keeps going.
+- **[08:16](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=496s)** — There are people that I know on 15 different drugs, 20 different drugs.
+- **[08:20](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=500s)** — And I'll guarantee you some of the side effects from one drug is being treated by another drug.
+- **[08:25](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=505s)** — Their body is in a massive confusion.
+- **[08:26](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=506s)** — I recommend finding a good doctor to see what actual medications you absolutely need to take.
+- **[08:31](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=511s)** — And I would also ask them to help you wean off certain medications that you could potentially find another remedy to treat it for.
+- **[08:38](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=518s)** — Like a natural remedy.
+- **[08:39](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=519s)** — Next item to talk about is too much iron.
+- **[08:42](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=522s)** — Iron is very inflammatory to the point where you could develop cirrhosis of the liver just from having too much iron.
+- **[08:48](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=528s)** — Never take iron in a supplement.
+- **[08:49](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=529s)** — If you donate blood and you feel better, then you know you have an iron problem.
+- **[08:54](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=534s)** — One antidote is to increase your copper, which actually allows the iron to be more protected.
+- **[09:01](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=541s)** — Next one, if you have a fibroid, that can refer a lot of pain to the back.
+- **[09:05](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=545s)** — Well, one simple remedy is to up your vitamin D to 30,000 I use every single day.
+- **[09:10](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=550s)** — Next one, one really important clue for heart is if you exercise and you get winded too easily, get your heart checked out.
+- **[09:18](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=558s)** — A lot of times, that's the only symptom you're going to have with a heart problem. If any.
+- **[09:22](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=562s)** — Let's now talk about some common remedies that you want to add to these problems.
+- **[09:26](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=566s)** — Let's first talk about autoimmune diseases.
+- **[09:28](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=568s)** — You need to add vitamin D3.
+- **[09:30](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=570s)** — Anytime you take vitamin D3, always take magnesium, zinc, and K2.
+- **[09:34](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=574s)** — That way you have less side effects and things work a lot better.
+- **[09:37](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=577s)** — If you have autoimmune disease, you want to do this dairy probiotic using Elruderi.
+- **[09:42](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=582s)** — It's a dynamite remedy for many things. I will put that link down below.
+- **[09:45](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=585s)** — If you have autoimmune of your gut, I highly recommend you do the carnivore diet for a few months.
+- **[09:52](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=592s)** — And then maybe slowly reintroduce something like sauerkraut.
+- **[09:55](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=595s)** — Go on a low carb diet, cut down your sugars, starches, and seed oils.
+- **[09:59](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=599s)** — What's really important is intermittent fasting.
+- **[10:01](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=601s)** — I would do two meals a day. If you go to one meal a day, that's even better.
+- **[10:06](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=606s)** — That's automatically going to reduce your fat on your liver, your visceral fat.
+- **[10:10](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=610s)** — There goes inflammation. I do want to mention omega-3 fatty acids.
+- **[10:14](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=614s)** — Cobb liver oil is the best.
+- **[10:15](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=615s)** — And of course, with any inflammation at all, you always want to take vitamin D.
+- **[10:19](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=619s)** — I personally have been taking 40, maybe 50,000 I use of vitamin D every day.
+- **[10:25](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=625s)** — And don't forget about the sun. The sun will give you vitamin D for free.
+- **[10:28](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=628s)** — Last thing I want to mention, and this is fascinating.
+- **[10:31](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=631s)** — I develop a technique. I call it the opposite technique.
+- **[10:34](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=634s)** — Anywhere you hurt on the body, you can press on the opposite side and get rid of the pain.
+- **[10:40](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=640s)** — It's pretty wild. This is something they don't teach you in school.
+- **[10:42](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=642s)** — I will put a couple links down below so you can kind of see.
+- **[10:45](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=645s)** — If you have any pain or inflammation anywhere in the body, you might want to try that technique as well.
+- **[10:49](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=649s)** — And you'll be very impressed.
+- **[10:50](https://www.youtube.com/watch?v=Ixf0DFExhq0&t=650s)** — Thanks for watching. I will see you in the next video.

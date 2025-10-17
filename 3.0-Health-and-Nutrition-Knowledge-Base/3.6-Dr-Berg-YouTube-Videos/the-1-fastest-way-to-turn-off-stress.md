@@ -1,0 +1,92 @@
+# The #1 Fastest Way to Turn Off Stress
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=FTAc8IaUWTc](https://www.youtube.com/watch?v=FTAc8IaUWTc)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=0s)** — So I'm driving my tractor carrying a bale of hay. And the bale of hay weighs about
+- **[00:08](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=8s)** — 2,000 pounds, right? And I had it on what's called the front loader, the front part of the tractor.
+- **[00:12](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=12s)** — I'm going down the hill and there's nothing flat where my farm is. Everything's on angles,
+- **[00:18](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=18s)** — steep angles, cliffs, things like that. So I'm driving down this pathway to this paddock.
+- **[00:25](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=25s)** — And of course my wife said, you probably should let someone else do that. You're not very experienced
+- **[00:31](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=31s)** — in a tractor. I'm like, I can do it. I'm driving down and I have too much weight, too high on the
+- **[00:36](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=36s)** — front of this tractor, driving on a hillside, which is not very stable. So the tractor started
+- **[00:43](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=43s)** — to tip over. At that moment I had what they call a stress event. This is called flight
+- **[00:51](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=51s)** — or fight. Now in flight or fight, you know, you have two options. You can fight or you can
+- **[00:58](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=58s)** — fly, get the heck out of there. And so I chose the flight part, get off the tractor real fast,
+- **[01:03](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=63s)** — try not to kill yourself as the tractor went through the electric fence and off the cliff.
+- **[01:08](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=68s)** — So I experienced stress. So today we're going to dig into this and I'm just using myself
+- **[01:14](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=74s)** — as an example. I was under some severe shock, stress, and what happens in that mode, you have
+- **[01:23](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=83s)** — the flight or fight mechanism kick in. That's part of what's called the autonomic nervous
+- **[01:27](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=87s)** — system. So the word autonomic means involuntary. It happens automatically without your control or
+- **[01:39](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=99s)** — will. Okay. And that's the key point is this word control. You're going to be stressed out
+- **[01:46](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=106s)** — as much as you are out of control in a situation. And you'll be less stressed the more you're in
+- **[01:52](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=112s)** — control. So there are stress states like exercise, you're stressing your body or a jacuzzi
+- **[01:58](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=118s)** — or a cold bath. Those are all stresses, very positive stress. It's going to help you.
+- **[02:03](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=123s)** — But any stress that you are out of control puts you in a bad place. But in my situation,
+- **[02:11](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=131s)** — I had this sudden burst of adrenaline, massive adrenaline that stayed in my bloodstream all day,
+- **[02:17](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=137s)** — as well as cortisol. I was in a state of panic. I was hyperventilating. I was breathing
+- **[02:23](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=143s)** — really fast at the time. My blood pressure went up. My pulse rate went up. I was sweating.
+- **[02:29](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=149s)** — That's what happens when you have this stress event because the autonomic nervous system kicks
+- **[02:33](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=153s)** — in there as a survival mechanism and it starts to alter your physiology and your anatomy to deal
+- **[02:41](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=161s)** — with this stress. First of all, I wanted just to really define the differentiating factor
+- **[02:47](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=167s)** — of this thing that happens when you get stressed out. And that is whether you're in
+- **[02:52](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=172s)** — control or out of control. And that can be with a situation, a condition, a relationship
+- **[02:57](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=177s)** — with a person. It can also be in a relationship where you don't seem to have a lot of control
+- **[03:02](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=182s)** — over the situation. You're really stuck in that relationship and you're not controlling it. It's
+- **[03:08](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=188s)** — controlling you. So in a stress state, you have a lot of these involuntary glandular secretions
+- **[03:15](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=195s)** — and reactions occurring that are below your control. Now, there are two organs in your
+- **[03:24](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=204s)** — body that have both involuntary as well as voluntary control. And the first one is called
+- **[03:31](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=211s)** — the diaphragm. That's the muscle underneath your lungs that allows you to breathe. And if you
+- **[03:38](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=218s)** — are aware when you're in a stress mode, you're usually hyperventilating or your breathing is
+- **[03:43](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=223s)** — always off. It's like... you could be doing that or you can be hyperventilating. And what's
+- **[03:49](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=229s)** — interesting, it's really the imbalance in oxygen and CO2. That's the problem. When you
+- **[04:01](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=241s)** — are in a panic attack, where if you have asthma, you breathe in a paper bag, you're breathing in
+- **[04:07](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=247s)** — more carbon dioxide, which automatically releases the absorption of oxygen, which is interesting.
+- **[04:14](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=254s)** — So anytime you are in a panic attack or a stress event or trying to sleep because you're
+- **[04:19](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=259s)** — too stressed out, you should start to do controlled breathing where you're under total
+- **[04:26](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=266s)** — voluntary breathing control. Slow your breath down, breathe in, breathe out, maybe at a count
+- **[04:35](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=275s)** — of four seconds. You just focus on that. That is very, very powerful to put back in the control
+- **[04:44](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=284s)** — over this whole system and pull yourself out of this reactive fight or fight mode. It's called
+- **[04:53](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=293s)** — the sympathetic nervous system. And that's what I did during this tractor event. As I walked home,
+- **[04:59](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=299s)** — because I had nothing to drive home, I slowly worked on my breathing in and out to pull myself
+- **[05:05](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=305s)** — out of this shock. And the second organ, which is really the skeletal muscles of your body,
+- **[05:12](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=312s)** — the skeletal muscles have reflexes in them that respond to various things. For example,
+- **[05:18](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=318s)** — if you touch a hot stove or like in my case, an electric fence to see if it was alive or not,
+- **[05:25](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=325s)** — I didn't have to think about taking the hand off. It's just an automatic reflex. So that
+- **[05:31](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=331s)** — would be an involuntary skeletal muscle reflex, but you can also voluntarily control
+- **[05:37](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=337s)** — your muscles, right? So this is another thing I would highly recommend when you're in a
+- **[05:41](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=341s)** — stress event. You use your muscles, you either exercise, okay, where you're controlling
+- **[05:47](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=347s)** — your body and or go for a long walk, which is also exercise. You can go for a long walk
+- **[05:53](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=353s)** — and you start moving your muscles, flushing out the adrenaline, the cortisol. So those two things,
+- **[05:58](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=358s)** — I think, are going to be very, very important to quickly pull yourself out of any stress state.
+- **[06:04](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=364s)** — Okay. Now the origin of this autonomic nervous system, which is the flight or fight,
+- **[06:11](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=371s)** — is actually in the brain and it's in the brain stem. That's the part underneath the
+- **[06:16](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=376s)** — rest of the brain. And also it's in the limbic system that's connected to certain emotions.
+- **[06:22](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=382s)** — Of course, when you're experiencing stress, you experience different emotions too, like fear,
+- **[06:27](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=387s)** — anger, that type of thing. But in the brain, okay, the limbic system, and especially
+- **[06:33](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=393s)** — the brain stem, are highly susceptible to a vitamin B1 thiamine deficiency. What does that
+- **[06:42](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=402s)** — mean? It means that if you are deficient in B1, for any reason, those two areas of your brain will
+- **[06:49](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=409s)** — suffer. Okay. And the tissue can even break down. Now it's reversible, but it can break down.
+- **[06:56](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=416s)** — So if you're deficient in B1, the effects that can happen because of this problem in the brain
+- **[07:02](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=422s)** — stem and the limbic system is almost identical to hypoxia. That is a condition where you're
+- **[07:09](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=429s)** — lacking oxygen. There's something about oxygen that is really good, right? I mean,
+- **[07:15](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=435s)** — breathing is really good. So when you are suffocating or let's say you're underwater and
+- **[07:20](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=440s)** — you can't seem to get above water and you can't breathe, you will automatically trigger
+- **[07:25](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=445s)** — the sympathetic nervous system or the stress reflexes. Well, guess what? A B1 deficiency
+- **[07:32](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=452s)** — can mimic a mild version of that of hypoxia. And they call it pseudo hypoxia. And also what
+- **[07:40](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=460s)** — comes along with that is difficulty breathing. And the reason I'm bringing this up is because
+- **[07:44](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=464s)** — I want to emphasize the importance of this B1 in pulling yourself out of a stress state
+- **[07:50](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=470s)** — and preventing stress, especially with your breathing, especially with your nervous system.
+- **[07:57](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=477s)** — Even the condition called SIDS, sudden infant death syndrome, is linked to a B1 deficiency.
+- **[08:04](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=484s)** — And that's a situation where an infant can die in the crib because they stop breathing. So B1
+- **[08:10](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=490s)** — keeps the oxygen high. It keeps you breathing. It keeps you out of the stress mode. So those
+- **[08:17](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=497s)** — are the three things that you should focus on when dealing with stress. I'm just reminding
+- **[08:21](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=501s)** — you of this because you probably already know this, but I wanted to emphasize it. But there's
+- **[08:26](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=506s)** — a lot of things you can do with stress. But when we're talking about a B1 deficiency,
+- **[08:31](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=511s)** — you should really know all of the factors that can create a deficiency.
+- **[08:35](https://www.youtube.com/watch?v=FTAc8IaUWTc&t=515s)** — And for that information, you should watch this video right here.

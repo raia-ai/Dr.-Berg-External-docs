@@ -1,0 +1,97 @@
+# The Nutrient Deficiency That Makes You Short
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=VhJa6F3fEy8](https://www.youtube.com/watch?v=VhJa6F3fEy8)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=0s)** — Today I'd like to discuss the most common micronutrient deficiency that can keep you on the short side.
+- **[00:09](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=9s)** — Personally, growing up, I think my growth was stunted through wrestling.
+- **[00:14](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=14s)** — I wrestled junior high school, high school, and I started college until I fractured my neck.
+- **[00:19](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=19s)** — But for about three years, I actually went through cycles of literally starving myself to make weight.
+- **[00:26](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=26s)** — I think that's the end of my growth. And I'm only 6'2".
+- **[00:28](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=28s)** — Now you might say, well, you're only 6'2", but yeah, but my dad's 6'5", my younger brother is 6'7", my mom is 6'4".
+- **[00:36](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=36s)** — No, I'm just kidding. She's 5'8".
+- **[00:38](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=38s)** — So if you're a teenager and you starve yourself, you know, especially three years in a row, that can have an influence on your nutrition.
+- **[00:45](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=45s)** — Most stunted growth is related to malnutrition.
+- **[00:48](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=48s)** — It is so important in the beginning years of life that you have all the essential nutrients.
+- **[00:53](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=53s)** — I'm talking about protein. I'm talking about vitamins, minerals, healthy fats,
+- **[00:59](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=59s)** — because as this relates to growth and development, not just your height, but organs and tissues.
+- **[01:04](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=64s)** — If you're deficient in iodine, for example, it can affect your cognitive function.
+- **[01:09](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=69s)** — If you're deficient in zinc, you can definitely be shorter as well.
+- **[01:12](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=72s)** — If you have some problem with your pituitary, that's going to affect your height,
+- **[01:16](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=76s)** — because the pituitary controls something called growth hormone.
+- **[01:19](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=79s)** — But generally speaking, girls generally have a growth spurt between 10 years old and 14,
+- **[01:26](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=86s)** — and boys between 12 and 15.
+- **[01:29](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=89s)** — But if we take a look at growth, we're going to talk about all of the things.
+- **[01:32](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=92s)** — We're going to talk about the protein, talk about vitamins and minerals, and we're going to talk about hormones.
+- **[01:37](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=97s)** — Let's start with hormones, OK?
+- **[01:39](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=99s)** — In a child, growth hormone primarily helps you grow.
+- **[01:42](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=102s)** — It helps your bones grow, helps your muscles grow, helps your height.
+- **[01:45](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=105s)** — Then when you become an adult, growth hormone has other functions.
+- **[01:48](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=108s)** — It keeps and preserves protein on your body.
+- **[01:51](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=111s)** — It's anti-aging. It helps you with weight loss.
+- **[01:55](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=115s)** — And there's several things about growth hormone I want to talk about.
+- **[01:57](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=117s)** — Number one, it's stimulated by amino acids protein.
+- **[02:02](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=122s)** — If you're not consuming enough quality protein, your growth hormone can be diminished.
+- **[02:07](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=127s)** — If you have a high sugary diet, if you have high blood glucose, or you have insulin resistance,
+- **[02:13](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=133s)** — If you don't sleep enough, growth hormone is made by your pituitary, goes to your liver,
+- **[02:19](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=139s)** — and then your liver makes insulin-like growth factor number one.
+- **[02:23](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=143s)** — Now this hormone, if deficient, can definitely make you shorter.
+- **[02:26](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=146s)** — And this hormone is also triggered by a good amount of amino acids and zinc.
+- **[02:32](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=152s)** — You know, how could you become deficient in zinc?
+- **[02:34](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=154s)** — Number one, not consuming enough foods high in zinc.
+- **[02:37](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=157s)** — And of all the foods that are high in zinc, we have red meat, other animal meats,
+- **[02:41](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=161s)** — we have fish, shellfish, and there's not a lot of zinc in plant foods,
+- **[02:48](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=168s)** — especially grains, especially corn, especially cassava, especially rice.
+- **[02:55](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=175s)** — And if we just take a look at the country that has the highest zinc deficiency,
+- **[02:59](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=179s)** — that would be in Africa, the Republic of Congo.
+- **[03:02](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=182s)** — And I'm primarily talking about children and mothers.
+- **[03:05](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=185s)** — Now, why would that be?
+- **[03:06](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=186s)** — Because if you look at their diet, it's mostly composed of rice, corn, grains, and cereals.
+- **[03:15](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=195s)** — Now what's the common denominator of all of those?
+- **[03:18](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=198s)** — It's phytic acid.
+- **[03:19](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=199s)** — It's a certain chemical that blocks zinc,
+- **[03:23](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=203s)** — creating a massive zinc deficiency which can affect the immune system.
+- **[03:27](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=207s)** — Okay, what are some other things that can create a deficiency of zinc?
+- **[03:30](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=210s)** — Stress, sugar, eating junk food. That was me.
+- **[03:34](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=214s)** — Now I also mentioned something related to sugar, insulin resistance.
+- **[03:38](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=218s)** — Most of the population has insulin resistance,
+- **[03:40](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=220s)** — and that can create an effect on your growth as well,
+- **[03:43](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=223s)** — because the insulin receptor has another function
+- **[03:46](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=226s)** — that goes beyond just the regulation of blood sugars.
+- **[03:49](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=229s)** — It helps you absorb nutrients.
+- **[03:51](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=231s)** — This is why when someone goes on the ketogenic diet
+- **[03:54](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=234s)** — and starts to repair this insulin resistance,
+- **[03:58](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=238s)** — and now insulin becomes more sensitive,
+- **[04:00](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=240s)** — they start having a healing effect with their muscles.
+- **[04:03](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=243s)** — Another important nutrient is vitamin D.
+- **[04:07](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=247s)** — Vitamin D is another really common deficiency
+- **[04:11](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=251s)** — simply because, first of all, kids don't go outside much anymore.
+- **[04:14](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=254s)** — It's almost impossible to get from your diet.
+- **[04:16](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=256s)** — All the junk food inhibits it,
+- **[04:17](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=257s)** — and the inflammation in our guts block the absorption of vitamin D.
+- **[04:21](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=261s)** — All of these things influence your growth hormone
+- **[04:24](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=264s)** — and your IGF number one, which is the insulin-like growth factor.
+- **[04:27](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=267s)** — So if you have a child that has stunted growth,
+- **[04:29](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=269s)** — I would definitely implement some of these strategies.
+- **[04:33](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=273s)** — And there's one more thing that I used in practice
+- **[04:36](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=276s)** — that seemed to work very well,
+- **[04:39](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=279s)** — because your pituitary is at the heart.
+- **[04:41](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=281s)** — And anything you can do to support the pituitary
+- **[04:43](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=283s)** — would be a good thing.
+- **[04:44](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=284s)** — There is one product that Standard Process
+- **[04:47](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=287s)** — sold when I was in practice that seemed to really work.
+- **[04:51](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=291s)** — It seemed to help children grow a lot more in a short period of time.
+- **[04:55](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=295s)** — It's called pituitrophin PMG.
+- **[04:57](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=297s)** — I would definitely recommend that.
+- **[04:59](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=299s)** — Maybe one before bed for maybe three months,
+- **[05:02](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=302s)** — just to optimize the potential for a child's growth.
+- **[05:06](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=306s)** — Now since we're on the topic of zinc,
+- **[05:08](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=308s)** — there's a lot more to learn.
+- **[05:09](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=309s)** — If you have not seen this very interesting video on zinc,
+- **[05:12](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=312s)** — I put it up right here.
+- **[05:13](https://www.youtube.com/watch?v=VhJa6F3fEy8&t=313s)** — Check it out.

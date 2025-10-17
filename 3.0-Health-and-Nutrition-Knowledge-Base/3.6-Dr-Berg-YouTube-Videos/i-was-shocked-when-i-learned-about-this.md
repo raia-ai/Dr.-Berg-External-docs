@@ -1,0 +1,112 @@
+# I Was Shocked When I Learned About This
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=jhL1mN0uBFw](https://www.youtube.com/watch?v=jhL1mN0uBFw)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=0s)** — I was actually shocked to learn about these forever chemicals. I did a deep dive in this topic and I want to give you a summary of it.
+- **[00:07](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=7s)** — Another name for these are PFAS chemicals. And the reason they call them forever chemicals is they stay in the environment for thousands of years.
+- **[00:14](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=14s)** — They basically slowly poison us. 97% of Americans were tested positive for these PFAS chemicals.
+- **[00:21](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=21s)** — They're in our fat cells. They've been found also in breast milk and especially drinking water.
+- **[00:26](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=26s)** — These chemicals are definitely linked to cancer, hormone problems, especially the thyroid, liver damage, reproductive damage.
+- **[00:32](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=32s)** — However, despite how depressing this topic is, I have a really good solution. These PFAS chemicals are all over the place.
+- **[00:39](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=39s)** — You're exposed to these chemicals using Teflon cookware, food packaging. Firefighters are exposed to it from the foam that they spray.
+- **[00:47](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=47s)** — It's in a lot of canning goods, unfortunately. It's all over the place.
+- **[00:50](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=50s)** — These chemicals were first introduced into our environment in the early 50s or even late 40s.
+- **[00:56](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=56s)** — And of course, you would think there'd be some safety testing going on to allow these chemicals in our environment by either the EPA or the FDA.
+- **[01:03](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=63s)** — But it's not until recently that some of these governmental agencies are doing anything about it.
+- **[01:08](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=68s)** — But my first question was, why were some of these chemicals considered generally recognized as safe?
+- **[01:14](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=74s)** — Well, now I know that that's a loophole that a lot of manufacturer companies use to push their chemicals into the environment by doing their own safety studies and then considering it safe.
+- **[01:24](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=84s)** — I mean, even the testing methods that the FDA use right now, it's like they only identify for six compounds, yet there's over 600 different compounds.
+- **[01:33](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=93s)** — Of course, the EPA, the Environmental Protection Agency, only tests for a fraction of the chemicals compared to all of the chemicals that are out there.
+- **[01:42](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=102s)** — I mean, it wasn't even until the 2020 that the FDA began to phase out voluntary agreement with manufacturing companies to stop using these PFAS chemicals in food packaging.
+- **[01:54](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=114s)** — But they have yet to enforce these bans.
+- **[01:57](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=117s)** — But of course, they're going to go after the farmers with their raw milk. Apparently, that's more dangerous than these forever chemicals.
+- **[02:04](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=124s)** — So the two strategies that I'm going to recommend is to limit the exposure to these chemicals.
+- **[02:10](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=130s)** — And so the greatest exposure right now is from your water supply.
+- **[02:14](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=134s)** — So I want to talk a little bit about that.
+- **[02:16](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=136s)** — The second strategy, which I think is a really good strategy, would be to build up your own body's tolerance for these chemicals.
+- **[02:24](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=144s)** — But first, let's just talk about this water thing.
+- **[02:26](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=146s)** — There's been some great research by the environmental working group, EWG, on forever chemicals.
+- **[02:32](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=152s)** — And what they did is they evaluated 25 PFAS chemicals to see at what percentage these water filters were getting rid of these PFAS forever chemicals.
+- **[02:43](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=163s)** — And they tested quite a few, but there's only three filters that actually work by removing 100% of these chemicals.
+- **[02:49](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=169s)** — And those are the three that I'm going to recommend.
+- **[02:51](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=171s)** — So the first one is called the Travel Berkey Gravity.
+- **[02:55](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=175s)** — This one cost around $327.
+- **[02:57](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=177s)** — So it's a bit expensive.
+- **[02:59](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=179s)** — The next one is called Clearly Filtered.
+- **[03:01](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=181s)** — This is the second most expensive, which is $90.
+- **[03:04](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=184s)** — And the third one is called Zero Water at roughly about $19.
+- **[03:09](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=189s)** — Now, before you invest in anything, let's just take a look at this for a second, because I want you to know how long these water filters last.
+- **[03:16](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=196s)** — Let's take a look at the Zero Water filter for $19.
+- **[03:20](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=200s)** — The filters only last for 20 gallons.
+- **[03:22](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=202s)** — You'd have to buy like 37 filters for the whole year.
+- **[03:25](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=205s)** — So it's going to cost you $646 for the entire year.
+- **[03:29](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=209s)** — Let's talk about the next one.
+- **[03:30](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=210s)** — Clearly Filtered.
+- **[03:32](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=212s)** — OK, it's $90.
+- **[03:33](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=213s)** — Those filters last for 100 gallons.
+- **[03:35](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=215s)** — You're looking at buying about seven filters for the year at a cost of $436.
+- **[03:40](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=220s)** — A little bit cheaper than the Zero Water filter.
+- **[03:43](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=223s)** — Now, let's look at the most expensive filter, the Travel Berkey Gravity filter, which initially cost like $327.
+- **[03:51](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=231s)** — Well, guess how many gallons it filters?
+- **[03:53](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=233s)** — Six thousand.
+- **[03:55](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=235s)** — It's going to last more than eight years.
+- **[03:57](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=237s)** — If you do the math, you're only going to spend like $40 per year.
+- **[04:01](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=241s)** — Most of these chemicals come through your water supply.
+- **[04:04](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=244s)** — It might be a good idea to invest in something to minimize your exposure because they bio accumulate.
+- **[04:10](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=250s)** — These chemicals build up in the body, but they don't come out very easily.
+- **[04:13](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=253s)** — There's still ways to eliminate some of these toxins from the body.
+- **[04:18](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=258s)** — And that's what I want to talk about right now.
+- **[04:20](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=260s)** — Sweating or going into a sauna.
+- **[04:22](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=262s)** — You will be able to get rid of some of these chemicals through the sweating.
+- **[04:26](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=266s)** — Another interesting way to get rid of the chemicals is through a process called autophagy.
+- **[04:31](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=271s)** — Now, autophagy is a condition that you put your body into when you do intermittent fasting and prolonged fasting,
+- **[04:37](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=277s)** — where the body recycle old damaged things, as well as get rid of pathogens.
+- **[04:42](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=282s)** — It can also help get rid of chemicals and also strengthen your body because there's a lot of positive, great things that fasting will do to your cells.
+- **[04:50](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=290s)** — Another thing is infrared helps to detoxify your body as well.
+- **[04:55](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=295s)** — So you can get a lot of infrared being exposed to the sun in the morning and then before the sun sets,
+- **[05:00](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=300s)** — there's infrared saunas, there's infrared devices you can use.
+- **[05:04](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=304s)** — But infrared is one way to detoxify some of these chemicals.
+- **[05:08](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=308s)** — Also, spirulina and chlorella.
+- **[05:11](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=311s)** — They're like this algae that has properties to detoxify chemicals.
+- **[05:16](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=316s)** — And now let's talk about strengthening your body, your biochemistry.
+- **[05:20](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=320s)** — You naturally have all these amazing things in your body that help you get rid of poisons.
+- **[05:26](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=326s)** — They're called detoxification enzymes.
+- **[05:28](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=328s)** — And so strengthening your body's ability to detoxify is going to be very, very important.
+- **[05:33](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=333s)** — And so anything that has sulfur in it is going to help you.
+- **[05:37](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=337s)** — And that would be like eggs, for example, garlic and especially onion.
+- **[05:41](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=341s)** — But these sulfur based compounds will greatly help you detoxify.
+- **[05:45](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=345s)** — And you also have the cruciferous vegetables.
+- **[05:48](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=348s)** — Cabbage, broccoli, Brussels sprouts.
+- **[05:50](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=350s)** — Not only are high in sulfur, but they have many other antioxidants that can help the detoxification process.
+- **[05:56](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=356s)** — And of course, the amino acid that's going to be really important in strengthening your glutathione is glutamine.
+- **[06:03](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=363s)** — Well, take a while, guess what has the most glutamine.
+- **[06:05](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=365s)** — Red meat, the thing that they tell you to start avoiding.
+- **[06:09](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=369s)** — Glycine is also important and you can get that in collagen, which happens to be also in red meat.
+- **[06:14](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=374s)** — If you're consuming nose to tail, you're eating bone broth or beef collagen.
+- **[06:19](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=379s)** — So one of the meals that I normally eat a lot of, which happens to be a really good detox meal,
+- **[06:25](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=385s)** — would be I have some steak or some burger patty.
+- **[06:27](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=387s)** — And the cruciferous that I like the most is cabbage.
+- **[06:30](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=390s)** — And to take it one step further, we could ferment the cabbage.
+- **[06:33](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=393s)** — Why would we want to do that? Because probiotics also help eliminate these forever chemicals.
+- **[06:38](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=398s)** — But only if that sauerkraut is raw, because when you pasteurize it, you kill all the microbes.
+- **[06:43](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=403s)** — Now, if we have the difference between green cabbage and red cabbage,
+- **[06:47](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=407s)** — do the red cabbage because then we have some added antioxidants.
+- **[06:51](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=411s)** — We can start to avoid the exposure to these chemicals, but it's really, really hard to be in an environment that's toxic free.
+- **[06:58](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=418s)** — Why not beef up these biochemical pathways?
+- **[07:00](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=420s)** — And there's some really key nutrients to do that.
+- **[07:04](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=424s)** — And I'm going to list them right now.
+- **[07:05](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=425s)** — Selenium, iodine, copper. The trace minerals are really, really important.
+- **[07:09](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=429s)** — Where do these trace minerals come from?
+- **[07:10](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=430s)** — You can get them from seafood, shellfish, and you guessed it, grass fed red meat.
+- **[07:16](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=436s)** — Because these forever chemicals do affect the thyroid, you really want to make sure you have enough iodine and selenium.
+- **[07:22](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=442s)** — Selenium you can get from Brazil nuts, and you can also get it from shellfish and oysters.
+- **[07:26](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=446s)** — I just gave you a series of things you should start right now.
+- **[07:29](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=449s)** — But I wanted to put this on your radar just because, unfortunately, you're being slowly poisoned.
+- **[07:35](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=455s)** — Now you know what to do about it.
+- **[07:36](https://www.youtube.com/watch?v=jhL1mN0uBFw&t=456s)** — Thanks for watching, and I will see you in the next video.

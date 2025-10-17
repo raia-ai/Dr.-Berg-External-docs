@@ -1,0 +1,119 @@
+# How to Lose Weight WITHOUT Dieting
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=h6rjL0Lxn3Q](https://www.youtube.com/watch?v=h6rjL0Lxn3Q)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=0s)** — How to lose weight without changing your diet one bit.
+- **[00:05](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=5s)** — Let's first talk about exercise. Jumping rope.
+- **[00:08](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=8s)** — At rest, you're burning about 50 calories, but when you're jumping rope,
+- **[00:11](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=11s)** — you burn about 560 calories per hour.
+- **[00:15](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=15s)** — One pound of fat is 3,500 calories.
+- **[00:18](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=18s)** — You would have to jump rope for 5.3 hours to burn one pound of fat.
+- **[00:24](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=24s)** — Let's say we wanted to walk off one pound of fat.
+- **[00:26](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=26s)** — You burn 340 an hour walking briskly, which means you would need to walk 10.2 hours.
+- **[00:32](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=32s)** — Next activity is laughing. For every 10 minutes of laughing,
+- **[00:36](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=36s)** — you can burn off an extra 40 calories. To burn off one pound of fat,
+- **[00:40](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=40s)** — you're going to have to laugh for about 14 and a half hours.
+- **[00:43](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=43s)** — Let's move on to the next one. Fidgeting.
+- **[00:45](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=45s)** — You can actually burn an extra 50 calories per hour.
+- **[00:49](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=49s)** — Just by fidgeting for 70 hours, you can burn off one pound of fat.
+- **[00:53](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=53s)** — Moving right along to the ice bath. When you go into an ice bath,
+- **[00:55](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=55s)** — for 15 minutes, you can burn an extra 250 calories.
+- **[01:01](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=61s)** — But if you're between, let's say, 45 to 50 degrees Fahrenheit,
+- **[01:05](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=65s)** — spending 14 sessions, which is basically doing it every day for two weeks,
+- **[01:10](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=70s)** — you could potentially lose one pound of fat.
+- **[01:13](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=73s)** — The reason why you burn fat is your body has to maintain this core temperature.
+- **[01:17](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=77s)** — So it's going to do whatever it can to keep you warm,
+- **[01:20](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=80s)** — and it's going to generate a lot of heat.
+- **[01:22](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=82s)** — And that's how you burn calories when you do the ice bath.
+- **[01:25](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=85s)** — You'll actually hear that if you breathe faster,
+- **[01:29](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=89s)** — okay, you can even burn more calories.
+- **[01:31](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=91s)** — To burn one pound of fat, you're going to have to breathe deeply for about 291 hours.
+- **[01:37](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=97s)** — Let's get to the next one. Sex. That's right, you can burn more calories with sex.
+- **[01:41](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=101s)** — You can actually burn four calories per minute.
+- **[01:44](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=104s)** — For every one hour of sex, you are burning 200 extra calories.
+- **[01:50](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=110s)** — So if you wanted to burn an extra pound of fat,
+- **[01:52](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=112s)** — you'd have to spend 14.58 hours of constant sex to burn off that one pound.
+- **[01:59](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=119s)** — Donating blood... when you donate blood, your body has to then make up that loss of blood.
+- **[02:05](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=125s)** — So it has to generate more energy to make up that blood.
+- **[02:08](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=128s)** — And so you can burn up an extra 350 calories.
+- **[02:11](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=131s)** — In 14 sessions of donating blood, you can lose a pound of fat.
+- **[02:14](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=134s)** — As you're probably realizing, it's going to be very difficult to lose even one pound of fat
+- **[02:19](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=139s)** — without changing your diet.
+- **[02:22](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=142s)** — On top of that, if you're adding certain foods that you shouldn't be eating,
+- **[02:25](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=145s)** — Big Mac or fries or a Coke, think about how many extra calories
+- **[02:29](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=149s)** — that you're going to have to add on top of all these other things that you're doing
+- **[02:33](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=153s)** — that are going to make it very difficult to lose any weight.
+- **[02:37](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=157s)** — If one slice of pizza is 285 calories, well, you can run three miles to burn that off.
+- **[02:42](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=162s)** — If the Big Mac is 550 calories, you can bike for an hour to burn that off.
+- **[02:46](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=166s)** — But we're not talking about weight loss. We're just talking about breaking even.
+- **[02:49](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=169s)** — And that soda that's 270 calories, that's doing Zumba for 45 minutes.
+- **[02:55](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=175s)** — Just to break even, unfortunately, 15% of all the activities that I just mentioned
+- **[03:01](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=181s)** — contribute to your actual weight loss.
+- **[03:05](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=185s)** — Whereas 85% of the results from weight loss come from diet.
+- **[03:09](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=189s)** — You're going to have to change your diet. There is no other way.
+- **[03:13](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=193s)** — You cannot exercise your way out of a poor diet.
+- **[03:16](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=196s)** — I love exercise. I recommend it. I do it.
+- **[03:18](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=198s)** — But not necessarily for weight loss.
+- **[03:21](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=201s)** — What you get from exercise is higher fitness.
+- **[03:24](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=204s)** — You get better muscle tone.
+- **[03:26](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=206s)** — You get tremendous health benefits, but not necessarily a lot of weight loss.
+- **[03:32](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=212s)** — And unfortunately, when you see people to gym week after week,
+- **[03:35](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=215s)** — trying to exercise off their stomach or trying to lose weight with exercise,
+- **[03:39](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=219s)** — it's very tempting for me to go up to them to give them some advice.
+- **[03:43](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=223s)** — But since you're watching the video, I want to give you some advice.
+- **[03:46](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=226s)** — If you want to lose actual fat, okay, we're talking about fat, not just water weight.
+- **[03:51](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=231s)** — There's one really important thing you need to do.
+- **[03:54](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=234s)** — We have to keep insulin low.
+- **[03:56](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=236s)** — But the cool thing about doing that is your appetite and your cravings will go away.
+- **[04:01](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=241s)** — That'll make it really easy to do and stick with.
+- **[04:04](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=244s)** — Because if you don't do that, you're going to have a massive struggle
+- **[04:07](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=247s)** — trying to lose weight with being hungry all the time with cravings.
+- **[04:12](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=252s)** — And that is torturous.
+- **[04:14](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=254s)** — To reduce insulin, you must go on a low carb diet, the ketogenic diet,
+- **[04:19](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=259s)** — where the primary thing you do is just lower your carbohydrates, not just sugar.
+- **[04:24](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=264s)** — You're going to have to look at the label and make sure they're between 20 and 30 grams
+- **[04:30](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=270s)** — for the entire day.
+- **[04:32](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=272s)** — But it's very important to point out that we're not just talking about sugar.
+- **[04:35](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=275s)** — We're talking about carbohydrate, which includes sugar.
+- **[04:39](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=279s)** — And starches are those hidden sugars that will keep you from losing weight.
+- **[04:42](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=282s)** — That would be the bread, pasta, cereal, crackers, biscuits,
+- **[04:45](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=285s)** — and ingredients like maltodextrin, wheat flour.
+- **[04:48](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=288s)** — Some people get rid of all the carbs.
+- **[04:51](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=291s)** — They just eat meat, eggs, fish, cheese.
+- **[04:55](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=295s)** — That's called carnivore. They don't have any plants.
+- **[04:58](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=298s)** — It's very simple to do and they'll lose a lot of weight
+- **[05:00](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=300s)** — because they're bringing their carbs down to zero.
+- **[05:03](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=303s)** — We can also add in one more powerful thing
+- **[05:06](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=306s)** — to put your fat burning in hyper warp speed.
+- **[05:09](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=309s)** — That is intermittent fasting.
+- **[05:11](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=311s)** — Because as you lower your carbs, it's going to be easier to stick with it
+- **[05:15](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=315s)** — because you're going to lose your appetite.
+- **[05:17](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=317s)** — And then if you just eat when you're hungry,
+- **[05:19](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=319s)** — you're going to be able to go longer without eating
+- **[05:21](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=321s)** — because you're going to lose your appetite.
+- **[05:22](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=322s)** — You may find that one day you just are hungry for one meal.
+- **[05:25](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=325s)** — And the next day, maybe it's two meals.
+- **[05:28](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=328s)** — But then the following day, you're not even hungry at all.
+- **[05:31](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=331s)** — So you're literally going a couple days without even eating a meal.
+- **[05:35](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=335s)** — When you do intermittent fasting or prolonged fasting,
+- **[05:38](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=338s)** — you are definitely not starving yourself.
+- **[05:40](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=340s)** — You are living off of your own fat.
+- **[05:43](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=343s)** — This is how you burn fat and you fix a lot of other health problems.
+- **[05:47](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=347s)** — Your inflammation goes down.
+- **[05:48](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=348s)** — If you have high blood pressure, that'll start going down.
+- **[05:51](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=351s)** — Diabetes, that will kind of come back to normal.
+- **[05:54](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=354s)** — Depression, that will lift up and you'll feel better.
+- **[05:57](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=357s)** — If you were fatigued, now you have energy.
+- **[06:00](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=360s)** — What you need to know is carbohydrates block fat burning.
+- **[06:04](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=364s)** — They block weight loss.
+- **[06:06](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=366s)** — Trying to lose weight with exercise and these other activities
+- **[06:09](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=369s)** — is really only going to be a tiny piece of that puzzle.
+- **[06:13](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=373s)** — Full circle.
+- **[06:14](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=374s)** — Is it possible to lose weight without changing your diet?
+- **[06:19](https://www.youtube.com/watch?v=h6rjL0Lxn3Q&t=379s)** — The answer is yes, but it's only a tiny bit of weight.

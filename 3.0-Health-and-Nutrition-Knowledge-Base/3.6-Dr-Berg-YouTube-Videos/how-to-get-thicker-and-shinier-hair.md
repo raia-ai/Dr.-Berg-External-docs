@@ -1,0 +1,115 @@
+# How to Get Thicker and Shinier Hair
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=6CCI1vz1bAc](https://www.youtube.com/watch?v=6CCI1vz1bAc)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=0s)** — The number one super food for your hair. There's going to be four foods we're going to cover.
+- **[00:04](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=4s)** — The fourth one is going to be the most important one if you want to get your hair back.
+- **[00:07](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=7s)** — Let's start with number one first.
+- **[00:09](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=9s)** — Bamboo shoots. Now you're probably saying bamboo shoots, like you can eat that?
+- **[00:14](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=14s)** — Yes, they have different forms. You can get it canned. You can buy it online.
+- **[00:17](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=17s)** — Bamboo shoots not only are very high in potassium and trace minerals,
+- **[00:22](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=22s)** — they are very high in something called silica. Silica is essential to build up the hair protein.
+- **[00:28](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=28s)** — Silica can make your hair strong, elastic. It can prevent it from breaking.
+- **[00:33](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=33s)** — It gets rid of the brittleness in hair, but also it helps your skin too.
+- **[00:37](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=37s)** — It's great for wrinkles. It's even good for your joints.
+- **[00:40](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=40s)** — It can help strengthen your bones as well.
+- **[00:42](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=42s)** — Number two, wild-caught salmon.
+- **[00:45](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=45s)** — Now, of course, salmon is loaded with nutrition, great protein,
+- **[00:48](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=48s)** — but salmon is known for its high levels of omega-3 fatty acids.
+- **[00:51](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=51s)** — The other cool thing about wild-caught salmon is that it's loaded with vitamin D3.
+- **[00:55](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=55s)** — Nearly every single problem with hair loss can be improved with vitamin D3.
+- **[01:00](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=60s)** — Especially part of the root of the hair where you have this follicle,
+- **[01:03](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=63s)** — vitamin D controls that whole environment.
+- **[01:05](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=65s)** — It actually can activate dormant hair follicle stem cells.
+- **[01:10](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=70s)** — This will increase the density of your hair.
+- **[01:12](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=72s)** — So sometimes people will have thinning of the hair.
+- **[01:14](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=74s)** — This is what they need to consume more of.
+- **[01:16](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=76s)** — Let's move to number three, egg yolks.
+- **[01:19](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=79s)** — What's in an egg yolk? Egg yolks are loaded with something called biotin
+- **[01:22](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=82s)** — and people take biotin to help their hair.
+- **[01:24](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=84s)** — It's a necessary thing.
+- **[01:26](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=86s)** — So if you don't have enough biotin, you can't even make keratin.
+- **[01:29](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=89s)** — Keratin makes up the hair, improving the shaft of the hair
+- **[01:32](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=92s)** — and make sure that it's strong so you don't have this thinning hair
+- **[01:36](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=96s)** — that is falling out that's fragile and weak and it can break easily.
+- **[01:40](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=100s)** — On top of that, egg yolks have all the fat soluble nutrients,
+- **[01:43](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=103s)** — which are really important to support hair growth
+- **[01:45](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=105s)** — and the structure of the hair itself.
+- **[01:48](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=108s)** — The other important thing about the egg yolk is it's loaded with cholesterol.
+- **[01:51](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=111s)** — Now you might think, oh, that's a bad thing.
+- **[01:53](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=113s)** — No. Cholesterol is the precursor for all of the key hormones
+- **[01:57](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=117s)** — that you need for your hair.
+- **[01:58](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=118s)** — If those are not correctly produced or regulated in the right amounts
+- **[02:03](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=123s)** — because you don't have enough cholesterol, that can affect the hair.
+- **[02:06](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=126s)** — Also, it'll make it shiny, give it that luster,
+- **[02:08](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=128s)** — help strengthen the actual shaft of the hair as well.
+- **[02:11](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=131s)** — Plus, eggs are loaded with sulfur.
+- **[02:14](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=134s)** — Sulfur can also help the scalp of the hair
+- **[02:17](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=137s)** — and that is kind of like the soil for the hair to grow into.
+- **[02:20](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=140s)** — And then of course, egg yolks also have vitamin D,
+- **[02:23](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=143s)** — which I've already talked about.
+- **[02:24](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=144s)** — Now let's get to number four,
+- **[02:26](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=146s)** — which is the most important food that you could possibly eat
+- **[02:29](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=149s)** — for hair growth and other benefits of your hair.
+- **[02:32](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=152s)** — And this is grass-fed liver.
+- **[02:35](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=155s)** — Now you can do beef liver, lamb liver,
+- **[02:38](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=158s)** — but if you don't like liver, you can get these in capsules.
+- **[02:41](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=161s)** — Or if you can find a good recipe, cook it with onions.
+- **[02:43](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=163s)** — The absolute most concentrated nutrient-dense food
+- **[02:47](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=167s)** — that you could possibly consume.
+- **[02:49](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=169s)** — It has virtually every single nutrient in very high amounts,
+- **[02:53](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=173s)** — super high amounts of iron.
+- **[02:56](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=176s)** — Iron is necessary to help transport oxygen to your scalp.
+- **[03:00](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=180s)** — The most common cause of hair shedding is an iron deficiency.
+- **[03:06](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=186s)** — There's two ways to get an iron deficiency in your blood.
+- **[03:09](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=189s)** — Number one is to be deficient in iron,
+- **[03:12](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=192s)** — which beef liver can satisfy really quickly.
+- **[03:15](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=195s)** — But also if you're deficient in copper,
+- **[03:18](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=198s)** — that won't allow the iron to work correctly in the red blood cell
+- **[03:23](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=203s)** — to feed the hair oxygen.
+- **[03:26](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=206s)** — Well, guess what?
+- **[03:27](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=207s)** — Beef liver is loaded with copper as well.
+- **[03:30](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=210s)** — And not just copper, zinc in the right ratios.
+- **[03:34](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=214s)** — And zinc is very, very important in preventing
+- **[03:37](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=217s)** — the more powerful form of testosterone called DHT
+- **[03:41](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=221s)** — that has a tendency to burn out your hair and cause hair loss.
+- **[03:44](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=224s)** — Zinc can help prevent that.
+- **[03:45](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=225s)** — Zinc also is necessary in the formation of creating hair
+- **[03:50](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=230s)** — and protein synthesis, especially for your hair.
+- **[03:54](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=234s)** — Beef liver is loaded with folate.
+- **[03:56](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=236s)** — And B12 and copper help reduce the graying effect of your hair
+- **[04:02](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=242s)** — just as an FYI.
+- **[04:03](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=243s)** — Of course, the folate and the B12 are in the best form available.
+- **[04:07](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=247s)** — The iron in beef liver is a heme type iron.
+- **[04:10](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=250s)** — It's so much more bioavailable than any iron you can get from plants
+- **[04:15](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=255s)** — or supplements.
+- **[04:17](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=257s)** — And on top of that, beef liver is loaded with the most bioavailable
+- **[04:22](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=262s)** — form of vitamin A.
+- **[04:24](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=264s)** — Not the pre-chris or beta-carotene,
+- **[04:26](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=266s)** — but the active form of vitamin A called retinol.
+- **[04:29](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=269s)** — And vitamin A is essential for allowing vitamin D to work
+- **[04:33](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=273s)** — because vitamin D is also in liver.
+- **[04:36](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=276s)** — And we know the importance of vitamin D in hair growth
+- **[04:38](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=278s)** — through helping regulate sebum, which is the oil on the gland
+- **[04:41](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=281s)** — to make your hair look very, very healthy
+- **[04:43](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=283s)** — and to prevent this drying out effect of your hair.
+- **[04:46](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=286s)** — And we also have another thing in liver called biotin.
+- **[04:49](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=289s)** — I've already talked about that.
+- **[04:51](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=291s)** — Biotin will help increase the structure of the hair, the shaft.
+- **[04:54](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=294s)** — So your hair becomes thicker, stronger, more elastic, fuller look,
+- **[04:59](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=299s)** — as well as the growth of hair itself.
+- **[05:01](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=301s)** — And getting biotin from grass-fed liver is way better
+- **[05:05](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=305s)** — than getting it from a supplement.
+- **[05:07](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=307s)** — If you had an antibiotic and all of a sudden your hair starts
+- **[05:11](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=311s)** — becoming a problem, then you need more biotin
+- **[05:14](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=314s)** — or actually you need more grass-fed liver.
+- **[05:16](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=316s)** — Anyway, I wanted to keep this video real short,
+- **[05:18](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=318s)** — but I wanted to give you some really important foods for the hair.
+- **[05:21](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=321s)** — And now, you know, the most important one.
+- **[05:23](https://www.youtube.com/watch?v=6CCI1vz1bAc&t=323s)** — Thanks for watching and I will see you in the next video.

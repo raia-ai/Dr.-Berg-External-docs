@@ -1,0 +1,131 @@
+# The 10 Root Causes of Inflammation - Dr. Berg
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=u0TpL4HwcMA](https://www.youtube.com/watch?v=u0TpL4HwcMA)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=0s)** — Let's talk about inflammation. Most of the inflammation that a person has actually is being
+- **[00:05](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=5s)** — caused by their own immune system. And we really have just two basic phases of inflammation. You
+- **[00:11](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=11s)** — have the acute phase and then you have the chronic phase where you have this incomplete healing.
+- **[00:17](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=17s)** — Inflammation is there to try to heal something but if there's a constant stimulus, which I'm
+- **[00:22](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=22s)** — going to cover all of them today, you're not going to get to a point where you can actually
+- **[00:25](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=25s)** — resolve it. So I want to cover all of the different things that can occur and then I'm going
+- **[00:29](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=29s)** — to cover all the things that you should do to resolve it. The number one selling drug in the
+- **[00:34](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=34s)** — world is an anti-inflammatory drug. So a lot of people have inflammation but most autoimmune
+- **[00:40](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=40s)** — cases actually originate in the gut. I did a separate video on that. If you didn't see that,
+- **[00:45](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=45s)** — I will put that down below. But let's start with number one. Gluten. Okay, that's in
+- **[00:49](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=49s)** — grains. Gluten really tears your stomach up. There's a morphine-like substance when you have
+- **[00:55](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=55s)** — this immune reaction. So in reality it can numb the area so you don't feel it while the damage
+- **[01:01](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=61s)** — goes on. And I'm talking about damage in the gut lining to the point where you start getting
+- **[01:05](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=65s)** — leaky gut and then we have particles of protein from your food that can invade
+- **[01:11](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=71s)** — through this immigration and bypass this immigration wall, go right into the lymphatic
+- **[01:17](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=77s)** — system and boom, now we get this immune reaction. So gluten is behind so many
+- **[01:22](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=82s)** — issues. Okay, and then we also have food allergies like intolerance to milk sugar,
+- **[01:27](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=87s)** — but that's not necessarily a true allergy. A true allergy involves a protein like an allergy
+- **[01:32](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=92s)** — to casein which is a protein in milk. So just by taking a person off milk, boy, all sorts
+- **[01:38](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=98s)** — of things can clear up. Number two. Ultra-processed food ingredients. Now yes,
+- **[01:44](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=104s)** — you have the artificial colorings and artificial flavorings and the preservatives and all that
+- **[01:48](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=108s)** — and other chemicals which may create a lot of irritation and problems, but not to the
+- **[01:54](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=114s)** — degree that these three ingredients do that are made from industrial processed corn. Okay,
+- **[01:59](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=119s)** — they go through a huge series of chemical reactions to the point where they no longer
+- **[02:05](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=125s)** — resemble the original corn and then you put that in your body and you're going to get a
+- **[02:09](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=129s)** — lot of what's called free radical damage. In vision just spinning it like a plate right now
+- **[02:14](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=134s)** — on my finger. It's spinning around and we have these little weights on it, right? And if
+- **[02:18](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=138s)** — I took a couple weights off it would be lopsided. It's not going to spin correctly. It's going to
+- **[02:24](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=144s)** — fall off and might just create some damage wherever that is. So that's what a free radical
+- **[02:27](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=147s)** — is. I don't want to get distracted. Synthetic sugar is bad. You've heard of corn starch and
+- **[02:32](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=152s)** — maybe modified food starch. This maltodextrin. Highly reactive in the body and so it behaves
+- **[02:37](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=157s)** — like a sugar, but it's classified as a starch. And then we have the deadly seed oils which
+- **[02:43](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=163s)** — are again highly refined. Here you take this omega-6 unsaturated fat which is very unstable.
+- **[02:52](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=172s)** — And then you're going to put it under heat. What keeps it stable in that food? I mean it's
+- **[02:59](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=179s)** — literally dead. People think of, you know, alter processed foods or junk foods are like the
+- **[03:04](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=184s)** — saturated fat in a burger, for example. Well, a lot of people do dirty keto and they go to a
+- **[03:13](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=193s)** — seem to do okay, you know. It's the bun with the burger and the ketchup and the soda and the
+- **[03:21](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=201s)** — fries all together that creates the problem. And this is why if you're trying to heal the
+- **[03:26](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=206s)** — body and get rid of inflammation, you don't want to keep consuming these seed oils.
+- **[03:30](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=210s)** — You want to get on the saturated fats. Those are the ones that are stable. You want to cook
+- **[03:34](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=214s)** — with tail-o. You want to use coconut oil, extra virgin olive oil. You don't want to use
+- **[03:40](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=220s)** — especially when you use heat. All right, number three, viruses. A lot of people have
+- **[03:48](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=228s)** — certain inflammatory conditions that come and go. That's because a virus kind of can go in
+- **[03:54](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=234s)** — remission and out of remission. It could be triggered by your menstrual cycle. It could be
+- **[03:57](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=237s)** — triggered by stress. And so stress is a huge factor in this topic. So we're really dealing
+- **[04:04](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=244s)** — with this hormone called cortisol because if you were to raise your stress, the cortisol
+- **[04:09](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=249s)** — comes up. Cortisol actually suppresses your immune system. So it kind of shuts it down
+- **[04:15](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=255s)** — and it allows this pathogen, this virus, to come out and wreak havoc to create problems.
+- **[04:24](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=264s)** — So stress puts your immune system to sleep. There's people that have major losses and that
+- **[04:30](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=270s)** — can really create a huge problem with viruses come out of remission. And here they're
+- **[04:34](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=274s)** — taking all these vitamins and they're taking, eating really good foods. It's not working
+- **[04:38](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=278s)** — because of this darn stress situation that they're in. One thing that can help with this
+- **[04:44](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=284s)** — is vitamin D because viruses also have a very sneaky strategy of blocking vitamin D in your
+- **[04:53](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=293s)** — body. But vitamin D is very important for viruses. Zinc is also important as well.
+- **[04:58](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=298s)** — All right, number four, insulin resistance. Okay, if you're doing a lot of snacks,
+- **[05:03](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=303s)** — frequent eating, and you're doing carbs, you can get insulin resistance. Most of the
+- **[05:06](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=306s)** — population has insulin resistance. When I used to have insulin resistance, boy, I had arthritis
+- **[05:12](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=312s)** — all up and down my spine. So much worse than it is now. I mean, I could barely feel it now,
+- **[05:16](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=316s)** — but so many people have told me once they get on keto and they do intermittent fasting,
+- **[05:21](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=321s)** — their inflammation goes away. I mean, you should just know about that. The next one is
+- **[05:24](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=324s)** — just not enough cortisol. Let's say, for example, you went through chronic stress for
+- **[05:28](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=328s)** — many years or you had prednisone for a period of time. What happens, you develop what's
+- **[05:34](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=334s)** — called a cortisol resistance to the point where you don't have enough cortisol,
+- **[05:38](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=338s)** — and then the body becomes inflamed. And the remedy is vitamin D. Number six, old injuries.
+- **[05:45](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=345s)** — And that is me. Okay, I had a lot of old injuries and it really has to do with a
+- **[05:50](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=350s)** — lack of motion. If a joint doesn't move, or if you don't move your sedentary, you will
+- **[05:56](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=356s)** — develop inflammation. Arthritics need to keep moving. I do a tremendous amount of exercise
+- **[06:02](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=362s)** — for that reason. That's what really forces me to get out there. I do massive exercise and when
+- **[06:07](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=367s)** — I do that, I feel so good, especially if I run up hills and things because I can
+- **[06:11](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=371s)** — expand my chest, which opens up the back part of the thoracic spine, the neck,
+- **[06:17](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=377s)** — it just feels great. All right, next one. Sludge in your bile ducts. A super concentrated
+- **[06:24](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=384s)** — cholesterol material. Okay, what keeps it from becoming a stone is bile salts. And when it
+- **[06:33](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=393s)** — starts to get stuck in your bile ducts, it backs up into the liver and causes pain in
+- **[06:38](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=398s)** — the right shoulder or in your rhomboid back here or in your neck. That can be corrected
+- **[06:44](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=404s)** — by a healthy diet. The next one is iron. Too much iron. Some people feel so much better
+- **[06:51](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=411s)** — when they get blood because they have a genetic problem that they retain too much iron, especially
+- **[06:58](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=418s)** — men. One thing about iron, it doesn't get out of the body very easily. So if you're consuming
+- **[07:03](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=423s)** — like supplements, you might not even connect the dots, but that can be the reason why you
+- **[07:10](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=430s)** — feel worse. One way to know too is if you maybe consume a lot of red meat and you just
+- **[07:14](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=434s)** — feel worse from that because there's a lot of iron. That's just one thing or you eat liver
+- **[07:17](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=437s)** — and you feel worse. It's not very common. Most people feel better when they do red meat.
+- **[07:22](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=442s)** — All right, next one. I want to expand on this hypoxia situation. This is the lack of oxygen.
+- **[07:27](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=447s)** — If you have a chronic obstructive pulmonary disease, COPD, in your lungs, you can have
+- **[07:33](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=453s)** — hypoxia. You're not getting the oxygen. Hypoxia causes inflammation because here you
+- **[07:38](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=458s)** — have this hemoglobin that carries oxygen, right? If you don't have enough iron or B12 to
+- **[07:45](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=465s)** — hold that oxygen, you become anemic and that is a form of hypoxia. And then of course injuries
+- **[07:52](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=472s)** — create hypoxia. It's the roses of the liver that would create a hypoxia situation
+- **[07:56](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=476s)** — or even a clogged artery. Okay, there's a really good remedy and I might as well just
+- **[08:02](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=482s)** — tell you right now it's called toketrinols. It's a type of vitamin E to help donate
+- **[08:06](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=486s)** — electrons to all the oxidation and it's a good remedy for getting rid of the inflammation
+- **[08:12](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=492s)** — in the inside of the arteries. But toketrinols are better than the tocopherols.
+- **[08:16](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=496s)** — So don't get the one that's mixed. Another thing, sleep apnea can cause hypoxia because
+- **[08:24](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=504s)** — you're not breathing as much, right? It can affect the kidney, it can affect the brain,
+- **[08:27](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=507s)** — it can affect a lot of things. All right, then the next one is uric acid. It's one of the
+- **[08:32](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=512s)** — main causes of high blood pressure and it comes from consuming a lot of fructose as in
+- **[08:37](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=517s)** — corn syrup. What can you do about this, right? You need to fix the microbes in the gut. The
+- **[08:44](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=524s)** — lactobacillus and the bifidobacteria. And you can find those too in kefir, sauerkraut,
+- **[08:52](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=532s)** — kimchi, and just getting a probiotic. All right, the next thing, and this is really
+- **[08:57](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=537s)** — important, is to build up your endogenous antioxidants. The word endogenous means from
+- **[09:03](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=543s)** — So let's go through a couple things to do that. Fasting. Next one,
+- **[09:10](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=550s)** — exercise. Another thing is cold therapy. Next one on the list is vitamin D3, the most potent
+- **[09:17](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=557s)** — anti-inflammatory. Vitamin D can just put some order into your immune system. It can help
+- **[09:24](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=564s)** — regulate that immune system a lot better. And at least 10 to 20,000 IUs. All right,
+- **[09:31](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=571s)** — number four, I already mentioned this, fasting. You should be doing regular intermittent fasting
+- **[09:35](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=575s)** — and periodic prolonged fasting if you have any inflammation. Number five, low carb. This is
+- **[09:41](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=581s)** — called keto. Number six, carnivore if you have got inflammation. Really, red meat is probably
+- **[09:47](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=587s)** — the most healing thing that you can possibly eat. And I'm talking about grass-fed grass
+- **[09:53](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=593s)** — finished. Now the next one on the list, I talked about that bile sludge. The antidote to
+- **[09:58](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=598s)** — that is something called Tudkuff. Take two in the morning, two in the afternoon, empty stomach.
+- **[10:03](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=603s)** — It will open up those ducts and allow the sludge to get through and give you a tremendous
+- **[10:09](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=609s)** — amount of relief, especially if you have bloating or this right shoulder pain. Next one
+- **[10:14](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=614s)** — is tocatrinols. I already talked about that. Great for anything related to the heart. I
+- **[10:19](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=619s)** — already mentioned cold therapy as well. That's number nine. And I also mentioned number 10,
+- **[10:23](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=623s)** — stretching and exercise. And 11, omega-3 fatty acids, fish oils. I recommend the
+- **[10:29](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=629s)** — cod liver oil because it has the vitamin A and the vitamin D. If you compare the seed oils,
+- **[10:33](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=633s)** — the omega-6 to the omega-3, the cod liver oil, the fish oil, the salmon, or sardines,
+- **[10:40](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=640s)** — they both compete for the same enzyme. To get the omega-3, you need to stop the omega-6.
+- **[10:47](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=647s)** — You need omega-6, but you don't need as much. Now since we talked a lot about cortisol,
+- **[10:52](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=652s)** — I have a list of every single possible thing, natural thing that you can do to help
+- **[10:59](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=659s)** — normalize cortisol. If you want that download,
+- **[11:03](https://www.youtube.com/watch?v=u0TpL4HwcMA&t=663s)** — click the link down below right now and check it out. It's pretty cool.

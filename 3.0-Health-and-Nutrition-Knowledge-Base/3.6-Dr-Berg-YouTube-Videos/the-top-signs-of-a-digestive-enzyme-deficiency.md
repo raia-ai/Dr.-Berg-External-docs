@@ -1,0 +1,155 @@
+# The Top Signs of a Digestive Enzyme Deficiency
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=GRtkgrBHySQ](https://www.youtube.com/watch?v=GRtkgrBHySQ)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=0s)** — Let's talk about enzymes. What would be the number one symptom that you would get if you were
+- **[00:05](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=5s)** — deficient in digestive enzymes? You're really dealing with about five different pieces of
+- **[00:11](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=11s)** — this puzzle that you have to understand. You have the stomach, you have the pancreas, you have the
+- **[00:16](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=16s)** — gallbladder. Even though the gallbladder does not produce enzymes, it's involved in enzymes. And
+- **[00:22](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=22s)** — you have the small intestine and you have the large intestine. So let's start with the stomach.
+- **[00:26](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=26s)** — What enzymes does the stomach produce? Well, primarily one called pepsin. And pepsin has
+- **[00:34](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=34s)** — everything to do with digesting protein. But the stomach also makes another enzyme called lipase,
+- **[00:40](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=40s)** — which can help you break down fats, but only like a backup if you don't make it from other organs.
+- **[00:46](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=46s)** — We'll talk about that. But pepsin is a very powerful protein enzyme that helps you break down
+- **[00:54](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=54s)** — protein. And pepsin is activated by hydrochloric acid in the stomach. And one of the big problems
+- **[01:00](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=60s)** — with you not having enough of this enzyme is really not having enough hydrochloric acid. But
+- **[01:07](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=67s)** — maybe you have acid in your stomach, but just the pH is not acid enough. And if you don't have
+- **[01:14](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=74s)** — the acid, you're not going to have the release of the enzyme. And you're going to experience
+- **[01:18](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=78s)** — various symptoms. The number one symptom you're going to experience is indigestion. And then
+- **[01:24](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=84s)** — you're going to get gas. Those are the two primary ones. But if you're not digesting protein,
+- **[01:31](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=91s)** — because you don't have enough acid, you're going to have all sorts of things that are
+- **[01:35](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=95s)** — going to occur lower in the digestive tract. For example, that acid is also necessary
+- **[01:43](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=103s)** — to activate the gallbladder to release bile. And if you don't have that activation, then
+- **[01:49](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=109s)** — have enough bile. And then we don't get the necessary detergent to help extract
+- **[01:55](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=115s)** — the fat-siable nutrients from the fat that you eat. And then we have undigested protein
+- **[02:00](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=120s)** — material that ends up in the small intestine. And now both the pancreas and the small
+- **[02:06](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=126s)** — intestine have to overcompensate. And they have to produce more enzymes to help break down
+- **[02:13](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=133s)** — this material. And many times this doesn't happen. So you end up with all sorts of
+- **[02:17](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=137s)** — issues with gas and bloating and constipation, all stemming from this lack of acid that's
+- **[02:24](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=144s)** — supposed to activate and release the enzyme. So typically in this situation, a lot of people
+- **[02:30](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=150s)** — take pepsin, but they don't take the hydrochloric acid that's necessary to activate it.
+- **[02:35](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=155s)** — So it doesn't really work that well. Why are we not producing hydrochloric acid? It could be
+- **[02:41](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=161s)** — you're just getting older because as we age, we don't produce enough hydrochloric acid. It
+- **[02:45](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=165s)** — could be because you're taking antacids. That's one big reason why you don't have enough acid,
+- **[02:49](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=169s)** — because maybe you have heartburn, which by the way, it comes from a lack of stomach acid in the
+- **[02:54](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=174s)** — first place. And that valve is not closing. So if the valve doesn't close, you get
+- **[02:58](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=178s)** — regurgitation, you get GERD, and you can have a lot of problems as an acid reflux,
+- **[03:05](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=185s)** — which could also be caused from a lack of vitamin B1, as well as a lack of vitamin D.
+- **[03:11](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=191s)** — So the first thing that I would do if I had indigestion
+- **[03:15](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=195s)** — gas is I would take betaine hydrochloride. Betaine hydrochloride is a really good,
+- **[03:21](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=201s)** — simple solution for activating this enzyme in the stomach to help you with protein digestion.
+- **[03:29](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=209s)** — All right, let's shift gears to the pancreas. Okay. So if you don't have the full function
+- **[03:36](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=216s)** — of the pancreas, you can have what's called pancreatic enzyme insufficiency. Okay. So you
+- **[03:41](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=221s)** — just don't make enough enzymes and the majority of enzymes for digestion actually come from that
+- **[03:47](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=227s)** — pancreas. So this is very, very important. The pancreas works like crazy to produce enough
+- **[03:52](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=232s)** — enzymes to help you digest food. So based on what you're chewing, there's little signals get
+- **[03:57](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=237s)** — sent down to tell the pancreas to get ready to digest, whether it's fats, proteins,
+- **[04:01](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=241s)** — carbohydrates, or other things. And so the pancreas has to produce that in preparation for
+- **[04:06](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=246s)** — the food that's coming through. And then depending on how much acid you have in your
+- **[04:10](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=250s)** — stomach is whether you're going to release enough bile to help work to break down the fats small
+- **[04:17](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=257s)** — enough. So the enzymes, the lipase enzymes, the fat enzymes can act on this fat. You see,
+- **[04:25](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=265s)** — if you don't have enough bile to do the big work, then that lipase enzyme really is going
+- **[04:32](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=272s)** — to have a hard time breaking down that fat. And then you end up with undigested fat that
+- **[04:36](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=276s)** — goes through the small intestine into the large bowel. And then that symptom, which can come from
+- **[04:44](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=284s)** — a pancreas problem, is called steatorea, which is undigested fat. So you have this large
+- **[04:51](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=291s)** — volume of stool, very bad odor. Sometimes it's floating. Sometimes it leaves skid marks. The
+- **[05:07](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=307s)** — pancreatic enzymes or even a lack of bile. Maybe you don't have a gallbladder. Maybe you have a
+- **[05:14](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=314s)** — bile deficiency. Maybe you're just not producing enough bile. But if you're deficient in the
+- **[05:20](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=320s)** — enzymes coming out of the pancreas, you're going to have problems with the digestion of fat.
+- **[05:25](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=325s)** — You're going to have bloating. You're going to have abdominal pain. And you're going to have a
+- **[05:31](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=331s)** — lack of fat soluble vitamins like vitamin A, vitamin K, vitamin E, vitamin D. And you can
+- **[05:39](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=339s)** — have a lot of different symptoms from that. I almost forgot to mention if there's a problem
+- **[05:43](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=343s)** — in the stomach and you don't have enough hydrochloric acid, you can be deficient in
+- **[05:47](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=347s)** — amino acids. Okay. And that could be a big issue with building your muscle. And you may
+- **[05:53](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=353s)** — just start losing weight and you might feel weak. Now with the pancreas, one common cause
+- **[06:00](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=360s)** — of this enzyme deficiency is pancreatitis. So what could cause that? Well, there's some rare
+- **[06:07](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=367s)** — things like tumors, certain diseases like cystic fibrosis, which is a problem with certain
+- **[06:13](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=373s)** — fluids like digestive fluids or juices, like your mucus in your lung. But more commonly,
+- **[06:20](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=380s)** — okay, what can happen is you have either gallstones or gallbladder sludge. Okay. And this
+- **[06:30](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=390s)** — in the bile ducts, the bile duct as it comes out through the liver kind of branches over into the
+- **[06:36](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=396s)** — pancreas and the gallbladder. So if you have a stone or sludge in these ducts, it can back up
+- **[06:43](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=403s)** — not just the gallbladder, but the pancreas as well. And it can create all sorts of
+- **[06:48](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=408s)** — inflammation. And it's a much more common problem than other problems. And the solution
+- **[06:54](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=414s)** — is something called TUT cup, which is a type of bile salt that can just open up those ducts
+- **[07:00](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=420s)** — because it allows the sludge to open up and become thinned. Okay. And you can actually
+- **[07:05](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=425s)** — even help to reduce gallstones with that. And the very reason why you have a sludge in the
+- **[07:10](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=430s)** — first place is maybe you're on a low-fat diet. Maybe you don't have enough saturated
+- **[07:15](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=435s)** — fat in your diet that actually activates this whole thing. Maybe you're eating too many carbs,
+- **[07:19](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=439s)** — increasing your insulin. Maybe it's from too much stress or you're on steroids for some
+- **[07:24](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=444s)** — or you are on birth control pills because too much estrogen can create that problem.
+- **[07:30](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=450s)** — Now, another common problem with the pancreas is that let's say you have diabetes
+- **[07:34](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=454s)** — and you have chronic diabetes. And so you have a big problem with the beta cell
+- **[07:41](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=461s)** — of the pancreas. Well, the pancreas both produces hormones like insulin and another
+- **[07:48](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=468s)** — called glucagon, but it also half of it is all about enzymes. So being a diabetic can put a big
+- **[07:56](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=476s)** — strain on the digestive part of that pancreas. One of the best things to do if you know you
+- **[08:01](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=481s)** — have a pancreatic problem is to take pancreatic enzymes. Pancreatin is a group of
+- **[08:08](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=488s)** — pancreatic enzymes you can take in a supplement. And that can take a huge strain
+- **[08:13](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=493s)** — off your digestion and help you. And if you were to take that, I would also recommend you
+- **[08:18](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=498s)** — take betaine hydrochloride to have the complete package and probably wouldn't hurt to also take
+- **[08:24](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=504s)** — with that some ox bile. So let's now shift gears to the gallbladder. The gallbladder is
+- **[08:30](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=510s)** — also going to help you extract fat soluble nutrients because the bile that's made by the
+- **[08:36](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=516s)** — liver and stored in the gallbladder concentrates. So every time you eat, it's squeezed out and
+- **[08:42](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=522s)** — going to go into the small intestine and help as a part of this digestive synergy between the
+- **[08:49](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=529s)** — stuff that's coming out of the stomach into the small intestine and then the help from the
+- **[08:53](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=533s)** — pancreas. That lipase from the pancreas is like the icing on the cake. It helps to
+- **[08:58](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=538s)** — fully break down that fat so you have the complete digestion of fat. And even though the
+- **[09:04](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=544s)** — gallbladder doesn't produce enzymes, it really contributes to these other enzymes. And it's a
+- **[09:13](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=553s)** — lot of people don't have enough bile. Some common symptoms of that would be bloating,
+- **[09:20](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=560s)** — belching and burping. Not to mention a lack of fat soluble nutrients, vitamin A, D, E and K.
+- **[09:27](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=567s)** — But also you can notice pain in your right shoulder right through in here that goes up
+- **[09:32](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=572s)** — into the neck or that wraps around into like in the rhomboid area and a fullness underneath
+- **[09:38](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=578s)** — your right rib cage. Now let's move right down to the small intestine. 90% of all your digestion
+- **[09:45](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=585s)** — occurs in the small intestine. Your small intestine actually make enzymes as well.
+- **[09:51](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=591s)** — Normally you're not supposed to have a lot of bacteria in your small intestine compared to
+- **[09:58](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=598s)** — the large intestine. So primarily we want the help from the enzymes. And so depending on what's
+- **[10:04](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=604s)** — happening at the stomach level and the pancreatic level and the gallbladder is going to
+- **[10:11](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=611s)** — determine how hard that small intestine has to compensate or work or release these enzymes.
+- **[10:17](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=617s)** — So all these organs are working in synergy together. Now let's just for example say that
+- **[10:23](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=623s)** — you don't have enough strong stomach acid. Okay. And that's one of your problems.
+- **[10:29](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=629s)** — Well a lot of bacteria in the food can get through because now it can't be killed.
+- **[10:35](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=635s)** — That's one of the key functions of that acid to prevent microbes from going through. But now
+- **[10:41](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=641s)** — we get these microbes to go through there and they end up in a small intestine where they
+- **[10:45](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=645s)** — shouldn't be there. And also because we don't get the signaling from the gallbladder to
+- **[10:51](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=651s)** — release bile salts. So it's both the acid and the bile salts to act strongly on that
+- **[10:57](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=657s)** — intestine to ensure that there's not a lot of bacteria that grow in that small intestine
+- **[11:03](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=663s)** — too. And so now we have an increase of bacteria in the small intestine that can then
+- **[11:10](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=670s)** — reproduce and grow and develop into what's called small intestinal bacterial overgrowth.
+- **[11:19](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=679s)** — I mean one function of bile salts is to act as a detergent to kill off these microbes
+- **[11:24](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=684s)** — in your small intestine. And then when it gets all the way down to the last part of the small
+- **[11:28](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=688s)** — intestine, it gets reabsorbed and it starts over again. So it's a really important action
+- **[11:33](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=693s)** — to prevent SIBO. The same thing with the hydrochloric acid. So now we end up with the
+- **[11:39](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=699s)** — SIBO. What is the problem with SIBO? Small intestinal bacterial overgrowth. Wow. You have
+- **[11:45](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=705s)** — bloating, you have belching, you have abdominal pain. And now you also have competition from
+- **[11:52](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=712s)** — these microbes that are hungry and they're going to eat a lot of your nutrition from your food.
+- **[11:56](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=716s)** — So you're going to end up with all sorts of nutritional deficiencies, malnutrition,
+- **[12:00](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=720s)** — digestive issues, and the fiber that you eat is going to be fermented at the wrong place
+- **[12:08](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=728s)** — in the small intestine instead of the large intestine. So now we get worsening problems
+- **[12:14](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=734s)** — when you have your salads and you get worsening problems with gas going down the other end.
+- **[12:21](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=741s)** — And we get worsening problems if you take a probiotic because you're adding more bacteria.
+- **[12:27](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=747s)** — So it becomes a big issue. How can we solve that? Well, there are certain tests that you can do
+- **[12:33](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=753s)** — to identify if that's your problem. But the solution is to start taking
+- **[12:38](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=758s)** — the tain hydrochloride to fix the stomach. The solution is to start taking some ox bile
+- **[12:44](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=764s)** — to help with the gallbladder. Cut down the amount of fiber that you consume. In fact,
+- **[12:50](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=770s)** — would do carnivore for a while and also do routine intermittent fasting. And you can also
+- **[12:56](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=776s)** — do other things like you could take a natural antibiotic like garlic, for example. That would
+- **[13:00](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=780s)** — be something that can help kill off these microbes. It's not going to be as important
+- **[13:05](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=785s)** — as those two other actions. Now, what about the large intestine? Does your large intestine
+- **[13:10](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=790s)** — produce enzymes? And the answer is no, but the microbes, the flora, the microbiome,
+- **[13:17](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=797s)** — do produce a lot of different enzymes to help you with digesting a lot of things, especially
+- **[13:22](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=802s)** — things that you can't digest, like fiber. So they're working hard to digest this. And they
+- **[13:28](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=808s)** — also digest certain leftover sugars and even leftover proteins. If you don't have enough of
+- **[13:35](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=815s)** — the right microbes, the diversity, this is where you get diarrhea, constipation, and of course,
+- **[13:42](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=822s)** — fatty stool. That's something that floats. It has a very bad odor. And so the best solution would be
+- **[13:48](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=828s)** — to fortify the microbiome. If you don't have SIBO, you can feed a wide variety of different
+- **[13:55](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=835s)** — plant leaves or plants to help increase that diversity. You can also take a probiotic,
+- **[14:00](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=840s)** — which I would highly recommend, or consume fermented foods that have probiotics. Of course,
+- **[14:06](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=846s)** — only if you don't have SIBO. I hope that answers some of the questions on your digestive track.
+- **[14:14](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=854s)** — But this leads me to the next thing. What is the most underlying important thing you can do
+- **[14:20](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=860s)** — to prevent all of these issues? And for that answer, I put this video up on just
+- **[14:26](https://www.youtube.com/watch?v=GRtkgrBHySQ&t=866s)** — implementing the right diet right here. Check it out.

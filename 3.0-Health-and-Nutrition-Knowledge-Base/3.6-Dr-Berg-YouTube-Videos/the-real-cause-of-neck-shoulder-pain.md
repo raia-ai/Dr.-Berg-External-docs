@@ -1,0 +1,93 @@
+# The REAL Cause of Neck & Shoulder Pain
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=TYvz4hyYqhI](https://www.youtube.com/watch?v=TYvz4hyYqhI)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=0s)** — Today, I want to share some really important information related to chronic kidney disease.
+- **[00:06](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=6s)** — Chronic kidney disease is mainly made up by several types of problems with the kidney.
+- **[00:11](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=11s)** — One would be just chronic kidney disease in general, which is usually or mostly caused
+- **[00:17](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=17s)** — from diabetes. Okay. And then you have another type of kidney disease called polycystic kidney
+- **[00:24](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=24s)** — disease. I'm going to be talking about that. And then you have another problem with the kidney,
+- **[00:28](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=28s)** — which relates to kidney stones. We'll mention that as well. So if you have any of these problems,
+- **[00:34](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=34s)** — this video is for you and you definitely want to watch it because I want to share some new
+- **[00:39](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=39s)** — information, new research on this topic. When someone has end stage renal disease,
+- **[00:46](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=46s)** — 10% of the time it's going to be related to this polycystic kidney disease. And that's a
+- **[00:51](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=51s)** — situation where you have all these fluid filled sacks around the kidney. It kind of takes over
+- **[00:57](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=57s)** — the blood and then the more cyst you have, the less ability for you to filter. And then now you
+- **[01:03](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=63s)** — can't filter protein. So that starts going up in the blood and you start getting fluid retention
+- **[01:08](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=68s)** — and you get a lot of problems. And polycystic kidney disease is mainly thought of as a genetic
+- **[01:15](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=75s)** — problem. And until recently, like 2019, the thought was you really can't do anything about
+- **[01:21](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=81s)** — genetic diseases, but you actually can. And this is actually quite fascinating because if someone
+- **[01:28](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=88s)** — has these cysts that are overwhelming the kidney, pretty much they're just going to have
+- **[01:32](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=92s)** — to wait until they get on dialysis or they get a kidney transplant. There just wasn't any
+- **[01:39](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=99s)** — non-toxic solution. And this is the problem with the kidney and the liver especially.
+- **[01:46](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=106s)** — Drugs tend to add more toxicity to these organs. And so there's too many side effects. So with the
+- **[01:53](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=113s)** — polycystic kidney disease, you have increased risk of infection. You have urinary bleeding.
+- **[01:59](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=119s)** — You have reduced function of the kidney, which the kidney is a filter and it filters out
+- **[02:03](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=123s)** — the blood. And the person usually has high blood pressure. So in 2019, there was a study
+- **[02:08](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=128s)** — that found that the ketogenic diet actually halted and reversed polycystic kidney disease
+- **[02:17](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=137s)** — in mice. And so if you have a pet mouse or a gerbil or a rat that has this polycystic kidney
+- **[02:24](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=144s)** — disease problem, definitely go low carb. But they also found that time restricted eating,
+- **[02:29](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=149s)** — which is basically intermittent fasting, also created a similar effect. It slowed down the
+- **[02:36](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=156s)** — the cysts developing in the kidney and the associated fibrosis or the scar tissue that
+- **[02:42](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=162s)** — then comes after. It was also found that the ketogenic diet reduces the risk of kidney stones
+- **[02:49](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=169s)** — as long as the person's on a low oxalate diet. Oxalates are things that contribute
+- **[02:54](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=174s)** — to kidney stones and they're in the spinach, the almonds, the chocolate,
+- **[02:59](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=179s)** — kiwi. But as long as you avoid those things and you're on the ketogenic diet and you're
+- **[03:03](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=183s)** — water like 2.5 liters, at least a fluid per day, I think you're gonna be in pretty good shape.
+- **[03:09](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=189s)** — This is what they found in the study. Okay. And I want to really make sure you get this one
+- **[03:14](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=194s)** — point. These cysts that are developing in the kidney are absorbing glucose. And then of course,
+- **[03:21](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=201s)** — with the glucose comes the water. So these cysts are fluid filled sacs that have water in
+- **[03:28](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=208s)** — them. And of course, when they absorb water, they get bigger. But the surprising thing that
+- **[03:33](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=213s)** — they found. And so if you checked out, check back in right now, because this is the most
+- **[03:37](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=217s)** — important part of the video, is this. These cysts not only absorb glucose, but they are
+- **[03:44](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=224s)** — dependent on glucose. In other words, they can only grow if they have glucose. And of
+- **[03:51](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=231s)** — course, because this was a medical paper, they went on to say that maybe drug companies can
+- **[03:57](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=237s)** — come up with a drug to block glucose to help reduce this polycystic kidney disease. Of course,
+- **[04:04](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=244s)** — I have a different viewpoint. Why don't we just not consume glucose in the diet? Okay. Go on a
+- **[04:09](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=249s)** — low carb diet, because it's been found that the ketogenic diet may improve this condition.
+- **[04:14](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=254s)** — So that's pretty interesting, because if you can block sugar, or avoid sugar, you can actually
+- **[04:19](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=259s)** — shrink these cysts. And then of course, I got to thinking there's cysts in the other parts
+- **[04:25](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=265s)** — of the body too. You have cysts in the liver, and you even have Baker cysts that could be in
+- **[04:29](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=269s)** — the back of the knee. And I've already experienced if you get the person off sugar, those tend to
+- **[04:33](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=273s)** — go away. But then I actually kind of looked at the cyst in the liver. And I found that one
+- **[04:38](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=278s)** — remedy for that is metformin. What is metformin do? It actually has to do with
+- **[04:44](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=284s)** — regulating blood sugar by improving insulin resistance. Another interesting association,
+- **[04:50](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=290s)** — and you can even improve the cyst by taking ketones. So apparently ketones are pretty
+- **[04:57](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=297s)** — powerful in dealing with the cysts, which make a lot of sense, since they're dependent on
+- **[05:02](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=302s)** — glucose. And the only way your body can generate ketones is if you lower insulin
+- **[05:06](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=306s)** — and lower glucose. But apparently you can even take ketones, which I'm not recommending,
+- **[05:11](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=311s)** — but that's one way to reduce the cysts. Now there's actually three ways to get ketones in
+- **[05:17](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=317s)** — the body. One is a low carb diet. The other is to take ketones. And the third way is to fast,
+- **[05:25](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=325s)** — forcing your body to make ketones from your own fat. And so apparently fasting
+- **[05:32](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=332s)** — strongly inhibits the fibrosis or scar tissue that are associated with these cysts,
+- **[05:37](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=337s)** — as well as inhibiting something called mTOR. Now what is mTOR? mTOR is something in the body
+- **[05:44](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=344s)** — that can trigger the growth of cancer, tumors, and even cysts. So anything that reduces mTOR is a
+- **[05:53](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=353s)** — really good thing, especially if you have kidney problems. And fasting is a potent stimulator,
+- **[06:00](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=360s)** — but there's some other things too. Curcumin also reduces mTOR. Resveratrol will also reduce
+- **[06:07](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=367s)** — it. And the EGCG in green tea, as well as cursitin and berberine. These are all potent
+- **[06:15](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=375s)** — natural remedies to lower mTOR to help kidney cysts. But what about other types of kidney
+- **[06:21](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=381s)** — disease, chronic kidney disease? Well, the majority of that is caused by the same thing,
+- **[06:26](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=386s)** — glucose, because the root cause of this is definitely diabetes. So anything related to
+- **[06:33](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=393s)** — like whether you have a pre-diabetic situation or even insulin resistance could contribute to
+- **[06:38](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=398s)** — a worsening of the kidney function. There's an interesting protein. I won't get into the
+- **[06:43](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=403s)** — biochemical name, but there's an interesting protein that triggers another protein
+- **[06:46](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=406s)** — that then kind of goes around and around and around that leads to damage in the kidney.
+- **[06:53](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=413s)** — And I'm going to put down a link down below of a new discovery of an inhibitor of that
+- **[06:59](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=419s)** — specific protein that they're actually using a drug to do it to potentially halt or stop kidney
+- **[07:06](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=426s)** — disease. So this protein that they're trying to inhibit is called TRPC5. Not that you needed
+- **[07:14](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=434s)** — to know that, but I did a search on if there's any inhibitors to this protein,
+- **[07:19](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=439s)** — and I found that there is curcumin and resveratrol. So if you have chronic kidney
+- **[07:26](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=446s)** — disease, regardless of what caused it, this is what I would do. I would definitely take these
+- **[07:31](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=451s)** — phytonutrients from these herbs. I would also go on a low oxalate ketogenic diet. So you're
+- **[07:37](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=457s)** — not taking too many almonds or spinach or almond flour or kiwis. And if you added
+- **[07:46](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=466s)** — intermittent fasting with that, you'd come up with a really good program to take those cysts
+- **[07:53](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=473s)** — or take whatever damage in the kidney you have and hopefully bring it in the reverse. Anyway,
+- **[07:58](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=478s)** — I wanted to share that information with you, especially if you have a kidney problem or know
+- **[08:03](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=483s)** — of a person who has a problem. And if you hear anywhere that the ketogenic diet is really
+- **[08:08](https://www.youtube.com/watch?v=TYvz4hyYqhI&t=488s)** — bad for the kidneys, I think you should watch this video right here.

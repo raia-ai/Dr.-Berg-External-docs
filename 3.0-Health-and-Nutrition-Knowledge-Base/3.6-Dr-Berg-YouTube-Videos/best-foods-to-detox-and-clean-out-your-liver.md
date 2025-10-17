@@ -1,0 +1,110 @@
+# BEST Foods to Detox and Clean Out Your Liver
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=lo77w0bP4Qs](https://www.youtube.com/watch?v=lo77w0bP4Qs)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=0s)** — Today, we are going to show you how to go from a toxic, fatty, inflamed liver to a liver that is clean,
+- **[00:08](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=8s)** — without fat, and without scar tissue. And I am actually going to give you 8 different recipes.
+- **[00:13](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=13s)** — And these are very delicious, very easy to make. The liver reversing properties in these foods
+- **[00:18](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=18s)** — heal your liver and create a vacuum to also get rid of the fat in your midsection as well.
+- **[00:23](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=23s)** — And then the last thing I am going to show you is going to blow you away. It is a recipe to
+- **[00:27](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=27s)** — make a very healthy soda that will take your liver to the next level. The liver is the hub of so many different organs.
+- **[00:36](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=36s)** — Having a fatty liver doubles your risk of heart attacks. A dirty liver cannot detoxify anymore,
+- **[00:42](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=42s)** — develops cirrhosis. And not having a liver work right can really mess up your hormones.
+- **[00:46](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=46s)** — With all these smoothies I am going to show you, you are going to add one cup of water with one cup of ice.
+- **[00:51](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=51s)** — Let's dive right in. The first recipe is simply going to combine two different ingredients.
+- **[00:58](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=58s)** — One cup of spinach or just a small handful of spinach. The cool thing about spinach,
+- **[01:02](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=62s)** — it will decrease your cravings because it really helps blood sugar. And it can also help you
+- **[01:06](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=66s)** — remove fat in your abdomen. And then if we add that with kiwi, we are going to get a lot of vitamin C.
+- **[01:12](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=72s)** — And depending on the size of the kiwi, you might want to add two or three kiwis.
+- **[01:16](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=76s)** — Kiwi is one of those foods that has almost the most vitamin C of any food out there.
+- **[01:20](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=80s)** — It also has certain properties to protect the liver against damage. Combining these both can enhance the repair of your liver.
+- **[01:27](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=87s)** — You may also want to add a little squeeze of lemon or lime juice to this mixture.
+- **[01:31](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=91s)** — Combine these ingredients, blend it and then drink up. In the next smoothie we are going to add spinach and grapefruit.
+- **[01:37](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=97s)** — It has a unique property of increasing the sensitivity to the hormone insulin to help with blood sugar.
+- **[01:44](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=104s)** — And remember this is a smoothie, we are not juicing anything. We are going to take all the fiber, blend that with spinach.
+- **[01:49](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=109s)** — Add a little handful, which is like one cup, and then you are going to do one grapefruit.
+- **[01:54](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=114s)** — The other cool thing about grapefruit is it increases bile flow from the liver.
+- **[01:59](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=119s)** — And bile helps you break down fats, but a lot of the toxins from the liver go through the bile ducts as they come out into the small intestine.
+- **[02:09](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=129s)** — And I also like to add either half of a lemon or some lime juice to this mixture as well. Go ahead and blend and drink away.
+- **[02:15](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=135s)** — The next combination is kale with pomegranate. Kale is one of the cruciferous vegetables, so it has some additional properties to help with the detoxification of the liver.
+- **[02:26](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=146s)** — It's a great anti-inflammatory for the liver. And then pomegranate has the potential to really drop that inflammation in the liver.
+- **[02:34](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=154s)** — Remember, too much inflammation can develop scarring of the liver. We don't want that.
+- **[02:37](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=157s)** — Pomegranate also prevents fat from accumulating in the liver itself.
+- **[02:41](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=161s)** — If we combine both kale and pomegranate together, we stimulate one of the most powerful antioxidants in the body.
+- **[02:49](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=169s)** — If you want, you can also add a tablespoon of flaxseed to this mixture as well.
+- **[02:54](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=174s)** — The thing about flaxseed is it has a precursor to omega-3 fatty acid.
+- **[02:59](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=179s)** — Anything that can increase more omega-3 fatty acids can help inflammation.
+- **[03:04](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=184s)** — The next drink is really just a cup of sliced or chopped papaya in water. That's it.
+- **[03:09](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=189s)** — And maybe some ice cubes. Papaya is interesting because it's loaded with enzymes.
+- **[03:15](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=195s)** — It can really help digestion. And it's really good for fighting inflammation in the liver.
+- **[03:21](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=201s)** — One thing you might want to add a pinch of Himalayan sea salt. That way we can add some electrolytes in there.
+- **[03:26](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=206s)** — The next combination is combining one cup of chopped celery with one cup of blueberries.
+- **[03:34](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=214s)** — Celery is one of my favorite vegetables. It's good to increase bile production.
+- **[03:39](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=219s)** — It's great for reducing liver inflammation. And it's generally good to counter the toxicity from junk food.
+- **[03:46](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=226s)** — Not that you ever eat junk food, but if you ever do, eat more celery.
+- **[03:50](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=230s)** — With the blueberries, basically reduce fat on your liver.
+- **[03:54](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=234s)** — And if you also have excessive iron overload, like a lot of people do as they age,
+- **[03:59](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=239s)** — blueberries have the polyphenol chemicals to help bind with iron and remove it from the body.
+- **[04:04](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=244s)** — If you were brave enough to add maybe a teaspoon of apple cider vinegar to this mixture,
+- **[04:08](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=248s)** — you would greatly enhance the effectiveness as well as increase more bile flow through this area.
+- **[04:13](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=253s)** — When the bile backs up into the liver, you get right shoulder pain through here.
+- **[04:19](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=259s)** — And it could radiate up to this side right through here or in the back part right here.
+- **[04:23](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=263s)** — This is a great smoothie to help the liver and help keep things flowing.
+- **[04:27](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=267s)** — The next one we're going to talk about is cucumber and lemon.
+- **[04:30](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=270s)** — A cup of each. Chop these things up and then blend them and then drink away.
+- **[04:34](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=274s)** — The thing about cucumber is it's super hydrating. It has great electrolytes.
+- **[04:38](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=278s)** — It's great to increase the liver's ability to detoxify.
+- **[04:43](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=283s)** — And there's also a study I read that shows that it can help prevent the non-alcoholic fatty liver disease.
+- **[04:49](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=289s)** — Adding the lemon can also increase the detoxification of the liver.
+- **[04:54](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=294s)** — Melons in general are really good to pull edema from your legs or your feet because they're a natural diuretic.
+- **[05:01](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=301s)** — And then you can add a slice of ginger to that and make it a really tasty little shake.
+- **[05:05](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=305s)** — Then we get to the next one. Avocado with strawberries.
+- **[05:09](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=309s)** — I recommend doing a cup of each with a glass of water and some ice cubes. Blend it down.
+- **[05:14](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=314s)** — Alright, what's in the avocado? One of the most powerful antioxidants and they have reparative properties for the liver.
+- **[05:20](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=320s)** — Strawberries are great to increase overall liver function. They can help increase the metabolism.
+- **[05:25](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=325s)** — They can help remove some of the fat from the liver.
+- **[05:27](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=327s)** — There's a common theme here because we're talking about fruits and vegetables.
+- **[05:30](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=330s)** — All are very powerful antioxidants that support the liver.
+- **[05:34](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=334s)** — And the problem a lot of times with the liver is we're eating foods without those antioxidants like refined foods.
+- **[05:41](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=341s)** — And even if someone is a diabetic or they have a chronic condition and they have a lot of inflammation,
+- **[05:46](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=346s)** — if they also at the same time consume foods high in antioxidants, at least they would have a lot less side effects.
+- **[05:53](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=353s)** — This is just another important reason why I think people need to conclude these in their diet.
+- **[05:57](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=357s)** — The last smoothie is going to combine coconut with papaya. This is a really delicious smoothie.
+- **[06:04](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=364s)** — Now coconut has loric acid and that's really good as an antiviral. It's good for the immune system.
+- **[06:10](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=370s)** — Coconut is loaded with what's called MCT fat. These fats turn into ketones.
+- **[06:16](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=376s)** — And ketones are great for the liver because they're a low stress fat for the liver.
+- **[06:20](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=380s)** — If we combine that with papaya, which has a lot of enzymes and antioxidants,
+- **[06:25](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=385s)** — we're going to really drop the inflammation and the scarring that's happening in the liver.
+- **[06:29](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=389s)** — What you might want to do is add a little sprinkle of cinnamon to the mix to take things even further,
+- **[06:34](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=394s)** — especially for the blood sugar. I've given you a lot of different options for smoothies,
+- **[06:38](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=398s)** — but now I want to show you something very, very cool.
+- **[06:41](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=401s)** — This recipe that I'm going to share with you came from Dr. William Davis.
+- **[06:45](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=405s)** — He's the author of Supergut and also Wheat Belly. And he shared this with me in one of his emails.
+- **[06:51](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=411s)** — And I want to share it with you. You're going to love this. It's like a probiotic.
+- **[06:55](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=415s)** — And you're going to combine that with fruit juice. Any fruit juice.
+- **[06:59](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=419s)** — Orange, apple, grapefruit, pomegranate, cranberry.
+- **[07:06](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=426s)** — And what's going to happen is this microbe, it's actually a friendly fungus,
+- **[07:12](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=432s)** — is going to ferment and eat up the sugar in this juice over a period of 72 hours.
+- **[07:21](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=441s)** — And you're going to leave it out of the fridge right on the counter with maybe some cheesecloth over it.
+- **[07:26](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=446s)** — And if you don't have a cheesecloth, you can basically get a paper towel and put a rubber band around it.
+- **[07:32](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=452s)** — Because within 24 hours, you're going to get a lot of CO2 production.
+- **[07:37](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=457s)** — And if you close a lid on this thing, it's going to explode with all the pressure in there. So don't do that.
+- **[07:43](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=463s)** — You just take any amount of juice you want. You can just take a 16 ounce, you can take a 12 ounce,
+- **[07:48](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=468s)** — and you'll take one of these capsules.
+- **[07:50](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=470s)** — Now, the type of fungus or probiotic that you're going to need, you can get from Walmart or even the drugstore.
+- **[07:58](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=478s)** — It's this probiotic right here. It's called Florestor. And there's a very specific strain in here.
+- **[08:07](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=487s)** — CNCM1-745. And it loves sugar. In fact, after 72 hours, it's not even going to taste that sweet.
+- **[08:13](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=493s)** — It's going to be this delicious, carbonated, slightly flavored drink like a soda. And then you put it in the fridge.
+- **[08:22](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=502s)** — You're going to love it. It's delicious. And it's really good for you as well. It helps the gut.
+- **[08:26](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=506s)** — It can also help counter diarrhea and even suppress small intestinal bacterial overgrowth.
+- **[08:33](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=513s)** — You're just going to take one capsule from this, open it up, the contents of one capsule, and then just mix it up.
+- **[08:39](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=519s)** — Cover it up with that paper towel or a cheesecloth with a little rubber band and put it on your kitchen counter.
+- **[08:46](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=526s)** — And put your timer to 72 hours. Come back and drink it and you're going to be shocked.
+- **[08:51](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=531s)** — We talked about the foods for the liver, but we didn't talk about the entire diet that you should be on.
+- **[08:57](https://www.youtube.com/watch?v=lo77w0bP4Qs&t=537s)** — If you want that information, you should watch this video right here. Check it out.

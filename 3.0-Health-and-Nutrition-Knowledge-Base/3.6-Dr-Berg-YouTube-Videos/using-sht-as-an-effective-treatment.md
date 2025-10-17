@@ -1,0 +1,116 @@
+# Using Sh*t as an Effective Treatment???
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=RuZabnJ45r0](https://www.youtube.com/watch?v=RuZabnJ45r0)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=RuZabnJ45r0&t=0s)** — So today we're going to talk about something called Fecal Microbiota Transplantation.
+- **[00:06](https://www.youtube.com/watch?v=RuZabnJ45r0&t=6s)** — Now, why would anyone give a crap about this topic? I'm sorry, I had to do that. But this
+- **[00:11](https://www.youtube.com/watch?v=RuZabnJ45r0&t=11s)** — fecal transplantation is becoming mainstream in medicine. It's highly effective for the infection
+- **[00:17](https://www.youtube.com/watch?v=RuZabnJ45r0&t=17s)** — called C. diff. It can greatly help irritable bowel diseases. It's been found to be superior
+- **[00:23](https://www.youtube.com/watch?v=RuZabnJ45r0&t=23s)** — antibiotics. There's been great results with autism, MS, rheumatoid arthritis, decreasing risks
+- **[00:32](https://www.youtube.com/watch?v=RuZabnJ45r0&t=32s)** — of cancer, Parkinson's, chronic fatigue syndrome, acne, and even depression. However, I have some
+- **[00:38](https://www.youtube.com/watch?v=RuZabnJ45r0&t=38s)** — basic questions about this therapy. How long does it really last? I mean, if you go back to your
+- **[00:45](https://www.youtube.com/watch?v=RuZabnJ45r0&t=45s)** — usual eating habits, do you maintain this microbiome or does it become altered or affected
+- **[00:51](https://www.youtube.com/watch?v=RuZabnJ45r0&t=51s)** — by your lifestyle? I mean, what people really should be doing is find out what the fecal
+- **[00:57](https://www.youtube.com/watch?v=RuZabnJ45r0&t=57s)** — donor is eating and eat like that person. But this fecal transplant has been around for a
+- **[01:04](https://www.youtube.com/watch?v=RuZabnJ45r0&t=64s)** — very, very long time. I'm talking like 2000 years. The Chinese actually used it as a therapy
+- **[01:10](https://www.youtube.com/watch?v=RuZabnJ45r0&t=70s)** — for many different things. But there's some really important points to this topic. The
+- **[01:14](https://www.youtube.com/watch?v=RuZabnJ45r0&t=74s)** — fact that it works so well for so many different conditions. I mean, the connection
+- **[01:19](https://www.youtube.com/watch?v=RuZabnJ45r0&t=79s)** — between our microbes and both the innate and the acquired immune system, the importance in
+- **[01:25](https://www.youtube.com/watch?v=RuZabnJ45r0&t=85s)** — brain health, the importance of digesting things that we can't digest like fiber,
+- **[01:32](https://www.youtube.com/watch?v=RuZabnJ45r0&t=92s)** — the importance of these secondary bile salts made by microbes, and the importance of bile
+- **[01:39](https://www.youtube.com/watch?v=RuZabnJ45r0&t=99s)** — in general. Also for our skin and autoimmune diseases, nearly every single autoimmune disease
+- **[01:45](https://www.youtube.com/watch?v=RuZabnJ45r0&t=105s)** — starts in your gut. And if there was a much better friendly relationship with these microbes,
+- **[01:50](https://www.youtube.com/watch?v=RuZabnJ45r0&t=110s)** — chances are you probably wouldn't get an autoimmune problem. I mean, there are certain
+- **[01:55](https://www.youtube.com/watch?v=RuZabnJ45r0&t=115s)** — bacteria that help reduce the risk for kidney stones because these microbes help to
+- **[02:00](https://www.youtube.com/watch?v=RuZabnJ45r0&t=120s)** — deal with oxalates. There's microbes that deal with uric acid to help reduce the risk of
+- **[02:06](https://www.youtube.com/watch?v=RuZabnJ45r0&t=126s)** — gout. There are microbes that produce compounds that are anti-cancer. And really, we just need
+- **[02:11](https://www.youtube.com/watch?v=RuZabnJ45r0&t=131s)** — change our overall viewpoint with these bacteria or microbes in general. We've been attacking
+- **[02:18](https://www.youtube.com/watch?v=RuZabnJ45r0&t=138s)** — the germ as it's the sole cause of infection, but we're finding out more and more that that's
+- **[02:24](https://www.youtube.com/watch?v=RuZabnJ45r0&t=144s)** — not the cause of infection. It's our immune system. It's the environment. And the more
+- **[02:29](https://www.youtube.com/watch?v=RuZabnJ45r0&t=149s)** — that we sterilize our environments, our food, our gut, the more we're going to need this
+- **[02:34](https://www.youtube.com/watch?v=RuZabnJ45r0&t=154s)** — therapy. So let's talk about what not to do and what to do. Okay. You want to limit
+- **[02:38](https://www.youtube.com/watch?v=RuZabnJ45r0&t=158s)** — your exposure to drugs, chemicals, pesticides, herbicides, especially the one in GMO foods called
+- **[02:47](https://www.youtube.com/watch?v=RuZabnJ45r0&t=167s)** — glyphosate, which has been patented as an antibiotic. We want to limit the exposure to
+- **[02:53](https://www.youtube.com/watch?v=RuZabnJ45r0&t=173s)** — antibiotics and consuming animals that have been given antibiotics. We really want to
+- **[02:59](https://www.youtube.com/watch?v=RuZabnJ45r0&t=179s)** — start avoiding foods that have been sterilized. You pasteurize all these foods like
+- **[03:05](https://www.youtube.com/watch?v=RuZabnJ45r0&t=185s)** — milk products, the canned products like soups, the juices. We even use radiation to sterilize
+- **[03:11](https://www.youtube.com/watch?v=RuZabnJ45r0&t=191s)** — our foods, which is crazy. Instead, you should have a good portion of your diet raw. Okay. I'm
+- **[03:17](https://www.youtube.com/watch?v=RuZabnJ45r0&t=197s)** — talking about raw vegetables. I'm not talking about raw chicken. Okay. But maybe you can have
+- **[03:23](https://www.youtube.com/watch?v=RuZabnJ45r0&t=203s)** — like beef. That's rare. That would be better. But the more you cook the food with more of
+- **[03:27](https://www.youtube.com/watch?v=RuZabnJ45r0&t=207s)** — the pasteurized things, the more you kill off good bacteria. Now what's so special about
+- **[03:31](https://www.youtube.com/watch?v=RuZabnJ45r0&t=211s)** — plants? Yes, they give us the fiber that the microbes will live on. But I don't know if you
+- **[03:38](https://www.youtube.com/watch?v=RuZabnJ45r0&t=218s)** — knew this, but plants are filled with microbes. That's right. You're consuming microbes when you're
+- **[03:45](https://www.youtube.com/watch?v=RuZabnJ45r0&t=225s)** — eating a raw plant. Of course, it really depends on where that plant is grown. If it's grown
+- **[03:50](https://www.youtube.com/watch?v=RuZabnJ45r0&t=230s)** — maybe aeroponically or something like that, it probably doesn't have as many microbes. But if
+- **[03:55](https://www.youtube.com/watch?v=RuZabnJ45r0&t=235s)** — it's grown on really good soils, chances are it's going to be filled with microbes and that
+- **[03:59](https://www.youtube.com/watch?v=RuZabnJ45r0&t=239s)** — actually help you. One video I did talked about a really interesting topic on how plants really get
+- **[04:09](https://www.youtube.com/watch?v=RuZabnJ45r0&t=249s)** — their nutrition. And they get to nutrition by eating bacteria. That's right. The majority of
+- **[04:16](https://www.youtube.com/watch?v=RuZabnJ45r0&t=256s)** — nutrition that a plant gets is by eating bacteria. So the roots eat the microbe and then
+- **[04:23](https://www.youtube.com/watch?v=RuZabnJ45r0&t=263s)** — extract the nutrients from it and then spit the microbe back out. And it starts to recycle.
+- **[04:28](https://www.youtube.com/watch?v=RuZabnJ45r0&t=268s)** — A lot of these microbes travel up to the stem and to the leaf where they help that plant.
+- **[04:35](https://www.youtube.com/watch?v=RuZabnJ45r0&t=275s)** — And so this opens up a whole new area to look at in growing food and in farming. And I'm
+- **[04:43](https://www.youtube.com/watch?v=RuZabnJ45r0&t=283s)** — actually setting up several experiments on this topic very soon. And I'm going to share that
+- **[04:48](https://www.youtube.com/watch?v=RuZabnJ45r0&t=288s)** — on a new YouTube channel. So stay tuned for more information about that. I found two labs
+- **[04:53](https://www.youtube.com/watch?v=RuZabnJ45r0&t=293s)** — that can help identify the microbes in plants. And so we're going to do all sorts of tests.
+- **[04:59](https://www.youtube.com/watch?v=RuZabnJ45r0&t=299s)** — Now these plants also have certain phytonutrients that go beyond just acting as a
+- **[05:07](https://www.youtube.com/watch?v=RuZabnJ45r0&t=307s)** — prebiotic. They can actually help balance the bad bacteria. For example, sulforaphane
+- **[05:13](https://www.youtube.com/watch?v=RuZabnJ45r0&t=313s)** — and broccoli sprouts and other cruciferous vegetables can help inhibit and destroy
+- **[05:20](https://www.youtube.com/watch?v=RuZabnJ45r0&t=320s)** — H. pylori. That microbe that's behind ulcers, gastritis, and even certain types of gourd. You
+- **[05:30](https://www.youtube.com/watch?v=RuZabnJ45r0&t=330s)** — get a lot of cool effects from eating plants. Certain flavonoids are antimicrobial. Cursitin
+- **[05:36](https://www.youtube.com/watch?v=RuZabnJ45r0&t=336s)** — has been shown to inhibit E. coli. And another pigment found in plants called antho xanthin
+- **[05:43](https://www.youtube.com/watch?v=RuZabnJ45r0&t=343s)** — has been known to inhibit salmonella. Now I know some people are going to say,
+- **[05:46](https://www.youtube.com/watch?v=RuZabnJ45r0&t=346s)** — wait a second. I thought that plants were filled with anti-nutrients and we shouldn't be eating
+- **[05:50](https://www.youtube.com/watch?v=RuZabnJ45r0&t=350s)** — plants. We should all be doing carnivore. Well, if you have certain digestive problems where you
+- **[05:56](https://www.youtube.com/watch?v=RuZabnJ45r0&t=356s)** — can't digest plant food, well then maybe you should. But I'm not recommending that you eat
+- **[06:01](https://www.youtube.com/watch?v=RuZabnJ45r0&t=361s)** — all plants. Just a portion of your diet. And probably the biggest anti-nutrient that
+- **[06:06](https://www.youtube.com/watch?v=RuZabnJ45r0&t=366s)** — can affect people is oxalates. But that's really easy to solve if you just avoid the
+- **[06:13](https://www.youtube.com/watch?v=RuZabnJ45r0&t=373s)** — are high in oxalates. Like you'd want to avoid the spinach, the beet green, the Swiss chard.
+- **[06:19](https://www.youtube.com/watch?v=RuZabnJ45r0&t=379s)** — Also avoid nuts, kiwi, and of course potato. And if you're on the ketogenic diet, you don't
+- **[06:25](https://www.youtube.com/watch?v=RuZabnJ45r0&t=385s)** — have to worry about that. Chocolate is another thing that is very high in oxalates that you
+- **[06:29](https://www.youtube.com/watch?v=RuZabnJ45r0&t=389s)** — should avoid. And of course, beans and grains are just loaded with oxalates. And especially
+- **[06:35](https://www.youtube.com/watch?v=RuZabnJ45r0&t=395s)** — quinoa, which is supposed to be like a healthy grain. So the point is that just because
+- **[06:40](https://www.youtube.com/watch?v=RuZabnJ45r0&t=400s)** — plants have anti-nutrients doesn't mean we should just completely avoid all of them.
+- **[06:44](https://www.youtube.com/watch?v=RuZabnJ45r0&t=404s)** — If you have gastritis, for example, I found cabbage, which also is pretty high in
+- **[06:51](https://www.youtube.com/watch?v=RuZabnJ45r0&t=411s)** — sulforaphane, can be good for that condition. In fact, it's probably one of the only
+- **[06:55](https://www.youtube.com/watch?v=RuZabnJ45r0&t=415s)** — vegetables that I found that you could actually digest without discomfort. So to increase
+- **[07:00](https://www.youtube.com/watch?v=RuZabnJ45r0&t=420s)** — the diversity of your microbes in your gut, you want to increase a wide range of plant
+- **[07:06](https://www.youtube.com/watch?v=RuZabnJ45r0&t=426s)** — of course, not the ones I just mentioned, instead of just having like one type of vegetable
+- **[07:12](https://www.youtube.com/watch?v=RuZabnJ45r0&t=432s)** — all the time. You also want to eat fermented products, pickles and sauerkraut and kimchi,
+- **[07:18](https://www.youtube.com/watch?v=RuZabnJ45r0&t=438s)** — which are all microbial enhanced. You can also do raw milk cheese or kefir, which are loaded
+- **[07:25](https://www.youtube.com/watch?v=RuZabnJ45r0&t=445s)** — with microbes. Another way to increase the diversity of microbes is to try to reduce your
+- **[07:32](https://www.youtube.com/watch?v=RuZabnJ45r0&t=452s)** — stress as much as possible because stress actually really affects the microbes in the gut, which is
+- **[07:37](https://www.youtube.com/watch?v=RuZabnJ45r0&t=457s)** — interesting. Fasting, okay, regular intermittent fasting and periodic prolonged fasting also
+- **[07:45](https://www.youtube.com/watch?v=RuZabnJ45r0&t=465s)** — increases the diversity and the health of your gut. And exercise can even help the microbiome.
+- **[07:53](https://www.youtube.com/watch?v=RuZabnJ45r0&t=473s)** — So it's all about creating an environment where these microbes can thrive. When you
+- **[07:59](https://www.youtube.com/watch?v=RuZabnJ45r0&t=479s)** — environment and you stress it out, as in someone taking an antibiotic, boy, you create all sorts
+- **[08:06](https://www.youtube.com/watch?v=RuZabnJ45r0&t=486s)** — of, shall I say, like a shift of relationship with those microbes. So before they were
+- **[08:11](https://www.youtube.com/watch?v=RuZabnJ45r0&t=491s)** — friendly, now they're unfriendly. And this happens in the soil as well. If you, for
+- **[08:17](https://www.youtube.com/watch?v=RuZabnJ45r0&t=497s)** — example, start killing off certain things in the soil, sometimes you'll have an increase in
+- **[08:23](https://www.youtube.com/watch?v=RuZabnJ45r0&t=503s)** — fungus, right? And see, in nature, fungus actually, as one of their foods, they eat bacteria.
+- **[08:31](https://www.youtube.com/watch?v=RuZabnJ45r0&t=511s)** — And if there's not enough food for them, they start going after the plant and start creating
+- **[08:37](https://www.youtube.com/watch?v=RuZabnJ45r0&t=517s)** — plant infections because their environment is not good. There's just not enough food. Well,
+- **[08:43](https://www.youtube.com/watch?v=RuZabnJ45r0&t=523s)** — the exact same thing happens in our guts as well. When you take an antibiotic, you pretty
+- **[08:48](https://www.youtube.com/watch?v=RuZabnJ45r0&t=528s)** — much stress the fungus. And I'm talking about candida. And then that starts to affect you.
+- **[08:53](https://www.youtube.com/watch?v=RuZabnJ45r0&t=533s)** — It starts creating an unfriendly relationship where it negatively affects you. Whereas before,
+- **[08:59](https://www.youtube.com/watch?v=RuZabnJ45r0&t=539s)** — it's like a symbiotic relationship that doesn't affect you. We normally have candida in our
+- **[09:05](https://www.youtube.com/watch?v=RuZabnJ45r0&t=545s)** — system and candida normally doesn't affect us until we change that relationship by changing
+- **[09:11](https://www.youtube.com/watch?v=RuZabnJ45r0&t=551s)** — the environment. If you are female and you're going to have a baby, I would highly recommend
+- **[09:17](https://www.youtube.com/watch?v=RuZabnJ45r0&t=557s)** — that you breastfeed because the first breast milk is called colostrum. And in that colostrum,
+- **[09:23](https://www.youtube.com/watch?v=RuZabnJ45r0&t=563s)** — you have the mother's immunity. You're giving that baby friendly bacteria that's going to
+- **[09:29](https://www.youtube.com/watch?v=RuZabnJ45r0&t=569s)** — go in the digestive system and start to seed it. And the same principle occurs with plants.
+- **[09:37](https://www.youtube.com/watch?v=RuZabnJ45r0&t=577s)** — A seed is not just something that has genetics that grow into a plant. A seed is really
+- **[09:43](https://www.youtube.com/watch?v=RuZabnJ45r0&t=583s)** — like Noah's Ark. It's filled with all sorts of microbes inside and outside. And if you
+- **[09:50](https://www.youtube.com/watch?v=RuZabnJ45r0&t=590s)** — really understand that concept, that could change your method of handling seeds and how
+- **[09:55](https://www.youtube.com/watch?v=RuZabnJ45r0&t=595s)** — maybe you should inoculate the seed and add some microbes to the seed to help it to grow
+- **[10:00](https://www.youtube.com/watch?v=RuZabnJ45r0&t=600s)** — better. A lot of people should be taking probiotics on a regular basis, especially if
+- **[10:04](https://www.youtube.com/watch?v=RuZabnJ45r0&t=604s)** — they take antibiotics at the same time. So I've covered a lot of different areas of this
+- **[10:09](https://www.youtube.com/watch?v=RuZabnJ45r0&t=609s)** — but I think it's a really important topic to have it sink into your brain. And there's a
+- **[10:14](https://www.youtube.com/watch?v=RuZabnJ45r0&t=614s)** — lot more to talk about with the digestive system. There's a really important video
+- **[10:18](https://www.youtube.com/watch?v=RuZabnJ45r0&t=618s)** — that I did that I'm going to put up right here. And if you haven't seen it, you should check
+- **[10:22](https://www.youtube.com/watch?v=RuZabnJ45r0&t=622s)** — it out.

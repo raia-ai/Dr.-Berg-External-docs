@@ -1,0 +1,125 @@
+# The Battle of the Cabbages
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=1FPKsx2YlaY](https://www.youtube.com/watch?v=1FPKsx2YlaY)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=0s)** — Let's talk about the difference between sauerkraut and kimchi.
+- **[00:03](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=3s)** — These are two very popular fermented vegetables.
+- **[00:05](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=5s)** — And today we're going to talk about which one is better.
+- **[00:07](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=7s)** — Sauerkraut has a much more mild taste.
+- **[00:10](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=10s)** — Kimchi is very spicy. It can be very hot.
+- **[00:12](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=12s)** — Kimchi is made from a certain type of cabbage called napa cabbage.
+- **[00:17](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=17s)** — Radishes, garlic, chili pepper, ginger, and salt.
+- **[00:21](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=21s)** — Obviously right there, if you have more vegetables involved,
+- **[00:24](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=24s)** — you're going to have more phytonutrients.
+- **[00:26](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=26s)** — It also has more of a diversity of different microbes.
+- **[00:30](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=30s)** — Now with sauerkraut, the dominant microbe is something called lactobacillus plantarum.
+- **[00:36](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=36s)** — Now of course, that's also the dominant microbe in kimchi as well.
+- **[00:39](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=39s)** — This microbe is very interesting because it can survive in very harsh environments.
+- **[00:43](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=43s)** — It can not be affected by the acid in your stomach.
+- **[00:47](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=47s)** — They can survive and other microbes cannot.
+- **[00:49](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=49s)** — And therefore it can help us because it balances out more good bacteria than bad bacteria.
+- **[00:55](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=55s)** — That helps make this mucus barrier to prevent pathogens from going in there and creating leaky gut.
+- **[01:00](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=60s)** — It has the ability to increase serotonin.
+- **[01:03](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=63s)** — 90% of all the serotonin in your body is made in the gut.
+- **[01:07](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=67s)** — Serotonin is also the precursor to another hormone called melatonin.
+- **[01:12](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=72s)** — And melatonin is a very potent antioxidant if it's inside your cell.
+- **[01:16](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=76s)** — But it also is something that helps you sleep at night.
+- **[01:19](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=79s)** — If we switch over to kimchi, kimchi helps cultivate a very unique microbe that's not in sauerkraut.
+- **[01:26](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=86s)** — And what this unique microbe does is it inhibits pathogens.
+- **[01:30](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=90s)** — Like some of the microbes that contaminate our food.
+- **[01:33](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=93s)** — Listeria is one of them.
+- **[01:35](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=95s)** — Kimchi's microbe greatly inhibits that pathogen.
+- **[01:38](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=98s)** — What's really unique about this microbe as well is it inhibits not just pathogens,
+- **[01:44](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=104s)** — but also funguses and yeast in certain molds.
+- **[01:48](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=108s)** — And some people even take diluted drops of the liquid in kimchi and they spray it in their sonnuses.
+- **[01:55](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=115s)** — However, if you just take raw kimchi, you know, just by consuming it orally,
+- **[02:00](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=120s)** — it can indirectly help the sonnuses because it can travel up through the respiratory tissues.
+- **[02:06](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=126s)** — Kimchi also survives in cold temperature.
+- **[02:09](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=129s)** — This is why you can keep it in the fridge and everything is fine.
+- **[02:12](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=132s)** — And the same thing with sauerkraut as well.
+- **[02:14](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=134s)** — If we flip over to sauerkraut, sauerkraut has a little bit more of a certain microbe called L-brevis,
+- **[02:21](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=141s)** — which has a lot of benefits to the gut and even to the immune system.
+- **[02:25](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=145s)** — Both sauerkraut and kimchi also make something else, something called bactericin.
+- **[02:30](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=150s)** — Bactericins are natural antibiotics.
+- **[02:33](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=153s)** — They're not going to be a broad spectrum antibiotic like you would get if you went to the doctor,
+- **[02:39](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=159s)** — which they just wipe out everything.
+- **[02:41](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=161s)** — And the devastation of broad spectrum antibiotics are just destroying our guts.
+- **[02:48](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=168s)** — And this is why if someone is resistant to antibiotics,
+- **[02:51](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=171s)** — they develop superbugs because they took a lot of antibiotics.
+- **[02:54](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=174s)** — Now they have microbes that are resistant to antibiotics.
+- **[02:57](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=177s)** — Sometimes sauerkraut and kimchi can help that situation.
+- **[03:00](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=180s)** — Also, if we take a look at something very similar between sauerkraut and kimchi,
+- **[03:05](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=185s)** — we have cabbage.
+- **[03:06](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=186s)** — Number one, it's a cruciferous vegetable, so it has a lot of different phytonutrients.
+- **[03:10](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=190s)** — It's loaded with glutathione, which is good for detoxifying things in the body,
+- **[03:16](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=196s)** — anthocyanins, which help longevity.
+- **[03:18](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=198s)** — There's also something called vitamin U.
+- **[03:22](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=202s)** — And it was named by a researcher in the 50s who isolated this compound from cabbage.
+- **[03:29](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=209s)** — What does the U stand for?
+- **[03:31](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=211s)** — It stands for ulcers.
+- **[03:32](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=212s)** — Protecting against ulcers helps you repair the inner tissue of your digestive system,
+- **[03:37](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=217s)** — as well as decreasing inflammation.
+- **[03:39](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=219s)** — This is why it's so good for ulcers as well as gastritis,
+- **[03:43](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=223s)** — because it directly affects the cells that make gastric acid.
+- **[03:48](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=228s)** — So anytime you have an ulcer or especially gastritis,
+- **[03:52](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=232s)** — think cabbage, as well as any inflammation in the gut, like IBS.
+- **[03:56](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=236s)** — Now on top of that molecule, you also have another thing that cabbage has,
+- **[04:00](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=240s)** — and that's glutamine.
+- **[04:02](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=242s)** — Now glutamine is really good for a leaky gut.
+- **[04:04](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=244s)** — It also helps fuel the cells in the colon.
+- **[04:07](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=247s)** — And it just so happens that glutamine is also in red meat, bone broth, and eggs.
+- **[04:13](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=253s)** — And so there's some serious amazing health properties in both sauerkraut and kimchi.
+- **[04:17](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=257s)** — Now there is a few more benefits to kimchi.
+- **[04:20](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=260s)** — Not only do you have more of a diversity of microbes,
+- **[04:23](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=263s)** — you also have fermented garlic, which is an amazing compound.
+- **[04:27](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=267s)** — It does all sorts of things.
+- **[04:28](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=268s)** — It's anti-cancer, it's anti-microbial, powerful anti-inflammatory, antioxidant.
+- **[04:33](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=273s)** — Really good for your immune system.
+- **[04:34](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=274s)** — There's a compound in ginger, which if fermented,
+- **[04:38](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=278s)** — converts into several other stronger anti-inflammatory molecules
+- **[04:43](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=283s)** — that also have amazing digestive properties as well.
+- **[04:46](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=286s)** — And one other interesting thing about ginger is that it helps nausea,
+- **[04:49](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=289s)** — or if you're nauseous.
+- **[04:50](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=290s)** — And also fermented ginger gives us a lot more digestive enzymes as well.
+- **[04:54](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=294s)** — So it's good for anything related to bloating, indigestion, gas, things like that.
+- **[04:59](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=299s)** — The compound in chili pepper is also enhanced when it's fermented.
+- **[05:05](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=305s)** — So this is going to be really good for inflammation, pain, circulation, metabolism,
+- **[05:11](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=311s)** — and also fat loss as well.
+- **[05:12](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=312s)** — And if we look at sauerkraut versus kimchi with weight loss,
+- **[05:16](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=316s)** — kimchi is a lot better for weight loss.
+- **[05:19](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=319s)** — And now we know why because it has certain properties that help with blood sugar,
+- **[05:23](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=323s)** — insulin resistance, and anything that does that is going to help you lose weight.
+- **[05:27](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=327s)** — So it's probably why the Korean people are so slim.
+- **[05:30](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=330s)** — I don't know if that's true.
+- **[05:31](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=331s)** — But the Koreans got the idea from the Chinese long ago.
+- **[05:34](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=334s)** — I think it was in the 17th century.
+- **[05:36](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=336s)** — The Chinese were fermenting vegetables back then, and then the Koreans created kimchi.
+- **[05:41](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=341s)** — As you can see, both of these products have amazing health potential.
+- **[05:44](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=344s)** — But kimchi gives you even more benefits than sauerkraut because it's obviously
+- **[05:48](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=348s)** — there's more vegetables in that product.
+- **[05:50](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=350s)** — Now personally, I cannot consume kimchi because it's just too spicy.
+- **[05:55](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=355s)** — I will consume it because I know it's good for me.
+- **[05:58](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=358s)** — And this is why I consume more sauerkraut.
+- **[06:00](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=360s)** — And one last benefit of kimchi compared to sauerkraut is that kimchi has even more
+- **[06:06](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=366s)** — vitamin C than sauerkraut.
+- **[06:08](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=368s)** — Which is interesting because just with one cup you get over 700 milligrams.
+- **[06:13](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=373s)** — That's 10 times the RDA for vitamin C.
+- **[06:16](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=376s)** — Well apparently kimchi has more vitamin C than even sauerkraut.
+- **[06:19](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=379s)** — Make sure if you're going to consume either sauerkraut or kimchi is you have it raw.
+- **[06:23](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=383s)** — Because that's where you get the benefit of the microbes.
+- **[06:25](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=385s)** — When they pasteurize it, they heat it, they kill it, they put it in a jar
+- **[06:29](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=389s)** — and it sits on the shelf.
+- **[06:30](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=390s)** — You don't want to consume that because you're not going to get the benefit from the microbes.
+- **[06:35](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=395s)** — You might get the benefit from other things like some of the phytonutrients
+- **[06:39](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=399s)** — and the lactic acid.
+- **[06:40](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=400s)** — But you're leaving a lot on the table because all those microbes can greatly help us.
+- **[06:44](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=404s)** — Since these fermented products are so good for your digestive system,
+- **[06:48](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=408s)** — you should probably check out my video on the digestive system because there's a lot
+- **[06:52](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=412s)** — can go wrong and this relates to these two products.
+- **[06:57](https://www.youtube.com/watch?v=1FPKsx2YlaY&t=417s)** — So check out that video right here.

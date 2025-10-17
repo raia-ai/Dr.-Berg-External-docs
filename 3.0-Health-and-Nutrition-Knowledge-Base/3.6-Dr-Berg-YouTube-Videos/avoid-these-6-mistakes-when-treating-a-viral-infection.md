@@ -1,0 +1,91 @@
+# Avoid These 6 Mistakes When Treating a Viral Infection
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=Z3kTm3Ac1PI](https://www.youtube.com/watch?v=Z3kTm3Ac1PI)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=0s)** — Now there are six mistakes you can make when you develop a viral infection and you're going to
+- **[00:05](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=5s)** — actually address it or treat it that I want to talk about. Because when you start getting sick,
+- **[00:10](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=10s)** — especially a viral infection, you want to make sure that you can maybe fight it off initially so it
+- **[00:16](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=16s)** — doesn't develop into a full-blown infection. And if you have the infection you want a very
+- **[00:22](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=22s)** — quick recovery. You don't want something that's going to last a very long time. So this video
+- **[00:26](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=26s)** — is going to be very important. All right, number one. Stopping a fever too quickly. There's this
+- **[00:32](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=32s)** — impulse to want to get rid of your fever, especially if a child has fever. Well, did you
+- **[00:38](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=38s)** — realize that by getting rid of the fever you're going to prolong the duration of the infection?
+- **[00:44](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=44s)** — You have to realize what that fever is there for. Very, very important. It is there to help
+- **[00:49](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=49s)** — reduce the spreading of the virus. That's right. Like if it's in your sinuses down into the
+- **[00:55](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=55s)** — lungs. It can actually inhibit the spreading from the lungs throughout the rest of the body.
+- **[01:01](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=61s)** — It can reduce the reproduction of the virus. It helps inhibit the virus going into the cell.
+- **[01:08](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=68s)** — It reduces something called IL-6, which is a requirement for the virus to survive. And on top
+- **[01:14](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=74s)** — of that, the fever increases your T-killer cells, which is everything to do with killing
+- **[01:21](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=81s)** — off viruses as well as killing off cancer. In fact, when you start getting a fever,
+- **[01:27](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=87s)** — I would recommend do things to keep really, really warm to help enhance that fever. You know,
+- **[01:33](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=93s)** — when you're actually sleeping, just wear more clothes, have more blankets, take a hot bath,
+- **[01:38](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=98s)** — take a hot shower, stay really, really warm. Viruses hate heat. All right, number two.
+- **[01:44](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=104s)** — Taking an antibiotic for a virus. It doesn't work. Antibiotics only work for bacterial
+- **[01:50](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=110s)** — infections, not viruses, not fungal infections, not Candida, only for bacterial infections.
+- **[01:58](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=118s)** — And the problem when you take an antibiotic, there's some slight minor complications. And I'm
+- **[02:02](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=122s)** — being very sarcastic because there are a lot of side effects. The big one being, you know,
+- **[02:07](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=127s)** — when you take an antibiotic, you're not going to fully kill off everything, right? Those
+- **[02:20](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=140s)** — from that stress. And now the next time you use an antibiotic, it doesn't work anymore. And then
+- **[02:27](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=147s)** — you get sick and you have another infection, another infection. So over time, these antibiotics
+- **[02:32](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=152s)** — become less and less effective. Not to mention all the other side effects. So when you have a
+- **[02:37](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=157s)** — virus infection, antibiotics don't work. And if for some reason you have to take an antibiotic,
+- **[02:42](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=162s)** — make sure you also take a probiotic at the exact same time so you can actually kind of
+- **[02:49](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=169s)** — preserve your own microbes to some extent. I mean, the reason I'm even bringing this up is
+- **[02:53](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=173s)** — because literally like 50% of all antibiotics are prescribed unnecessarily. Also, if you
+- **[03:02](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=182s)** — take antibiotics, you end up with a severe B1 deficiency, which creates all sorts of issues.
+- **[03:07](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=187s)** — Now the next one is just a kind of concept of avoiding over-sanitation. And this has to do
+- **[03:14](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=194s)** — something called the hygiene hypothesis, mainly for kids that are living in a very super clean
+- **[03:22](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=202s)** — environment. They tend to get more allergies. They tend to get sick more often simply because
+- **[03:28](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=208s)** — they don't develop an immune system. You have to realize that especially early on when
+- **[03:32](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=212s)** — you get an infection as a child, that's the training of your immune system. So sometimes we
+- **[03:37](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=217s)** — have this obsession to keep everything so sterile and clean and sanitized. Well, that
+- **[03:42](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=222s)** — inhibits your immune system as well. Especially if you are sanitizing your hands or your
+- **[03:49](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=229s)** — skin, you actually are wiping off all the good bacteria that live on your skin as well.
+- **[03:55](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=235s)** — I mean, this also can relate to facial cleansing creams and scrubs and all this
+- **[04:02](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=242s)** — work to kind of clean your skin, whether you have acne or whatever, you're just stripping off
+- **[04:07](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=247s)** — all these friendly bacteria and you end up with rashes on your skin and the skin is not
+- **[04:12](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=252s)** — healthy. Alright, number four, detoxifying when you run down or you're getting sick.
+- **[04:17](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=257s)** — You don't want to do a detox. You don't want to take things that detoxify you because that's
+- **[04:22](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=262s)** — going to weaken your system. You're going to actually probably even get sick just from that.
+- **[04:27](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=267s)** — I've been completely without symptoms. I had no infections and then I took some remedy
+- **[04:33](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=273s)** — to detoxify myself and I ended up with a full-blown infection. Now, what is going on
+- **[04:38](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=278s)** — with that? When you detox sometimes incorrectly, you release a lot of crud and stuff and it
+- **[04:44](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=284s)** — creates an immune reaction and you can even be sick just from that. Not to mention, you can
+- **[04:50](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=290s)** — weaken the immune system and activate latent viruses that are dormant. So the point is when
+- **[04:55](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=295s)** — you're sick, you want to nurture that situation. You don't want to start doing any type of
+- **[05:01](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=301s)** — detoxification and even doing a detox in general. I have videos on that. There's the
+- **[05:05](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=305s)** — but you want to do it so you don't get sick. So you want to learn from the mistakes of others,
+- **[05:11](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=311s)** — including me. I was sick in bed for two weeks unnecessarily by just doing a detox.
+- **[05:19](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=319s)** — And this also relates to the next one. Number five, doing a shotgun effect
+- **[05:25](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=325s)** — on your immune system. Taking every single known remedy demand for an infection,
+- **[05:31](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=331s)** — just tons of stuff. You're going to overdo it. You don't need to do that.
+- **[05:35](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=335s)** — Yeah, even sometimes when they have like a sinus infection, they'll start doing
+- **[05:40](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=340s)** — colloidal silver as a nasal rinse and then they'll add hydrogen peroxide and then they'll add
+- **[05:45](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=345s)** — other things like garlic. It's going to irritate your tissues. So you got to really
+- **[05:50](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=350s)** — be careful not to overdo it. I have videos on this of what to do. Probably the three
+- **[05:55](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=355s)** — would be zinc, a natural form of vitamin C and vitamin D. And also apple cider vinegar is a
+- **[06:03](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=363s)** — nice one as well because apple cider vinegar stimulates the phagocytes. So it can stimulate
+- **[06:08](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=368s)** — the immune system to kind of clean things up. And number six, and I've seen this
+- **[06:13](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=373s)** — mistake quite frequently, is just trying to suppress the immune system when it's trying
+- **[06:18](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=378s)** — to work right away. So there's a lot of medications that suppress a cough or suppress
+- **[06:23](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=383s)** — mucus, right? The cough and the mucus is there to get rid of the virus. So you start suppressing
+- **[06:31](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=391s)** — things. You push them deeper into the tissues and now you have the infection longer. So
+- **[06:38](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=398s)** — anything that can actually help get rid of mucus and help it drain or even improve a
+- **[06:43](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=403s)** — productive cough would be a good thing. There's another point about cortisol and
+- **[06:49](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=409s)** — even sometimes people have to take prednisone when they're sick. Prednisone is a synthetic
+- **[06:54](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=414s)** — cortisol and cortisol, which is a stress hormone, suppresses the immune system big time. It
+- **[07:01](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=421s)** — basically makes your immune system paralyzed. It lowers white blood cells. What am I talking
+- **[07:07](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=427s)** — about? I'm talking about anything that stresses you out when you're going through a viral
+- **[07:13](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=433s)** — infection or even a bacterial infection. Boy, that is a big problem. That's probably the biggest
+- **[07:19](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=439s)** — problem. In fact, there probably wasn't a time that you got sick that you didn't have some
+- **[07:25](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=445s)** — stress event that occurred just before that. So it's very, very important to keep your
+- **[07:30](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=450s)** — stress to a minimum, get plenty of rest, take hot baths, nurture your body. But I just wanted
+- **[07:36](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=456s)** — to create this video to increase your awareness on these key factors. Now there's a lot of
+- **[07:40](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=460s)** — things that you need to know about the immune system. And if you haven't seen this very
+- **[07:44](https://www.youtube.com/watch?v=Z3kTm3Ac1PI&t=464s)** — important immune video, I put it up right here. Check it out.

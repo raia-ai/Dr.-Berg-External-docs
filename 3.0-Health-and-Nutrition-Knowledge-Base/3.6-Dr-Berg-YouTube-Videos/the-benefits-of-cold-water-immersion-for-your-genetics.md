@@ -1,0 +1,108 @@
+# The Benefits Of Cold Water Immersion for Your Genetics
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=GhGSLffZd0E](https://www.youtube.com/watch?v=GhGSLffZd0E)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=GhGSLffZd0E&t=0s)** — Now, for some reason, we don't like to freeze. We don't like to starve.
+- **[00:07](https://www.youtube.com/watch?v=GhGSLffZd0E&t=7s)** — It's very uncomfortable. We like warm weather. We like to have food available all the time,
+- **[00:13](https://www.youtube.com/watch?v=GhGSLffZd0E&t=13s)** — and we definitely like to be comfortable as far as our temperature. Well, our ancestors have
+- **[00:17](https://www.youtube.com/watch?v=GhGSLffZd0E&t=17s)** — adapted to temperature over a very long period of time due to the season called winter.
+- **[00:25](https://www.youtube.com/watch?v=GhGSLffZd0E&t=25s)** — Nowadays, we can easily overcome this severe cold winter by just turning the thermostat to 70
+- **[00:32](https://www.youtube.com/watch?v=GhGSLffZd0E&t=32s)** — degrees. Today, I'm going to talk about some interesting research relating to cold water
+- **[00:38](https://www.youtube.com/watch?v=GhGSLffZd0E&t=38s)** — immersion and your genes and how using cold therapy can greatly affect your genes in a
+- **[00:45](https://www.youtube.com/watch?v=GhGSLffZd0E&t=45s)** — positive way. Now, I have an actual cold water immersion tank outside my house, and when I
+- **[00:51](https://www.youtube.com/watch?v=GhGSLffZd0E&t=51s)** — used it, I set the temperature to 37 degrees. That's pretty darn cold, and I don't recommend
+- **[00:59](https://www.youtube.com/watch?v=GhGSLffZd0E&t=59s)** — doing that to start out with because I could only last five seconds. I would recommend starting
+- **[01:05](https://www.youtube.com/watch?v=GhGSLffZd0E&t=65s)** — out at 50 degrees Fahrenheit, which is 10 degrees Celsius, starting out with just a minute,
+- **[01:11](https://www.youtube.com/watch?v=GhGSLffZd0E&t=71s)** — and then gradually working up from that. But to experience the benefits of this cold therapy,
+- **[01:16](https://www.youtube.com/watch?v=GhGSLffZd0E&t=76s)** — you want to be uncomfortable. And to experience the benefits I'm going to talk about,
+- **[01:21](https://www.youtube.com/watch?v=GhGSLffZd0E&t=81s)** — you really only need 11 minutes per week. So anyone can do that. Even if you don't have a
+- **[01:28](https://www.youtube.com/watch?v=GhGSLffZd0E&t=88s)** — cold water immersion tank, you can do this with a cold shower. You can find a pool that's really
+- **[01:33](https://www.youtube.com/watch?v=GhGSLffZd0E&t=93s)** — cold or maybe jump in the pond somewhere. But there's different ways of experiencing this
+- **[01:38](https://www.youtube.com/watch?v=GhGSLffZd0E&t=98s)** — therapy. Now, if you compare cold therapy to warm therapy, like a hot shower, you're
+- **[01:44](https://www.youtube.com/watch?v=GhGSLffZd0E&t=104s)** — definitely going to experience more benefits with the cold therapy simply because it's more
+- **[01:49](https://www.youtube.com/watch?v=GhGSLffZd0E&t=109s)** — uncomfortable. If you just can't even fathom to doing this or have no tolerance for doing this,
+- **[01:56](https://www.youtube.com/watch?v=GhGSLffZd0E&t=116s)** — it could be that you just need more B vitamins. B vitamins help increase the tolerance to
+- **[02:01](https://www.youtube.com/watch?v=GhGSLffZd0E&t=121s)** — extreme temperatures. And I will put a link down below of where I got my tank. And I'm
+- **[02:06](https://www.youtube.com/watch?v=GhGSLffZd0E&t=126s)** — not affiliated with this company. I get no kickbacks, but it's called the Cold Plunge Store.
+- **[02:12](https://www.youtube.com/watch?v=GhGSLffZd0E&t=132s)** — And I bought the tank called the Flex, but I really like it. I think the benefits are
+- **[02:17](https://www.youtube.com/watch?v=GhGSLffZd0E&t=137s)** — You're going to find all sorts of cool benefits relating to cognitive benefits, physical inflammation,
+- **[02:24](https://www.youtube.com/watch?v=GhGSLffZd0E&t=144s)** — repair, etc. So I'm going to go through the benefits and then I'll talk about
+- **[02:28](https://www.youtube.com/watch?v=GhGSLffZd0E&t=148s)** — the genetic benefits as well. However, I do want to make one point about when you initially
+- **[02:34](https://www.youtube.com/watch?v=GhGSLffZd0E&t=154s)** — get into this tank, your pulse rate is going to go up, your heart rate is going to go up.
+- **[02:39](https://www.youtube.com/watch?v=GhGSLffZd0E&t=159s)** — Okay, you're going to have probably the urge to hyperventilate. You'll probably have
+- **[02:44](https://www.youtube.com/watch?v=GhGSLffZd0E&t=164s)** — gasping where your breathing is affected. You really have to focus on controlling your breath,
+- **[02:51](https://www.youtube.com/watch?v=GhGSLffZd0E&t=171s)** — slow it down, breathe in, slow it down, breathe out. And that will help the shock of getting
+- **[02:58](https://www.youtube.com/watch?v=GhGSLffZd0E&t=178s)** — into this cold water immersion. So let's first talk about all the things that it can decrease.
+- **[03:04](https://www.youtube.com/watch?v=GhGSLffZd0E&t=184s)** — Okay, the first thing that it can decrease is the ratios of something called APO A to APO B
+- **[03:11](https://www.youtube.com/watch?v=GhGSLffZd0E&t=191s)** — ratios. And this really has to do with a cardiovascular risk. Without getting into the
+- **[03:16](https://www.youtube.com/watch?v=GhGSLffZd0E&t=196s)** — details, APO A and APO E have to do with proteins that are attached or that regulate
+- **[03:24](https://www.youtube.com/watch?v=GhGSLffZd0E&t=204s)** — the lipoproteins. And so when this ratio is decreased, you have better cardiovascular
+- **[03:30](https://www.youtube.com/watch?v=GhGSLffZd0E&t=210s)** — function. Another thing that will decrease is your homocysteine levels. Okay, that is
+- **[03:35](https://www.youtube.com/watch?v=GhGSLffZd0E&t=215s)** — another factor that's associated with cardiovascular problems. You also have decreased oxidative
+- **[03:40](https://www.youtube.com/watch?v=GhGSLffZd0E&t=220s)** — stress, a decrease in cortisol and the hormone that controls cortisol, which is ACTH,
+- **[03:47](https://www.youtube.com/watch?v=GhGSLffZd0E&t=227s)** — which is interesting because you would think your stress would go up, but it actually goes
+- **[03:51](https://www.youtube.com/watch?v=GhGSLffZd0E&t=231s)** — down. Maybe not initially, but as soon as you get out of the tub and you're relaxed,
+- **[03:58](https://www.youtube.com/watch?v=GhGSLffZd0E&t=238s)** — antibodies even decrease. Okay, so this is going to strengthen your immune system,
+- **[04:04](https://www.youtube.com/watch?v=GhGSLffZd0E&t=244s)** — especially if you have an autoimmune problem. Your insulin actually goes down and that's going
+- **[04:11](https://www.youtube.com/watch?v=GhGSLffZd0E&t=251s)** — to be a good thing because you could imagine how many body problems are associated with high
+- **[04:16](https://www.youtube.com/watch?v=GhGSLffZd0E&t=256s)** — insulin. Your acid goes down. Your risk for upper respiratory tract infections goes down.
+- **[04:23](https://www.youtube.com/watch?v=GhGSLffZd0E&t=263s)** — And as a side note, it especially go down if you're a swimmer. Swimmers have this out of
+- **[04:29](https://www.youtube.com/watch?v=GhGSLffZd0E&t=269s)** — cardiovascular plus many times these pools are on the cold side. So swimmers have a much less
+- **[04:36](https://www.youtube.com/watch?v=GhGSLffZd0E&t=276s)** — incidence of upper respiratory tract infections. Another thing that will decrease is your
+- **[04:42](https://www.youtube.com/watch?v=GhGSLffZd0E&t=282s)** — depression. Okay, cold water therapy is like a natural antidepressant, but without the side
+- **[04:50](https://www.youtube.com/watch?v=GhGSLffZd0E&t=290s)** — effects, pain will decrease, inflammation will decrease, muscle soreness will actually decrease.
+- **[04:55](https://www.youtube.com/watch?v=GhGSLffZd0E&t=295s)** — Now I do want to mention another thing about muscle. There's been some research that shows
+- **[04:59](https://www.youtube.com/watch?v=GhGSLffZd0E&t=299s)** — that when you do this on a repetitive basis, cold therapy, it can actually inhibit your gains
+- **[05:07](https://www.youtube.com/watch?v=GhGSLffZd0E&t=307s)** — in growing muscle. But if you're just doing, you know, 11 minutes per week, I highly doubt
+- **[05:16](https://www.youtube.com/watch?v=GhGSLffZd0E&t=316s)** — it's going to influence your muscles in any negative way, shape, or form. The benefits far
+- **[05:24](https://www.youtube.com/watch?v=GhGSLffZd0E&t=324s)** — away any potential downside. Now your recovery time will decrease when you do this therapy as
+- **[05:32](https://www.youtube.com/watch?v=GhGSLffZd0E&t=332s)** — well. So if you just exercise or you've done some type of athletic event, you'll recover
+- **[05:38](https://www.youtube.com/watch?v=GhGSLffZd0E&t=338s)** — faster. And there's also evidence that shows that cold therapy actually inhibits the growth of
+- **[05:44](https://www.youtube.com/watch?v=GhGSLffZd0E&t=344s)** — tumors. And one theory why this does this is because of the spike in brown fat, which can
+- **[05:50](https://www.youtube.com/watch?v=GhGSLffZd0E&t=350s)** — suck up a lot of the glucose, which is fuel for cancer cells. But it does make sense that
+- **[05:54](https://www.youtube.com/watch?v=GhGSLffZd0E&t=354s)** — cold therapy would be anti-carcinogenic because of what it does to your genes, of what it does to
+- **[06:01](https://www.youtube.com/watch?v=GhGSLffZd0E&t=361s)** — your immune system, and what it does to your overall survival. Now let's flip over to all the
+- **[06:07](https://www.youtube.com/watch?v=GhGSLffZd0E&t=367s)** — things that this cold therapy will increase. Okay, it can increase your thyroid stimulating
+- **[06:12](https://www.youtube.com/watch?v=GhGSLffZd0E&t=372s)** — hormone as well as increase T3, which is the active form of the thyroid hormone. Cold
+- **[06:17](https://www.youtube.com/watch?v=GhGSLffZd0E&t=377s)** — therapy actually increases your T cells. Okay, I'm talking about your killer T cells, which
+- **[06:23](https://www.youtube.com/watch?v=GhGSLffZd0E&t=383s)** — address viruses and attack cancer. Overall, it can increase your white blood cells. The
+- **[06:30](https://www.youtube.com/watch?v=GhGSLffZd0E&t=390s)** — concentration of zinc will increase. Your noradrenaline can increase, making you very,
+- **[06:34](https://www.youtube.com/watch?v=GhGSLffZd0E&t=394s)** — very alert. You can even increase your insulin sensitivity, which has to do with lowering
+- **[06:40](https://www.youtube.com/watch?v=GhGSLffZd0E&t=400s)** — your overall insulin. Probably one of the biggest benefits that I like about this is that
+- **[06:44](https://www.youtube.com/watch?v=GhGSLffZd0E&t=404s)** — increases your mental resilience. This is your capacity to adapt to stress. It makes you mentally
+- **[06:52](https://www.youtube.com/watch?v=GhGSLffZd0E&t=412s)** — strong when you do this. It's just kind of like the same thing with fasting. When you can
+- **[06:57](https://www.youtube.com/watch?v=GhGSLffZd0E&t=417s)** — not eat for a period of time, you develop a stronger willpower because you're basically now
+- **[07:03](https://www.youtube.com/watch?v=GhGSLffZd0E&t=423s)** — more in charge of your body versus people with a lowered willpower and they tend to
+- **[07:14](https://www.youtube.com/watch?v=GhGSLffZd0E&t=434s)** — Okay, we're turning on certain genes that were otherwise inhibited. There's one gene called
+- **[07:23](https://www.youtube.com/watch?v=GhGSLffZd0E&t=443s)** — PGC-1 alpha. And when this gene gets turned on, it creates mitochondria biogenesis. It
+- **[07:31](https://www.youtube.com/watch?v=GhGSLffZd0E&t=451s)** — actually increases that growth of mitochondria, which is going to help your metabolism. It's
+- **[07:35](https://www.youtube.com/watch?v=GhGSLffZd0E&t=455s)** — going to help generate more oxygen in the body. There's another gene called VEGF, which
+- **[07:41](https://www.youtube.com/watch?v=GhGSLffZd0E&t=461s)** — will increase more blood vessels. And so basically you're getting more angiogenesis,
+- **[07:48](https://www.youtube.com/watch?v=GhGSLffZd0E&t=468s)** — which is the production of new blood cells. There's another gene called PPARGC1A that has to
+- **[07:55](https://www.youtube.com/watch?v=GhGSLffZd0E&t=475s)** — do with VO2 max, your capacity to use oxygen. And if someone has a mutation with this gene,
+- **[08:03](https://www.youtube.com/watch?v=GhGSLffZd0E&t=483s)** — their VO2 max can be decreased up to 50%. So cold therapy can cause expression of this
+- **[08:11](https://www.youtube.com/watch?v=GhGSLffZd0E&t=491s)** — turn it on and increase your VO2 max. There's another gene called PSME1, which has to do with
+- **[08:20](https://www.youtube.com/watch?v=GhGSLffZd0E&t=500s)** — a protein aggregation or accumulation of damaged protein in the body, which creates a lot of
+- **[08:27](https://www.youtube.com/watch?v=GhGSLffZd0E&t=507s)** — problems. And when you add cold therapy, you can actually increase the recycling of this
+- **[08:31](https://www.youtube.com/watch?v=GhGSLffZd0E&t=511s)** — this protein. So you get less accumulation of this protein aggregation. Another gene is
+- **[08:36](https://www.youtube.com/watch?v=GhGSLffZd0E&t=516s)** — having to do with glutathione, which is like the most powerful antioxidant in your liver,
+- **[08:43](https://www.youtube.com/watch?v=GhGSLffZd0E&t=523s)** — which can help you break down poisons into harmless particles, which also can influence
+- **[08:48](https://www.youtube.com/watch?v=GhGSLffZd0E&t=528s)** — networks of other antioxidants. So cold therapy increases antioxidants. And as a side note,
+- **[08:56](https://www.youtube.com/watch?v=GhGSLffZd0E&t=536s)** — heat therapy, as in a sauna or even a jacuzzi, can inhibit your antioxidants. Now I'm not
+- **[09:03](https://www.youtube.com/watch?v=GhGSLffZd0E&t=543s)** — not to do it, but let's say for example, you do have a problem genetically with oxidative stress,
+- **[09:09](https://www.youtube.com/watch?v=GhGSLffZd0E&t=549s)** — then maybe you should focus more on cold therapy than heat therapy. There's another gene
+- **[09:15](https://www.youtube.com/watch?v=GhGSLffZd0E&t=555s)** — that gets expressed called ACTN3, which has everything to do with increasing your
+- **[09:21](https://www.youtube.com/watch?v=GhGSLffZd0E&t=561s)** — tolerance to stress. So the more you do this, the more tolerance to stress you'll have,
+- **[09:26](https://www.youtube.com/watch?v=GhGSLffZd0E&t=566s)** — the more resistance to stress you'll have, the more mentally resilient you're going to be.
+- **[09:30](https://www.youtube.com/watch?v=GhGSLffZd0E&t=570s)** — And the last two genes, RBM3 and CIRP, you'll get more survival of your cells, improved DNA,
+- **[09:40](https://www.youtube.com/watch?v=GhGSLffZd0E&t=580s)** — stabilized RNA, which is the copy of the DNA, which will give you enhanced protein synthesis
+- **[09:46](https://www.youtube.com/watch?v=GhGSLffZd0E&t=586s)** — or shall I say building of proteins, as well as an anti-inflammatory effect and an antioxidant
+- **[09:52](https://www.youtube.com/watch?v=GhGSLffZd0E&t=592s)** — effect. So as you can see, the benefits of cold water immersion are huge. And I think it's
+- **[09:59](https://www.youtube.com/watch?v=GhGSLffZd0E&t=599s)** — beneficial to alternate this with heat therapy. And if you haven't seen my video on that topic,
+- **[10:05](https://www.youtube.com/watch?v=GhGSLffZd0E&t=605s)** — I put it up right here. Check it out.

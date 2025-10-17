@@ -1,0 +1,92 @@
+# #1 Vitamin to Eliminate Swollen Legs and Ankles
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=TBSGhpG8yfE](https://www.youtube.com/watch?v=TBSGhpG8yfE)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=0s)** — Let's talk about how to get rid of swollen legs, ankles, and feet.
+- **[00:05](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=5s)** — Would you believe that I used to have pitting edema right on my ankles?
+- **[00:08](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=8s)** — I remember pressing into my lower ankle and leaving a dent.
+- **[00:13](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=13s)** — I mean, I'm not that old. It was some years ago, but even in this picture you could see,
+- **[00:17](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=17s)** — my face was completely round.
+- **[00:21](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=21s)** — Anytime someone has a round face, what that means is they have blood sugar issues.
+- **[00:26](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=26s)** — But the point is, I had a lot of health problems, and pitting edema was definitely one of them.
+- **[00:31](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=31s)** — Now, swollen legs are called edema. And if you look this up,
+- **[00:35](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=35s)** — it'll say that it's a liver problem, a kidney problem, a heart problem.
+- **[00:39](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=39s)** — Maybe you're consuming too much sodium. But that's not always the case.
+- **[00:43](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=43s)** — There's something else way more common, and I'm going to share that with you today.
+- **[00:46](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=46s)** — And this is totally easy to fix. When you watch this video, if you just apply what I'm going to show you,
+- **[00:51](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=51s)** — you'll fix this very fast. Without taking a blood thinner,
+- **[00:55](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=55s)** — like some type of diuretic, to push the fluid out. I mean, that comes with a package, like side effects.
+- **[01:01](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=61s)** — When you have fluid retention, especially in your lower legs and ankles,
+- **[01:06](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=66s)** — this boils down to a problem with these little tiny pumps that are not working.
+- **[01:11](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=71s)** — In your cells, you have millions and millions of these little tiny pumps that push fluid in and out of the cell.
+- **[01:17](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=77s)** — And the specific pump that's not working in this case is called the sodium-potassium pump.
+- **[01:21](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=81s)** — There's some really interesting things about this pump. It uses like 30 to 40 percent of all the energy that is given to that cell.
+- **[01:28](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=88s)** — But if that pump goes bad, like in our house in the basement, when the pump went bad,
+- **[01:32](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=92s)** — we had about a foot of water in our basement. If the pump goes bad in your body,
+- **[01:37](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=97s)** — you're going to have a lot of fluid that is not going to be in the cells. It's going to be outside the cells.
+- **[01:42](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=102s)** — And that's called interstitial fluid retention. So what's really going on in your lower ankles
+- **[01:47](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=107s)** — is you're getting a condition where your sugar in the blood is too high
+- **[01:52](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=112s)** — and all that sugar is connected to the protein in the blood called hemoglobin.
+- **[01:56](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=116s)** — So let's say we have a protein bar right here representing the protein and then we have a marshmallow representing the sugar.
+- **[02:03](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=123s)** — What happens when this sugar connects to the protein in your blood? This is called glycation.
+- **[02:09](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=129s)** — So this is the term that they use when you hear this test called A1C.
+- **[02:13](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=133s)** — The A1C test measures how much sugar is stuck to your blood protein.
+- **[02:21](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=141s)** — And it gives you an average of like three months because the red blood cell survives about three months.
+- **[02:27](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=147s)** — And so when this sugar gets stuck to the blood protein, it doesn't come off.
+- **[02:32](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=152s)** — It's stuck there permanently until that blood cell dies. And so when you eat more sugar,
+- **[02:36](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=156s)** — you get more sugar stuck to this protein, more sugar stuck to the protein,
+- **[02:40](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=160s)** — until this protein can't work anymore. And the name for this is that the protein is glycated.
+- **[02:47](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=167s)** — But the main takeaway for this is that when you eat sugar, you destroy the ability for the blood cell
+- **[02:52](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=172s)** — to carry nutrition to the body, to carry oxygen. And this glycated protein molecule now plugs up your circulation.
+- **[03:01](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=181s)** — Then you get a lack of blood flow and then you get this pooling that goes on in your lower part of your body.
+- **[03:06](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=186s)** — And this is that swelling because it also destroys the inside of your arteries and it creates a leakiness outside the cell.
+- **[03:15](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=195s)** — The fluid that was supposed to be inside your vessels can now escape.
+- **[03:19](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=199s)** — The other thing that this does when you eat a lot of sugar is that it actually creates a sodium retention.
+- **[03:24](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=204s)** — Not to mention the other mineral called potassium gets locked up in the sugar. And wherever the sodium goes, the water goes.
+- **[03:32](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=212s)** — Now, over time, this is going to affect the nerves in the bottom of the feet. You're going to get numbness, tingling.
+- **[03:38](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=218s)** — They call that peripheral neuropathy. And so, yes, when you look at a diabetic, you see a lot of fluid in the ankles and things.
+- **[03:44](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=224s)** — But even people that are not diabetic and maybe they're not even pre-diabetic, they're going towards that area.
+- **[03:51](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=231s)** — They also have fluid retention. And that's what I had. There is a very important vitamin to correct this.
+- **[03:58](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=238s)** — But there are two other things, the minerals that you need to also get from the diet. Of course, the obvious one is potassium.
+- **[04:05](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=245s)** — The problem with potassium is that it's not easy to get from the diet because we need so, so much.
+- **[04:11](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=251s)** — An average person needs 4,700 milligrams. Now think about what that means.
+- **[04:17](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=257s)** — If you were to eat one banana, that's like 300 milligrams. So how many times does 300 go into 4,700?
+- **[04:25](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=265s)** — Let's take a look. You would have to consume 15.6 bananas every day just to get your potassium.
+- **[04:32](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=272s)** — But the problem with that is that's going to be hard. And also that's a lot of sugar.
+- **[04:37](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=277s)** — So instead of doing that, you might be better off doing like avocados, more salad and even more fruit like berries.
+- **[04:45](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=285s)** — You can get a lot of potassium from that. Now, the other mineral, magnesium, is behind something called ATP, which is the energy currency of the body.
+- **[04:52](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=292s)** — And yes, you're going to get cramps if you have magnesium problems, but also you're going to have a lack of energy.
+- **[04:58](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=298s)** — So to get magnesium, you probably need to consume more pumpkin seeds or sunflower seeds as well as leafy greens.
+- **[05:07](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=307s)** — But you don't need 4,700 like potassium. You need about 420 milligrams of magnesium.
+- **[05:13](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=313s)** — You can also get both of these from a good electrolyte powder. But just make sure that the electrolyte powder is high quality.
+- **[05:19](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=319s)** — It doesn't have the hidden sugars. All right, so that will fix the pump.
+- **[05:23](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=323s)** — But the very reason why the pump went bad is what we want to talk about next.
+- **[05:28](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=328s)** — And that is a deficiency of vitamin B1. So I want to show you in this little very simple chart here.
+- **[05:34](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=334s)** — I'm being very sarcastic. It's a huge biochemical chart.
+- **[05:38](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=338s)** — You can see all this chemistry stuff going on right here and this stuff right here.
+- **[05:43](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=343s)** — When you eat sugar in the body, it starts here and then it has to be broken down into a smaller sugar molecule called glucose.
+- **[05:52](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=352s)** — And then it has to enter the machine to be turned into energy.
+- **[05:57](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=357s)** — In order for it to go from this step to this step, this one little enzyme requires vitamin B1.
+- **[06:04](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=364s)** — If you don't have enough, then you will not be able to use that as energy.
+- **[06:08](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=368s)** — And so the number one cause of a B1 deficiency is consuming too much carbohydrates in the refined form.
+- **[06:17](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=377s)** — For example, if you eat all this refined sugar without B1, now the body has to pull from its reserves, right?
+- **[06:24](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=384s)** — We have to pull it from different tissues and organs and glands.
+- **[06:27](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=387s)** — And eventually you're going to be deficient.
+- **[06:30](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=390s)** — And that B1 is also very important as an antioxidant to protect the nerves.
+- **[06:35](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=395s)** — This is why when you run out of B1, you get what's called peripheral neuropathy,
+- **[06:41](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=401s)** — which is tingling and numbness and burning on the bottom of your feet.
+- **[06:45](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=405s)** — The point is that B1 is so important in carbohydrate metabolism and protecting you against a lot of carbohydrates.
+- **[06:52](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=412s)** — And when I say protection, I'm talking about the protection against this glycation, this sugar connecting to the protein.
+- **[07:01](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=421s)** — B1 keeps these apart so you don't destroy your blood cells and you have good circulation.
+- **[07:08](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=428s)** — Because you have to realize as soon as that connects to it, it's permanent.
+- **[07:12](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=432s)** — It's not coming off. So magnesium, potassium and B1 is the solution to swollen ankles.
+- **[07:20](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=440s)** — But you also have to get the sugar out of the diet because as soon as you go back to eating the refined carbohydrates, guess what?
+- **[07:27](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=447s)** — The swelling comes back.
+- **[07:28](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=448s)** — Alright, so now the question is, if I'm not going to eat carbs, what am I going to eat?
+- **[07:32](https://www.youtube.com/watch?v=TBSGhpG8yfE&t=452s)** — For that information, you need to watch this video right here.

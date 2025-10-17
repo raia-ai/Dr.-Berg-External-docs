@@ -1,0 +1,92 @@
+# Bizarre Mind-Blowing Health Tricks
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=g44aTI7qiws](https://www.youtube.com/watch?v=g44aTI7qiws)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=g44aTI7qiws&t=0s)** — Bizarre, mind-blowing health tricks that are backed by science.
+- **[00:05](https://www.youtube.com/watch?v=g44aTI7qiws&t=5s)** — The first one is dark chocolate. When you start eating dark chocolate at 80% cacao,
+- **[00:09](https://www.youtube.com/watch?v=g44aTI7qiws&t=9s)** — there's going to be a lot less sweeteners. It borders on kind of bitter chocolate.
+- **[00:14](https://www.youtube.com/watch?v=g44aTI7qiws&t=14s)** — This is from a study, 2017, a meta-analysis who showed that it can significantly decrease the systolic blood pressure
+- **[00:21](https://www.youtube.com/watch?v=g44aTI7qiws&t=21s)** — and diastolic blood pressure comparable to certain medications.
+- **[00:25](https://www.youtube.com/watch?v=g44aTI7qiws&t=25s)** — Dark chocolate decreases cortisol by 14%. That's the stress hormone.
+- **[00:29](https://www.youtube.com/watch?v=g44aTI7qiws&t=29s)** — It's the flavonoids in the chocolate. It actually increases nitric oxide.
+- **[00:34](https://www.youtube.com/watch?v=g44aTI7qiws&t=34s)** — So that's going to lower blood pressure.
+- **[00:36](https://www.youtube.com/watch?v=g44aTI7qiws&t=36s)** — Just realize that you don't want to take this too late in the day
+- **[00:39](https://www.youtube.com/watch?v=g44aTI7qiws&t=39s)** — because it has something similar to caffeine which can keep you up at night.
+- **[00:43](https://www.youtube.com/watch?v=g44aTI7qiws&t=43s)** — So I wouldn't have any past lunchtime.
+- **[00:45](https://www.youtube.com/watch?v=g44aTI7qiws&t=45s)** — The next one is from the American Journal of Respiratory and Critical Care Medicine.
+- **[00:51](https://www.youtube.com/watch?v=g44aTI7qiws&t=51s)** — This trick significantly improves your sinuses.
+- **[00:54](https://www.youtube.com/watch?v=g44aTI7qiws&t=54s)** — Increasing nitric oxide by 15 times. Nitric oxide gives you more oxygen.
+- **[01:00](https://www.youtube.com/watch?v=g44aTI7qiws&t=60s)** — This activates the parasympathetic nervous system which will help relax you, lower your blood pressure,
+- **[01:05](https://www.youtube.com/watch?v=g44aTI7qiws&t=65s)** — and it's basically the action of humming while you're exhaling.
+- **[01:09](https://www.youtube.com/watch?v=g44aTI7qiws&t=69s)** — So you sit or lie down somewhere, maybe on your bed.
+- **[01:12](https://www.youtube.com/watch?v=g44aTI7qiws&t=72s)** — You inhale through your nose very, very gradually.
+- **[01:15](https://www.youtube.com/watch?v=g44aTI7qiws&t=75s)** — And then you exhale while you are humming.
+- **[01:19](https://www.youtube.com/watch?v=g44aTI7qiws&t=79s)** — So you can feel the vibration in your face and your chest.
+- **[01:23](https://www.youtube.com/watch?v=g44aTI7qiws&t=83s)** — And you want to do this for several minutes, a few times a day.
+- **[01:26](https://www.youtube.com/watch?v=g44aTI7qiws&t=86s)** — I mean, this is pretty wild.
+- **[01:27](https://www.youtube.com/watch?v=g44aTI7qiws&t=87s)** — Humming could actually help your sinuses by basically restricting the airflow in your sinuses,
+- **[01:33](https://www.youtube.com/watch?v=g44aTI7qiws&t=93s)** — which increases nitric oxide.
+- **[01:34](https://www.youtube.com/watch?v=g44aTI7qiws&t=94s)** — The third one is pretty wild because it just involves standing on one leg for 30 seconds.
+- **[01:41](https://www.youtube.com/watch?v=g44aTI7qiws&t=101s)** — And then you're going to stand on the other leg for 30 seconds.
+- **[01:43](https://www.youtube.com/watch?v=g44aTI7qiws&t=103s)** — You're practicing your balance.
+- **[01:45](https://www.youtube.com/watch?v=g44aTI7qiws&t=105s)** — And this is from a 2014 study in the journal, Stroke.
+- **[01:49](https://www.youtube.com/watch?v=g44aTI7qiws&t=109s)** — And maybe you want to do this while you're brushing your teeth or shaving or something like that.
+- **[01:52](https://www.youtube.com/watch?v=g44aTI7qiws&t=112s)** — But what they found is it actually increases your gray matter volume,
+- **[01:58](https://www.youtube.com/watch?v=g44aTI7qiws&t=118s)** — which includes hippocampus, which is all about memory,
+- **[02:02](https://www.youtube.com/watch?v=g44aTI7qiws&t=122s)** — increasing your cognitive score by 13%.
+- **[02:05](https://www.youtube.com/watch?v=g44aTI7qiws&t=125s)** — So I guess the way that it works is you're basically forcing your body to balance on one leg,
+- **[02:10](https://www.youtube.com/watch?v=g44aTI7qiws&t=130s)** — which sends information up to your brain,
+- **[02:12](https://www.youtube.com/watch?v=g44aTI7qiws&t=132s)** — exercising that part of the brain, and improving that part of the brain.
+- **[02:16](https://www.youtube.com/watch?v=g44aTI7qiws&t=136s)** — The next one is also very interesting.
+- **[02:19](https://www.youtube.com/watch?v=g44aTI7qiws&t=139s)** — And this is sniffing something.
+- **[02:21](https://www.youtube.com/watch?v=g44aTI7qiws&t=141s)** — In a research paper in 2013, there was a study that showed that
+- **[02:26](https://www.youtube.com/watch?v=g44aTI7qiws&t=146s)** — you can increase your cognitive function memory by just under 8% by sniffing rosemary oil.
+- **[02:33](https://www.youtube.com/watch?v=g44aTI7qiws&t=153s)** — Wow. And apparently there's something in that oil that increases acetylcholine,
+- **[02:38](https://www.youtube.com/watch?v=g44aTI7qiws&t=158s)** — which is a neurotransmitter in your brain.
+- **[02:40](https://www.youtube.com/watch?v=g44aTI7qiws&t=160s)** — I also found three more papers, 2013, 2021, and 2017,
+- **[02:47](https://www.youtube.com/watch?v=g44aTI7qiws&t=167s)** — showing that sniffing lavender oil can significantly lower your anxiety and increase your mood,
+- **[02:55](https://www.youtube.com/watch?v=g44aTI7qiws&t=175s)** — as well as increasing your sleep quality, decreasing daytime sleepiness,
+- **[02:59](https://www.youtube.com/watch?v=g44aTI7qiws&t=179s)** — and even reducing post-surgical pain.
+- **[03:02](https://www.youtube.com/watch?v=g44aTI7qiws&t=182s)** — But when you sniff peppermint oil, you may find an increase in sustained attention,
+- **[03:08](https://www.youtube.com/watch?v=g44aTI7qiws&t=188s)** — better reaction time, better respiratory efficiency, and less tension headaches.
+- **[03:13](https://www.youtube.com/watch?v=g44aTI7qiws&t=193s)** — And then you have eucalyptus oil.
+- **[03:14](https://www.youtube.com/watch?v=g44aTI7qiws&t=194s)** — When you sniff that, apparently you have the most potent effect on your respiratory centers,
+- **[03:20](https://www.youtube.com/watch?v=g44aTI7qiws&t=200s)** — significantly decreasing coughing, improving COPD, chronic obstructive pulmonary disease,
+- **[03:26](https://www.youtube.com/watch?v=g44aTI7qiws&t=206s)** — as well as decreasing mucus in the respiratory areas.
+- **[03:30](https://www.youtube.com/watch?v=g44aTI7qiws&t=210s)** — And then lastly, with frankincense oil, they found that it can actually decrease neuroinflammation,
+- **[03:35](https://www.youtube.com/watch?v=g44aTI7qiws&t=215s)** — inflammation in your brain, which can directly improve your memory scores,
+- **[03:40](https://www.youtube.com/watch?v=g44aTI7qiws&t=220s)** — as well as decreasing anxiety.
+- **[03:42](https://www.youtube.com/watch?v=g44aTI7qiws&t=222s)** — I mean, you don't need to consume it. You can just smell it.
+- **[03:44](https://www.youtube.com/watch?v=g44aTI7qiws&t=224s)** — It probably lasts longer.
+- **[03:45](https://www.youtube.com/watch?v=g44aTI7qiws&t=225s)** — This next one is actually interesting. You might want to try it.
+- **[03:48](https://www.youtube.com/watch?v=g44aTI7qiws&t=228s)** — This was a study in 2018 in the Journal of Physiological Anthropology.
+- **[03:54](https://www.youtube.com/watch?v=g44aTI7qiws&t=234s)** — By wearing dry, warm socks to bed, you can actually increase your sleep 32 minutes longer
+- **[04:01](https://www.youtube.com/watch?v=g44aTI7qiws&t=241s)** — and improve the quality of sleep just by dry, warm socks.
+- **[04:07](https://www.youtube.com/watch?v=g44aTI7qiws&t=247s)** — And I'm sure that would really even work better with someone with cold feet.
+- **[04:10](https://www.youtube.com/watch?v=g44aTI7qiws&t=250s)** — Then we come into something else called forest bathing.
+- **[04:13](https://www.youtube.com/watch?v=g44aTI7qiws&t=253s)** — I did a video on this a long time ago.
+- **[04:15](https://www.youtube.com/watch?v=g44aTI7qiws&t=255s)** — So just by being out in the forest, 20 to 30 minutes, smelling the trees, touching the leaves,
+- **[04:21](https://www.youtube.com/watch?v=g44aTI7qiws&t=261s)** — listening to the birds, significant improvement, 26% increase in natural killer cells in your immune system.
+- **[04:29](https://www.youtube.com/watch?v=g44aTI7qiws&t=269s)** — Those are the cells that not only kill cancer, but they kill viruses.
+- **[04:34](https://www.youtube.com/watch?v=g44aTI7qiws&t=274s)** — Your mood gets elevated. The blood pressure comes down significantly.
+- **[04:38](https://www.youtube.com/watch?v=g44aTI7qiws&t=278s)** — Your cortisol can decrease by 27%.
+- **[04:40](https://www.youtube.com/watch?v=g44aTI7qiws&t=280s)** — I think the results are based on certain volatile vapor chemicals that come off of trees,
+- **[04:47](https://www.youtube.com/watch?v=g44aTI7qiws&t=287s)** — as well as just being in that environment.
+- **[04:50](https://www.youtube.com/watch?v=g44aTI7qiws&t=290s)** — You're kind of extracting all this stress when you put your attention in this new environment.
+- **[04:55](https://www.youtube.com/watch?v=g44aTI7qiws&t=295s)** — The next one is actually singing in the shower.
+- **[04:59](https://www.youtube.com/watch?v=g44aTI7qiws&t=299s)** — Now, a lot of people sing in the shower, but they don't realize the health benefits of singing in the shower.
+- **[05:04](https://www.youtube.com/watch?v=g44aTI7qiws&t=304s)** — By singing loudly in the shower for 5 to 10 minutes,
+- **[05:07](https://www.youtube.com/watch?v=g44aTI7qiws&t=307s)** — and this is from a paper in 2018, European Journal of Applied Physiology.
+- **[05:12](https://www.youtube.com/watch?v=g44aTI7qiws&t=312s)** — You can actually increase a certain immune cell by 37%.
+- **[05:15](https://www.youtube.com/watch?v=g44aTI7qiws&t=315s)** — I'm not going to get into the tactical name of that immune cell,
+- **[05:18](https://www.youtube.com/watch?v=g44aTI7qiws&t=318s)** — but I will say it strengthens your immune system and it's comparable to taking vitamin C.
+- **[05:22](https://www.youtube.com/watch?v=g44aTI7qiws&t=322s)** — And at the same time, it shows that it can decrease your cortisol by 19%.
+- **[05:25](https://www.youtube.com/watch?v=g44aTI7qiws&t=325s)** — That's the stress hormone and increase your lung function by 14%.
+- **[05:29](https://www.youtube.com/watch?v=g44aTI7qiws&t=329s)** — So the next time you're singing in the shower, realize you're improving your immune system and you're reducing your stress.
+- **[05:34](https://www.youtube.com/watch?v=g44aTI7qiws&t=334s)** — If you found that interesting, I have more health hacks in this video right here. Check them out.

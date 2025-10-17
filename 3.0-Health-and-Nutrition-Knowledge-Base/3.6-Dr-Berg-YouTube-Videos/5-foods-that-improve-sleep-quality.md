@@ -1,0 +1,100 @@
+# 5 Foods That Improve Sleep Quality
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=Xs1i6QzoB6o](https://www.youtube.com/watch?v=Xs1i6QzoB6o)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=0s)** — There are five foods that you need to know about to improve your sleep quality.
+- **[00:04](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=4s)** — This is one of those videos that you want to save and keep watching over and over just
+- **[00:08](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=8s)** — to remind yourself of these key things to help you sleep.
+- **[00:11](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=11s)** — I personally had a sleep problem extremely bad for well over a decade and I wish I
+- **[00:17](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=17s)** — would have known what I'm going to tell you right now.
+- **[00:19](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=19s)** — The big thing about sleep is to optimize a hormone called melatonin. Melatonin is
+- **[00:24](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=24s)** — a hormone that helps you go to sleep and get into some of these deep restful waves
+- **[00:29](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=29s)** — of sleep. More importantly than boosting melatonin, it's important to know how to
+- **[00:34](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=34s)** — avoid things that reduce your melatonin.
+- **[00:37](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=37s)** — The first thing has to do with your temperature in your room.
+- **[00:40](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=40s)** — If you're going to bed and your temperature is 75 degrees Fahrenheit or warmer,
+- **[00:47](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=47s)** — you're going to have a significantly lowered melatonin level as well as a lowered REM level.
+- **[00:53](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=53s)** — The quality of sleep is going to be really crappy.
+- **[00:56](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=56s)** — The best temperature to optimize melatonin between 60 and 69 degrees Fahrenheit with
+- **[01:03](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=63s)** — the optimum perfect number at 65 degrees Fahrenheit.
+- **[01:07](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=67s)** — If your room is at that temperature, your melatonin will be optimized.
+- **[01:11](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=71s)** — Even your body's core temperature, which should be 98.6 between 12 o'clock and 5 o'clock,
+- **[01:18](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=78s)** — your core temperature goes down between 1 and 2 degrees.
+- **[01:22](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=82s)** — People that have insomnia don't have that mechanism where their body gets cooler by
+- **[01:29](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=89s)** — 1 to 2 degrees. A lot of you watching are doing intermittent fasting.
+- **[01:32](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=92s)** — And you probably watched my videos in the past where I told you to get up in the
+- **[01:36](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=96s)** — morning, skip your breakfast, have your first meal at 12 and your last meal at
+- **[01:41](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=101s)** — 6. But here's my conclusion on that. I think initially it's very good to do that,
+- **[01:45](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=105s)** — especially if you're trying to lose weight and you're trying to correct insulin resistance
+- **[01:48](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=108s)** — because here you are, you fasted all night, might as well ride the wave, go as long
+- **[01:53](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=113s)** — as you can, and then have your first meal. But after you do it for a period of time,
+- **[01:57](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=117s)** — let's say you do this for over a year or even six months and you kind of correct
+- **[02:01](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=121s)** — this insulin resistance, you may want to experiment to have your first meal in the
+- **[02:06](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=126s)** — morning and your second meal at lunch and maybe not even have a dinner because
+- **[02:11](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=131s)** — one thing that will disrupt your sleep is sleeping on a very large meal.
+- **[02:16](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=136s)** — What I've been doing recently and it seems to work really good is to have the two meals in
+- **[02:22](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=142s)** — the first part of the day. This also gives you a little more energy through the day,
+- **[02:27](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=147s)** — not at night. So why would you want to have a large meal in the evening,
+- **[02:31](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=151s)** — which you're just going to sleep on. This next point has to do with blue light. If we
+- **[02:36](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=156s)** — look at the spectrum of light, part of that spectrum is the blue light. That is the wave
+- **[02:42](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=162s)** — to filter out in the evening. Why? Because blue light inhibits or suppresses that sleep hormone
+- **[02:50](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=170s)** — melatonin that helps you go to sleep. Probably the worst is the flipping through the social
+- **[02:56](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=176s)** — media on your cell phone before you go to bed. There is a big difference between the TV
+- **[03:01](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=181s)** — blue light and close-up cell phone blue light. The blue light in your cell phone is much
+- **[03:08](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=188s)** — stronger. So if you are going to watch TV at night, that's fine. But just turn the lights out
+- **[03:13](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=193s)** — around the TV so you can darken things. And if you have to be in your cell phone,
+- **[03:17](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=197s)** — you can wear these blue light filtered glasses. You have to realize that blue light not only
+- **[03:22](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=202s)** — affects melatonin, it kind of wakes you up. And blue light also messes with your eyes.
+- **[03:27](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=207s)** — It can create damage in the eyes. So just be aware of blue light, turn the lights down a
+- **[03:33](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=213s)** — little bit. It gets later in the day. Another way to build up your melatonin is through
+- **[03:38](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=218s)** — exposing yourself to the actual sun during the day. The vitamin D from the sun can also help
+- **[03:45](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=225s)** — indirectly increase your melatonin and your sleep cycles. But I tell you, if you have
+- **[03:50](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=230s)** — sleep apnea or you have jet lag or you're on rotational shifts, you should be consuming
+- **[03:56](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=236s)** — vitamin D as well because vitamin D is really important in kind of reestablishing those
+- **[04:02](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=242s)** — circadian waves. Now there's one more point about cell phones. There's something called EMF,
+- **[04:07](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=247s)** — electromagnetic fields that come off this. It's like invisible radiation. Just as a very side
+- **[04:12](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=252s)** — note, I will do a full video on this, but this is the device that I use. It's the trifield.
+- **[04:17](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=257s)** — So you can turn this on and start testing the exposure to various
+- **[04:23](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=263s)** — things to see what is giving you all these EMF waves that could greatly inhibit your sleep.
+- **[04:29](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=269s)** — I have tested my entire house. I go through the computer. I go through the area where I'm
+- **[04:35](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=275s)** — sleeping, the walls that are close to my bed to make sure there was no extra frequencies
+- **[04:41](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=281s)** — that were affecting me. And I found several areas that were really messing me up.
+- **[04:46](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=286s)** — And one was just in the back wall where my head was and the headboard,
+- **[04:50](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=290s)** — the wires were crossed. So I had an electrician come in there and fix that.
+- **[04:54](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=294s)** — And that created a huge improvement in my arrhythmias that I had. I started getting
+- **[05:00](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=300s)** — palpitations in my heart. And I felt like when I went to sleep, it was like my heart was like
+- **[05:05](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=305s)** — working harder. And it was those EMF waves. Amazing. There's a few more things that inhibit
+- **[05:11](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=311s)** — melatonin. Alcohol, caffeine, nicotine, medications, especially the antidepressants.
+- **[05:18](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=318s)** — And also a high carb diet will inhibit the melatonin. And if you exercise like three
+- **[05:24](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=324s)** — hours before you go to sleep. Now let's get to the five foods that can help you increase
+- **[05:29](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=329s)** — melatonin. The first food we're going to talk about is tart cherries. Now there's two different
+- **[05:35](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=335s)** — studies that I looked at. One was tart cherry juice, like one ounce before bed. And the
+- **[05:41](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=341s)** — other one was just consuming tart cherries twice a day. Tart cherries, there actually is
+- **[05:46](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=346s)** — melatonin in there. There's also something called tryptophan. Tryptophan turns into
+- **[05:52](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=352s)** — which then turns into melatonin. Apparently giving some people 84 more minutes of sleep
+- **[05:59](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=359s)** — in a study that was done with people over age 50. Number two is kiwis. Consuming two kiwis a day
+- **[06:07](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=367s)** — actually increase serotonin. That's that precursor to melatonin. After four weeks of
+- **[06:13](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=373s)** — consuming kiwis, there was a significant improvement in quality of sleep, length of
+- **[06:19](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=379s)** — waking up feeling refreshed, and speed of going to sleep. Number three fatty fish like salmon,
+- **[06:26](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=386s)** — tuna, and trout. All three of these can help increase melatonin. Number four kefir. Kefir
+- **[06:33](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=393s)** — is like yogurt but it has even more microbes. It survives the stomach acids much better. And
+- **[06:40](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=400s)** — don't get the flavored one. Get the unflavored whole milk grass-fed. Whether you do you know
+- **[06:46](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=406s)** — goats milk, sheep milk. So you want to get the kefir and you can blend that with things
+- **[06:52](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=412s)** — rich in polyphenols like berries. I like the blueberry. Sometimes I'll do raspberry or blackberry.
+- **[06:59](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=419s)** — And when you drink it, you're feeding your microbiome polyphenols which they're going to
+- **[07:04](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=424s)** — thank you for by helping you sleep. The last food that I'm going to recommend is sauerkraut.
+- **[07:09](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=429s)** — Now the microbes in raw sauerkraut can help you sleep greatly. The cabbage also has tryptophan.
+- **[07:16](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=436s)** — It has things to help your gut. It also increases something called GABA. GABA is a kind of a
+- **[07:23](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=443s)** — neurotransmitter that calms you down. It's going to help you sleep. And as we age our GABA goes
+- **[07:29](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=449s)** — down. Sauerkraut has certain properties to help you reduce stress and cortisol. Sauerkraut
+- **[07:34](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=454s)** — also has vitamin C that's been associated with better sleep. And lastly, don't forget about
+- **[07:40](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=460s)** — your breathing while you're sleeping. Breathe in slowly and breathe out slowly through your
+- **[07:46](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=466s)** — nose. So just by focusing on the breathing can kind of pull you out of this sympathetic
+- **[07:51](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=471s)** — stress state. So I have videos on that as well. In fact, that might be a really good
+- **[07:56](https://www.youtube.com/watch?v=Xs1i6QzoB6o&t=476s)** — one to watch right now. I'll put it up right here. Check it out.

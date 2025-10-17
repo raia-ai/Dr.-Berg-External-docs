@@ -8,9 +8,9 @@
 
 This GitBook structure contains the complete knowledge base for Dr. Berg Nutritionals' internal customer support operations. It has been specifically designed to optimize AI agent (Sharon) vector store retrieval while maintaining intuitive navigation for human customer service agents.
 
-**Total Documents:** 6,549 Markdown files  
+**Total Documents:** 7,275 Markdown files  
 **Last Updated:** October 17, 2025  
-**Version:** 1.0
+**Version:** 1.1
 
 ---
 
@@ -32,9 +32,11 @@ Comprehensive educational content on Dr. Berg's health approach.
 - **3.3 Weight Loss and Fat Burning** - Placeholder for future content
 - **3.4 Nutritional Science** - 3,395 articles on vitamins, minerals, and nutrition
 - **3.5 Specific Health Topics** - Placeholder for future content
+- **3.6 Dr. Berg YouTube Videos** - 609 video links with direct YouTube URLs
 
 ### 4.0 Product Information
 Product catalog with detailed specifications and usage guidelines.
+- **4.1 Product Catalog** - 116 product pages with descriptions and details
 
 
 
@@ -49,6 +51,8 @@ Product catalog with detailed specifications and usage guidelines.
 **Need an SOP?** → Navigate to `2.0-Customer-Service-and-Operations/2.2-Standard-Operating-Procedures-SOPs/`
 
 **Health question?** → Navigate to `3.0-Health-and-Nutrition-Knowledge-Base/` and select the appropriate subcategory
+
+**Dr. Berg video?** → Navigate to `3.0-Health-and-Nutrition-Knowledge-Base/3.6-Dr-Berg-YouTube-Videos/`
 
 **Product information?** → Navigate to `4.0-Product-Information/4.1-Product-Catalog/`
 
@@ -93,6 +97,19 @@ According to document 2.1.1 (Refunds and Returns), [information here].
 Source: 2.1.1-Refunds-and-Returns.md
 ```
 
+### YouTube Video Linking
+
+When recommending Dr. Berg videos, the AI can:
+1. Search the 3.6-Dr-Berg-YouTube-Videos section for relevant topics
+2. Provide the direct YouTube URL to the user
+3. Cite the video title and link
+
+Example:
+```
+For more information, watch Dr. Berg's video: "What is Healthy Keto?"
+https://www.youtube.com/watch?v=...
+```
+
 ---
 
 ## File Naming Convention
@@ -116,6 +133,7 @@ This knowledge base consolidates information from:
 - Customer service policies
 - Product documentation
 - Dr. Berg's health philosophy documents
+- YouTube video index (609 videos)
 
 All duplicate content has been identified and eliminated to maintain a single source of truth.
 
@@ -143,4 +161,3 @@ For complete implementation details, see:
 **Maintained by:** Dr. Berg Nutritionals Support Team  
 **Framework Design:** Manus AI  
 **Questions?** Contact your team lead or system administrator
-

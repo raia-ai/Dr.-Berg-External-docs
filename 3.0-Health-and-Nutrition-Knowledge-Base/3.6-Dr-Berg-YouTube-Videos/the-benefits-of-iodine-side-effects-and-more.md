@@ -1,0 +1,120 @@
+# The Benefits of Iodine, Side-Effects and More
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=IGovSgF_h4A](https://www.youtube.com/watch?v=IGovSgF_h4A)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=IGovSgF_h4A&t=0s)** — Today I'm going to talk about the benefits, the side effects, and the dangers of alkaline water.
+- **[00:06](https://www.youtube.com/watch?v=IGovSgF_h4A&t=6s)** — Now naturally when you're drinking water from a spring or from a well or an artesian well,
+- **[00:12](https://www.youtube.com/watch?v=IGovSgF_h4A&t=12s)** — it's going to be alkaline. And it's alkaline because of the minerals, calcium, magnesium,
+- **[00:17](https://www.youtube.com/watch?v=IGovSgF_h4A&t=17s)** — which are both alkaline. But definitely people have this idea that anything acid is unhealthy
+- **[00:23](https://www.youtube.com/watch?v=IGovSgF_h4A&t=23s)** — or will cause sickness and anything alkaline is healthy, which is absolutely not true because in
+- **[00:31](https://www.youtube.com/watch?v=IGovSgF_h4A&t=31s)** — our bodies we have a lot of different acids. Nucleic acids, as in your DNA. You have
+- **[00:36](https://www.youtube.com/watch?v=IGovSgF_h4A&t=36s)** — hydrochloric acid as your stomach acid. You even have lactic acid that's in your colon to help you
+- **[00:42](https://www.youtube.com/watch?v=IGovSgF_h4A&t=42s)** — digest. You have amino acids and fatty acids. So just because something is acid doesn't make
+- **[00:47](https://www.youtube.com/watch?v=IGovSgF_h4A&t=47s)** — it bad. Okay, we have this scale of acidity and alkalinity. And right in the center is
+- **[00:53](https://www.youtube.com/watch?v=IGovSgF_h4A&t=53s)** — seven which is neutral. And distilled water is neutral. And as the numbers go up, okay, above
+- **[01:00](https://www.youtube.com/watch?v=IGovSgF_h4A&t=60s)** — seven, okay, so you have seven, eight, nine, ten, eleven, twelve, all the way up to fourteen.
+- **[01:05](https://www.youtube.com/watch?v=IGovSgF_h4A&t=65s)** — Things are becoming more alkaline. And just so you know at the very top of the list,
+- **[01:09](https://www.youtube.com/watch?v=IGovSgF_h4A&t=69s)** — like fourteen, which is extremely alkaline, you have things like drain cleaner, bleach,
+- **[01:17](https://www.youtube.com/watch?v=IGovSgF_h4A&t=77s)** — which is I think thirteen, and soap, which is, you know, it could be anywhere between eight and
+- **[01:23](https://www.youtube.com/watch?v=IGovSgF_h4A&t=83s)** — ten. So those are all alkaline. Then as we go lower, we get things like lemon juice and
+- **[01:29](https://www.youtube.com/watch?v=IGovSgF_h4A&t=89s)** — apple cider vinegar and tomatoes and of course soda. Those are all acidic. But when we talk
+- **[01:36](https://www.youtube.com/watch?v=IGovSgF_h4A&t=96s)** — about pH in our body, most of the time we're referencing our blood pH, which normally should
+- **[01:44](https://www.youtube.com/watch?v=IGovSgF_h4A&t=104s)** — be slightly alkaline. So if neutral was seven, your blood is 7.34 to 7.45. And I think the
+- **[01:54](https://www.youtube.com/watch?v=IGovSgF_h4A&t=114s)** — biggest myth about pH is that it's very difficult to change your pH by taking something.
+- **[02:00](https://www.youtube.com/watch?v=IGovSgF_h4A&t=120s)** — And I'm talking about changing the pH of your blood. So whether someone's eating more
+- **[02:04](https://www.youtube.com/watch?v=IGovSgF_h4A&t=124s)** — alkaline food or more acidic food, that pH in your blood is probably unlikely to change.
+- **[02:10](https://www.youtube.com/watch?v=IGovSgF_h4A&t=130s)** — Our body tends to control and regulate the pHs of the different parts of our body. So for example,
+- **[02:17](https://www.youtube.com/watch?v=IGovSgF_h4A&t=137s)** — your saliva should be slightly alkaline. Your blood should be slightly alkaline. Your stomach
+- **[02:21](https://www.youtube.com/watch?v=IGovSgF_h4A&t=141s)** — should be very, very, very acidic. But your small intestine that goes right after the stomach
+- **[02:27](https://www.youtube.com/watch?v=IGovSgF_h4A&t=147s)** — should be alkaline. Yet the large bowel should be acidic. Not like the stomach,
+- **[02:34](https://www.youtube.com/watch?v=IGovSgF_h4A&t=154s)** — but slightly acidic. Of course, we have the gallbladder in bile, which should be alkaline.
+- **[02:39](https://www.youtube.com/watch?v=IGovSgF_h4A&t=159s)** — So we don't want to alkalize the body. Okay, that's not a smart thing to do. And primarily,
+- **[02:46](https://www.youtube.com/watch?v=IGovSgF_h4A&t=166s)** — the reason for that is because when you take something that's alkaline, and specifically
+- **[02:50](https://www.youtube.com/watch?v=IGovSgF_h4A&t=170s)** — I'm talking about alkaline water, you are going to alter the stomach's pH, which should be
+- **[02:56](https://www.youtube.com/watch?v=IGovSgF_h4A&t=176s)** — between one and three, very acidic. And doing that is going to come with a package. Like you
+- **[03:02](https://www.youtube.com/watch?v=IGovSgF_h4A&t=182s)** — may end up with heartburn, acid reflux, gas, GERD. You might have an increased risk of
+- **[03:09](https://www.youtube.com/watch?v=IGovSgF_h4A&t=189s)** — infection. You might have hair loss. You might have arrhythmias. And I'm not talking about
+- **[03:13](https://www.youtube.com/watch?v=IGovSgF_h4A&t=193s)** — alkaline water from the spring or artesian well or some type of water that you would get
+- **[03:19](https://www.youtube.com/watch?v=IGovSgF_h4A&t=199s)** — naturally with the minerals. And I'm mainly talking about a water that's created maybe from
+- **[03:23](https://www.youtube.com/watch?v=IGovSgF_h4A&t=203s)** — a machine or something that has nothing to do with minerals. So there's a machine out
+- **[03:29](https://www.youtube.com/watch?v=IGovSgF_h4A&t=209s)** — there that you can get that alkalizes the water. And they don't add minerals to it.
+- **[03:33](https://www.youtube.com/watch?v=IGovSgF_h4A&t=213s)** — They put electricity through the water and they alter the water and take out the acidic part,
+- **[03:40](https://www.youtube.com/watch?v=IGovSgF_h4A&t=220s)** — leaving this water very alkaline. I remember in practice once testing someone's urine
+- **[03:45](https://www.youtube.com/watch?v=IGovSgF_h4A&t=225s)** — after they used this machine for about two weeks. And the pH of their urine, which
+- **[03:50](https://www.youtube.com/watch?v=IGovSgF_h4A&t=230s)** — normally should be acidic, was like nine, which is extremely alkaline for your urine. And
+- **[03:58](https://www.youtube.com/watch?v=IGovSgF_h4A&t=238s)** — so this will really put them in a situation where they're very susceptible to having
+- **[04:02](https://www.youtube.com/watch?v=IGovSgF_h4A&t=242s)** — infections. They can't kill off microbes that well. So there is some huge side effects
+- **[04:06](https://www.youtube.com/watch?v=IGovSgF_h4A&t=246s)** — from drinking a lot of extremely alkaline water. But there's not going to be any side
+- **[04:11](https://www.youtube.com/watch?v=IGovSgF_h4A&t=251s)** — effects from drinking your spring water that's alkaline or some bottled spring water that has
+- **[04:16](https://www.youtube.com/watch?v=IGovSgF_h4A&t=256s)** — a lot of minerals in it because it's made alkaline in a natural way. So here's some
+- **[04:21](https://www.youtube.com/watch?v=IGovSgF_h4A&t=261s)** — missing information that you need to know. The pH in your stomach should be between one and
+- **[04:26](https://www.youtube.com/watch?v=IGovSgF_h4A&t=266s)** — three. Very, very acidic. And the purpose of that acidity is to help you break down protein,
+- **[04:31](https://www.youtube.com/watch?v=IGovSgF_h4A&t=271s)** — is to help you absorb minerals, also absorb B12, as well as to kill off pathogens. Right? I'm
+- **[04:42](https://www.youtube.com/watch?v=IGovSgF_h4A&t=282s)** — talking about bacteria, fungus, parasites that could be in your food. Okay, it's kind of a
+- **[04:47](https://www.youtube.com/watch?v=IGovSgF_h4A&t=287s)** — natural barrier, your immune barrier. And so as we age, we lose this stomach acid. People
+- **[04:53](https://www.youtube.com/watch?v=IGovSgF_h4A&t=293s)** — that are taking an acids are putting their pH in their stomach in the wrong direction,
+- **[05:00](https://www.youtube.com/watch?v=IGovSgF_h4A&t=300s)** — because the actual cause of heartburn, GERD, an acid reflux, most of the time is this. Your
+- **[05:06](https://www.youtube.com/watch?v=IGovSgF_h4A&t=306s)** — stomach acids are not strong enough and that valve at the top of the stomach is not closing.
+- **[05:12](https://www.youtube.com/watch?v=IGovSgF_h4A&t=312s)** — So you're regurgitating acids. The thing to do to correct this is to take more acids,
+- **[05:18](https://www.youtube.com/watch?v=IGovSgF_h4A&t=318s)** — not to take less acids or not to alkalize the stomach with anything that just makes it
+- **[05:23](https://www.youtube.com/watch?v=IGovSgF_h4A&t=323s)** — worse. So if we alkalize the stomach, we start developing a condition called hypochlorhydria,
+- **[05:32](https://www.youtube.com/watch?v=IGovSgF_h4A&t=332s)** — or like no acid in your stomach, which is called a chlorhydria. And in that situation,
+- **[05:38](https://www.youtube.com/watch?v=IGovSgF_h4A&t=338s)** — not only are you not going to be able to digest protein, so these undigested protein
+- **[05:43](https://www.youtube.com/watch?v=IGovSgF_h4A&t=343s)** — particles get into the small intestine, into the large intestine, and it starts to affect
+- **[05:49](https://www.youtube.com/watch?v=IGovSgF_h4A&t=349s)** — the immune system in a negative way. You may start developing allergies. There's an interesting
+- **[05:55](https://www.youtube.com/watch?v=IGovSgF_h4A&t=355s)** — study done on mice where they got rid of the stomach acid, fed them fish, and they
+- **[06:00](https://www.youtube.com/watch?v=IGovSgF_h4A&t=360s)** — developed allergies to fish protein, which is interesting. So not being able to digest protein
+- **[06:05](https://www.youtube.com/watch?v=IGovSgF_h4A&t=365s)** — can increase risk of getting allergies, can create gas, and all sorts of like things like
+- **[06:11](https://www.youtube.com/watch?v=IGovSgF_h4A&t=371s)** — constipation. The other important thing about stomach acids is to be able to absorb iron,
+- **[06:17](https://www.youtube.com/watch?v=IGovSgF_h4A&t=377s)** — calcium, magnesium, zinc, potassium. Without having stomach acid, you could easily be
+- **[06:23](https://www.youtube.com/watch?v=IGovSgF_h4A&t=383s)** — deficient in these minerals, not to mention the vitamin B12. So all this can create anemia
+- **[06:29](https://www.youtube.com/watch?v=IGovSgF_h4A&t=389s)** — and it can lead to many other issues. And of course, this acid kills off microbes. So if
+- **[06:35](https://www.youtube.com/watch?v=IGovSgF_h4A&t=395s)** — you can't kill off microbes, you end up with microbes in your small intestine. Okay? And that
+- **[06:42](https://www.youtube.com/watch?v=IGovSgF_h4A&t=402s)** — term is called small intestinal bacterial overgrowth, which is a pretty nasty condition. So
+- **[06:49](https://www.youtube.com/watch?v=IGovSgF_h4A&t=409s)** — that means every time you eat, you're going to feel bloated and it usually is created because
+- **[06:53](https://www.youtube.com/watch?v=IGovSgF_h4A&t=413s)** — your stomach acid is not strong. The side effects from people taking antacids are the same
+- **[06:59](https://www.youtube.com/watch?v=IGovSgF_h4A&t=419s)** — as those who have not enough stomach acid. So those are some of the side effects of
+- **[07:05](https://www.youtube.com/watch?v=IGovSgF_h4A&t=425s)** — alkaline water. Now, should we drink acidic water? Well, personally, I found that when I
+- **[07:12](https://www.youtube.com/watch?v=IGovSgF_h4A&t=432s)** — drink acidic water, it's slightly acidic and I actually can digest better, especially if I add
+- **[07:17](https://www.youtube.com/watch?v=IGovSgF_h4A&t=437s)** — a little teaspoon of either apple cider vinegar or maybe some lemon juice. Now, since we're on
+- **[07:22](https://www.youtube.com/watch?v=IGovSgF_h4A&t=442s)** — the topic of pH, I want to just talk about one more thing. If you actually develop a
+- **[07:27](https://www.youtube.com/watch?v=IGovSgF_h4A&t=447s)** — condition called alkalosis, which your pH is definitely way too alkaline. So here are the
+- **[07:33](https://www.youtube.com/watch?v=IGovSgF_h4A&t=453s)** — side effects from having alkalosis. Number one, you are going to have low potassium.
+- **[07:38](https://www.youtube.com/watch?v=IGovSgF_h4A&t=458s)** — You're going to have low calcium. That calcium is going to bind to protein. Now this calcium is
+- **[07:45](https://www.youtube.com/watch?v=IGovSgF_h4A&t=465s)** — unavailable for the muscle contraction, relaxation effect. And you're going to start having these
+- **[07:51](https://www.youtube.com/watch?v=IGovSgF_h4A&t=471s)** — weird twitches. It's called tetany. Sometimes it's underneath the eye. Sometimes it's in the
+- **[07:56](https://www.youtube.com/watch?v=IGovSgF_h4A&t=476s)** — arm. It could be anywhere in the body. It can also affect the heart rhythm. You can start
+- **[08:01](https://www.youtube.com/watch?v=IGovSgF_h4A&t=481s)** — developing heart arrhythmias. The muscle is greatly affected in an alkalosis state. So
+- **[08:07](https://www.youtube.com/watch?v=IGovSgF_h4A&t=487s)** — the muscle is going to be in spasm. It's going to be crampy. It's going to be in pain. It's
+- **[08:12](https://www.youtube.com/watch?v=IGovSgF_h4A&t=492s)** — going to be weak. But overall, you're going to have some really abnormal sensations in the body,
+- **[08:17](https://www.youtube.com/watch?v=IGovSgF_h4A&t=497s)** — both nerve-wise and muscle-wise. And it can even get so severe that you can go into either
+- **[08:23](https://www.youtube.com/watch?v=IGovSgF_h4A&t=503s)** — a seizure or a coma. We don't want alkalosis and we don't want to be too acidic. We want
+- **[08:29](https://www.youtube.com/watch?v=IGovSgF_h4A&t=509s)** — to have the right pH for the right part of your body. Having the right pH, especially in
+- **[08:33](https://www.youtube.com/watch?v=IGovSgF_h4A&t=513s)** — your stomachs, will allow certain enzymes to work. The enzyme that helps you digest protein
+- **[08:40](https://www.youtube.com/watch?v=IGovSgF_h4A&t=520s)** — is not activated unless you have the strong acid. And the same thing with the small
+- **[08:45](https://www.youtube.com/watch?v=IGovSgF_h4A&t=525s)** — intestine. Certain enzymes, like for example for carbohydrates, are activated when it's
+- **[08:51](https://www.youtube.com/watch?v=IGovSgF_h4A&t=531s)** — alkaline. But like I said before, different parts of your body require different pHs.
+- **[08:56](https://www.youtube.com/watch?v=IGovSgF_h4A&t=536s)** — You know, where I live right now, I actually have spring water. And it comes from a spring.
+- **[09:01](https://www.youtube.com/watch?v=IGovSgF_h4A&t=541s)** — And we recently drilled for water at a different location. And they had to go, I think,
+- **[09:09](https://www.youtube.com/watch?v=IGovSgF_h4A&t=549s)** — 130 feet below rock. They had to drill through rock, like granite, to find this water. And so
+- **[09:17](https://www.youtube.com/watch?v=IGovSgF_h4A&t=557s)** — I asked the guy, I said, like, where does that water come from? And he said, well,
+- **[09:21](https://www.youtube.com/watch?v=IGovSgF_h4A&t=561s)** — we don't really know. Some people say it comes from the rain and snow that melts
+- **[09:27](https://www.youtube.com/watch?v=IGovSgF_h4A&t=567s)** — through and it seeps through the soil and it gets into the earth and it kind of forms these little
+- **[09:32](https://www.youtube.com/watch?v=IGovSgF_h4A&t=572s)** — pools and pockets. But my thought is, how does it get through these rock formations? And so
+- **[09:38](https://www.youtube.com/watch?v=IGovSgF_h4A&t=578s)** — what I learned about that it's still a theory and where this water comes from. So it got me
+- **[09:43](https://www.youtube.com/watch?v=IGovSgF_h4A&t=583s)** — curious. So I did another deep dive into where our water really comes from. And I found some
+- **[09:48](https://www.youtube.com/watch?v=IGovSgF_h4A&t=588s)** — really interesting information. They actually found the chemistry of water, which is not in the
+- **[09:53](https://www.youtube.com/watch?v=IGovSgF_h4A&t=593s)** — form. It was basically hydrogen and oxygen embedded into a mineral. And apparently this
+- **[09:59](https://www.youtube.com/watch?v=IGovSgF_h4A&t=599s)** — came from a volcano. So it was very, very deep. They actually calculated it to be about 400
+- **[10:08](https://www.youtube.com/watch?v=IGovSgF_h4A&t=608s)** — miles deep into the earth. And apparently, which is even more interesting, there's enough
+- **[10:12](https://www.youtube.com/watch?v=IGovSgF_h4A&t=612s)** — water down there, or at least pre-water that can turn into water, to literally fill up an
+- **[10:18](https://www.youtube.com/watch?v=IGovSgF_h4A&t=618s)** — So the advantage of these minerals in water, okay, give us some additional health benefits.
+- **[10:25](https://www.youtube.com/watch?v=IGovSgF_h4A&t=625s)** — But only if they're created in a natural way, not from a machine that alkalizes the water,
+- **[10:31](https://www.youtube.com/watch?v=IGovSgF_h4A&t=631s)** — which omits that help from the minerals. Now, since we're on the topic of water,
+- **[10:36](https://www.youtube.com/watch?v=IGovSgF_h4A&t=636s)** — if you have not seen my video on carbonation in water, I put that video up right here. Check it out.

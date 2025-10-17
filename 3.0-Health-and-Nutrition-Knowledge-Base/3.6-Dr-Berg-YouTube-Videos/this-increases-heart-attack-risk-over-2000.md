@@ -1,0 +1,126 @@
+# THIS Increases Heart Attack Risk over 2000%
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=18ZKgshcwi4](https://www.youtube.com/watch?v=18ZKgshcwi4)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=18ZKgshcwi4&t=0s)** — This can increase the risk of a heart attack over 2000% within the first 24 hours.
+- **[00:07](https://www.youtube.com/watch?v=18ZKgshcwi4&t=7s)** — Now you're probably wondering what am I talking about? What increases the risk of heart attacks by that much?
+- **[00:12](https://www.youtube.com/watch?v=18ZKgshcwi4&t=12s)** — Could it be bad diet? No. Could it be smoking? No. What about alcohol? No.
+- **[00:18](https://www.youtube.com/watch?v=18ZKgshcwi4&t=18s)** — This trigger that I'm about to talk about also increases the risk of getting viral infections and autoimmune diseases.
+- **[00:26](https://www.youtube.com/watch?v=18ZKgshcwi4&t=26s)** — So what is this trigger? It's actually stress. But the type of stress that increases heart attacks the most is losses.
+- **[00:33](https://www.youtube.com/watch?v=18ZKgshcwi4&t=33s)** — A loss of a significant person in your life. And they actually have a name for it. It's called a broken heart syndrome.
+- **[00:39](https://www.youtube.com/watch?v=18ZKgshcwi4&t=39s)** — What they found was that when you go through a loss, your risk for heart attack within the first 24 hours goes up significantly.
+- **[00:45](https://www.youtube.com/watch?v=18ZKgshcwi4&t=45s)** — Within the first week, your risk for heart attacks are 6x. That's 600%.
+- **[00:50](https://www.youtube.com/watch?v=18ZKgshcwi4&t=50s)** — So this got me thinking into other types of stresses like post-traumatic stress disorder and the risk of developing autoimmune diseases by 46%.
+- **[01:01](https://www.youtube.com/watch?v=18ZKgshcwi4&t=61s)** — And I'm also going to talk about a lot of stress that people have nowadays is actually manufactured.
+- **[01:06](https://www.youtube.com/watch?v=18ZKgshcwi4&t=66s)** — Stress can be physical, it can be mental, it can be real or imagined.
+- **[01:12](https://www.youtube.com/watch?v=18ZKgshcwi4&t=72s)** — Even thinking about a stressful state can affect your body physically.
+- **[01:17](https://www.youtube.com/watch?v=18ZKgshcwi4&t=77s)** — You're not in that stressful environment, but just thinking about it, your blood pressure will start to increase.
+- **[01:22](https://www.youtube.com/watch?v=18ZKgshcwi4&t=82s)** — When I first met my wife, we went to this fair and they had a roller coaster. She loves roller coasters.
+- **[01:28](https://www.youtube.com/watch?v=18ZKgshcwi4&t=88s)** — She thrives on roller coasters. She can do the most intense roller coaster that you can possibly imagine.
+- **[01:33](https://www.youtube.com/watch?v=18ZKgshcwi4&t=93s)** — I can't even do the small baby ones, right? I'm a wimp and of course I didn't want to look like a wimp.
+- **[01:39](https://www.youtube.com/watch?v=18ZKgshcwi4&t=99s)** — So I got on the roller coaster with her. I remember getting into the cart and they put this thing over you and they lock you in.
+- **[01:45](https://www.youtube.com/watch?v=18ZKgshcwi4&t=105s)** — My pulse rate started beating. And as we're going up this slow hill and I see on the other end it's like a drop off.
+- **[01:53](https://www.youtube.com/watch?v=18ZKgshcwi4&t=113s)** — My blood pressure, my adrenaline starts kicking in more and more.
+- **[01:58](https://www.youtube.com/watch?v=18ZKgshcwi4&t=118s)** — And I started holding on really, really tight to the point I was shaking.
+- **[02:02](https://www.youtube.com/watch?v=18ZKgshcwi4&t=122s)** — My wife's looking over at me going, oh my gosh, what's happening here?
+- **[02:07](https://www.youtube.com/watch?v=18ZKgshcwi4&t=127s)** — And I was literally in pure terror. We get up to the top, you can't even see where you're going, right?
+- **[02:13](https://www.youtube.com/watch?v=18ZKgshcwi4&t=133s)** — And my wife said your face was white as a ghost.
+- **[02:16](https://www.youtube.com/watch?v=18ZKgshcwi4&t=136s)** — What that means when your face is that pale is you've lost all your blood flow.
+- **[02:21](https://www.youtube.com/watch?v=18ZKgshcwi4&t=141s)** — All the blood is in the bottom of your feet.
+- **[02:23](https://www.youtube.com/watch?v=18ZKgshcwi4&t=143s)** — So as we went over the roller coaster going down, I think I passed out.
+- **[02:28](https://www.youtube.com/watch?v=18ZKgshcwi4&t=148s)** — I mean there was tears coming down from my eye. My wife said I'm so sorry.
+- **[02:32](https://www.youtube.com/watch?v=18ZKgshcwi4&t=152s)** — I will never do that again. I will never force you to get on the roller coaster.
+- **[02:35](https://www.youtube.com/watch?v=18ZKgshcwi4&t=155s)** — And I've never been on a roller coaster ever since that.
+- **[02:38](https://www.youtube.com/watch?v=18ZKgshcwi4&t=158s)** — I also had a severe fear of public speaking. Devastating.
+- **[02:43](https://www.youtube.com/watch?v=18ZKgshcwi4&t=163s)** — There's certain types of stresses that people actually can tolerate. Other people can't.
+- **[02:48](https://www.youtube.com/watch?v=18ZKgshcwi4&t=168s)** — So there's two main types of stress.
+- **[02:51](https://www.youtube.com/watch?v=18ZKgshcwi4&t=171s)** — There's the type of stress that's acute or sudden.
+- **[02:54](https://www.youtube.com/watch?v=18ZKgshcwi4&t=174s)** — And then there's the chronic stress that happens over a period of time.
+- **[02:57](https://www.youtube.com/watch?v=18ZKgshcwi4&t=177s)** — But both of them can create similar problems.
+- **[02:59](https://www.youtube.com/watch?v=18ZKgshcwi4&t=179s)** — And what happens when you actually experience stress, you have two things going on.
+- **[03:03](https://www.youtube.com/watch?v=18ZKgshcwi4&t=183s)** — You have a higher level of adrenaline which then activates something else called cortisol.
+- **[03:07](https://www.youtube.com/watch?v=18ZKgshcwi4&t=187s)** — So cortisol is a hormone. Adrenaline is a neurotransmitter.
+- **[03:11](https://www.youtube.com/watch?v=18ZKgshcwi4&t=191s)** — Adrenaline works very quickly.
+- **[03:14](https://www.youtube.com/watch?v=18ZKgshcwi4&t=194s)** — Cortisol takes some time. It starts mobilizing the sugar for quick energy.
+- **[03:19](https://www.youtube.com/watch?v=18ZKgshcwi4&t=199s)** — Whereas adrenaline mainly works on the heart rate, sweating, blood pressure,
+- **[03:24](https://www.youtube.com/watch?v=18ZKgshcwi4&t=204s)** — and also constriction of blood in certain places.
+- **[03:27](https://www.youtube.com/watch?v=18ZKgshcwi4&t=207s)** — Because we need to put the blood into the heart and the lungs.
+- **[03:30](https://www.youtube.com/watch?v=18ZKgshcwi4&t=210s)** — And this is why even when someone has a heart attack, right, when their arteries are clamping down,
+- **[03:34](https://www.youtube.com/watch?v=18ZKgshcwi4&t=214s)** — they can inject the heart with adrenaline and it's a vasodilator. It opens it up.
+- **[03:39](https://www.youtube.com/watch?v=18ZKgshcwi4&t=219s)** — The same thing with someone having an asthma attack.
+- **[03:41](https://www.youtube.com/watch?v=18ZKgshcwi4&t=221s)** — They'll take a cortisol inhaler and that will vasodilate the lungs.
+- **[03:46](https://www.youtube.com/watch?v=18ZKgshcwi4&t=226s)** — But what happens in chronic stress is you start getting this high level of cortisol.
+- **[03:52](https://www.youtube.com/watch?v=18ZKgshcwi4&t=232s)** — Cortisol is a natural suppressant of your immune system.
+- **[03:57](https://www.youtube.com/watch?v=18ZKgshcwi4&t=237s)** — And this leaves you wide open for getting infections.
+- **[04:01](https://www.youtube.com/watch?v=18ZKgshcwi4&t=241s)** — Because you just now lost the barrier.
+- **[04:04](https://www.youtube.com/watch?v=18ZKgshcwi4&t=244s)** — This is why stress lowers your defenses and allows the virus to invade the body.
+- **[04:09](https://www.youtube.com/watch?v=18ZKgshcwi4&t=249s)** — This is also why so many people develop autoimmune diseases after a stress event.
+- **[04:16](https://www.youtube.com/watch?v=18ZKgshcwi4&t=256s)** — Especially if the stress is intense enough or a shock to the system.
+- **[04:21](https://www.youtube.com/watch?v=18ZKgshcwi4&t=261s)** — Where literally you just shut down a part of the immune system that is supposed to keep these autoimmune diseases in check.
+- **[04:28](https://www.youtube.com/watch?v=18ZKgshcwi4&t=268s)** — Especially a specific cell called the T regulatory cell.
+- **[04:31](https://www.youtube.com/watch?v=18ZKgshcwi4&t=271s)** — Those cells are kind of like the peacekeeper.
+- **[04:34](https://www.youtube.com/watch?v=18ZKgshcwi4&t=274s)** — And they tend to keep the body from developing this self attack.
+- **[04:38](https://www.youtube.com/watch?v=18ZKgshcwi4&t=278s)** — It's called an autoimmune attack.
+- **[04:40](https://www.youtube.com/watch?v=18ZKgshcwi4&t=280s)** — From your own immune system destroying your own body cells.
+- **[04:43](https://www.youtube.com/watch?v=18ZKgshcwi4&t=283s)** — So that's interesting that also explains why stress really can activate so many problems with the immune system.
+- **[04:51](https://www.youtube.com/watch?v=18ZKgshcwi4&t=291s)** — And of course with heart attack and stroke we're dealing with adrenaline.
+- **[04:54](https://www.youtube.com/watch?v=18ZKgshcwi4&t=294s)** — What you have to realize is stress activates adrenaline which activates clotting and other problems related to the cardiovascular system.
+- **[05:01](https://www.youtube.com/watch?v=18ZKgshcwi4&t=301s)** — Like I said before you don't even necessarily have to have real stress in front of you.
+- **[05:06](https://www.youtube.com/watch?v=18ZKgshcwi4&t=306s)** — It can be you're trying to sleep and you're running through all sorts of scenarios.
+- **[05:11](https://www.youtube.com/watch?v=18ZKgshcwi4&t=311s)** — But some things can get overwhelming and they can shock our body.
+- **[05:15](https://www.youtube.com/watch?v=18ZKgshcwi4&t=315s)** — And I'm going to talk about some great solutions for that as well.
+- **[05:19](https://www.youtube.com/watch?v=18ZKgshcwi4&t=319s)** — Without getting into the details of that.
+- **[05:22](https://www.youtube.com/watch?v=18ZKgshcwi4&t=322s)** — Generally I think you know what I'm talking about when there's certain people or groups that are basically making your environment more dangerous.
+- **[05:30](https://www.youtube.com/watch?v=18ZKgshcwi4&t=330s)** — Or at least perceived to be dangerous. Creating a real or fake emergency. Exaggerating a crisis.
+- **[05:37](https://www.youtube.com/watch?v=18ZKgshcwi4&t=337s)** — All of these things are meant to put people in fear.
+- **[05:41](https://www.youtube.com/watch?v=18ZKgshcwi4&t=341s)** — Because usually the group that's creating that problem has a solution that now you're going to be dependent on.
+- **[05:47](https://www.youtube.com/watch?v=18ZKgshcwi4&t=347s)** — And really the key word in this whole thing is control.
+- **[05:49](https://www.youtube.com/watch?v=18ZKgshcwi4&t=349s)** — There's good stress and bad stress. And it all really has to do with who's in control of that stress.
+- **[05:55](https://www.youtube.com/watch?v=18ZKgshcwi4&t=355s)** — Because there are certain stresses that are very therapeutic to us, right?
+- **[05:59](https://www.youtube.com/watch?v=18ZKgshcwi4&t=359s)** — Like exercise. We're in control.
+- **[06:02](https://www.youtube.com/watch?v=18ZKgshcwi4&t=362s)** — So sometimes we think that if we can just get rid of all of our stress and our problems we'd be very very healthy.
+- **[06:08](https://www.youtube.com/watch?v=18ZKgshcwi4&t=368s)** — But that's not actually true.
+- **[06:09](https://www.youtube.com/watch?v=18ZKgshcwi4&t=369s)** — One would be high intensity interval training.
+- **[06:12](https://www.youtube.com/watch?v=18ZKgshcwi4&t=372s)** — I mean that actually increases stress.
+- **[06:14](https://www.youtube.com/watch?v=18ZKgshcwi4&t=374s)** — It increases adrenaline. It increases cortisol.
+- **[06:17](https://www.youtube.com/watch?v=18ZKgshcwi4&t=377s)** — But you're only doing it for a very short period of time.
+- **[06:19](https://www.youtube.com/watch?v=18ZKgshcwi4&t=379s)** — Another stress that's super therapeutic for me is rock climbing.
+- **[06:24](https://www.youtube.com/watch?v=18ZKgshcwi4&t=384s)** — Now that's intense. You're going straight up and vertical. You're at great heights.
+- **[06:28](https://www.youtube.com/watch?v=18ZKgshcwi4&t=388s)** — And when I climb, my attention is totally in the present on the next thing I'm going to put my hand on.
+- **[06:37](https://www.youtube.com/watch?v=18ZKgshcwi4&t=397s)** — If I'm thinking about any problems in my mind, they are gone within the first few minutes.
+- **[06:43](https://www.youtube.com/watch?v=18ZKgshcwi4&t=403s)** — Because I'm more focused on something else.
+- **[06:46](https://www.youtube.com/watch?v=18ZKgshcwi4&t=406s)** — So it's really what you do with your attention.
+- **[06:48](https://www.youtube.com/watch?v=18ZKgshcwi4&t=408s)** — Because a therapeutic goal should be to get you out of your head.
+- **[06:52](https://www.youtube.com/watch?v=18ZKgshcwi4&t=412s)** — And to take your attention and unfixate it to what you're focused on and push it to something else.
+- **[06:58](https://www.youtube.com/watch?v=18ZKgshcwi4&t=418s)** — Sports. That's a great therapy. Because it's a game.
+- **[07:01](https://www.youtube.com/watch?v=18ZKgshcwi4&t=421s)** — It's easy to get your attention off your problems when you're doing sports.
+- **[07:04](https://www.youtube.com/watch?v=18ZKgshcwi4&t=424s)** — Another thing to do is work with wood. Very therapeutic.
+- **[07:08](https://www.youtube.com/watch?v=18ZKgshcwi4&t=428s)** — Cleaning, gardening, dancing, music, art, and physical manual work around your house.
+- **[07:14](https://www.youtube.com/watch?v=18ZKgshcwi4&t=434s)** — All of that is super therapeutic for stress.
+- **[07:17](https://www.youtube.com/watch?v=18ZKgshcwi4&t=437s)** — If you're in a stress mode, you start to breathe in a certain way.
+- **[07:22](https://www.youtube.com/watch?v=18ZKgshcwi4&t=442s)** — This is a way to control your own autonomic nervous system.
+- **[07:25](https://www.youtube.com/watch?v=18ZKgshcwi4&t=445s)** — It works like a charm.
+- **[07:27](https://www.youtube.com/watch?v=18ZKgshcwi4&t=447s)** — What you do is breathe through your nose, not your mouth.
+- **[07:30](https://www.youtube.com/watch?v=18ZKgshcwi4&t=450s)** — As you breathe in and breathe out, this is a great technique to pull you out of a panic attack or anxiety attack.
+- **[07:37](https://www.youtube.com/watch?v=18ZKgshcwi4&t=457s)** — But again, it's you now controlling your own breath.
+- **[07:41](https://www.youtube.com/watch?v=18ZKgshcwi4&t=461s)** — That's really the secret sauce of that.
+- **[07:42](https://www.youtube.com/watch?v=18ZKgshcwi4&t=462s)** — And also taking certain nutritional things like an adaptogen.
+- **[07:47](https://www.youtube.com/watch?v=18ZKgshcwi4&t=467s)** — Ashwagandha is one of the better ones.
+- **[07:49](https://www.youtube.com/watch?v=18ZKgshcwi4&t=469s)** — Ashwagandha helps increase your tolerance to stress.
+- **[07:52](https://www.youtube.com/watch?v=18ZKgshcwi4&t=472s)** — It calms the nerves.
+- **[07:53](https://www.youtube.com/watch?v=18ZKgshcwi4&t=473s)** — B1 you can get also in nutritional yeast.
+- **[07:56](https://www.youtube.com/watch?v=18ZKgshcwi4&t=476s)** — Magnesium is another one that I use as well, especially in the evening before I go to sleep.
+- **[08:00](https://www.youtube.com/watch?v=18ZKgshcwi4&t=480s)** — It winds you down.
+- **[08:02](https://www.youtube.com/watch?v=18ZKgshcwi4&t=482s)** — It helps in many different ways related to stress and cortisol.
+- **[08:05](https://www.youtube.com/watch?v=18ZKgshcwi4&t=485s)** — But there's one more thing you can do.
+- **[08:07](https://www.youtube.com/watch?v=18ZKgshcwi4&t=487s)** — I used to do this in practice and now I do videos on how to do it yourself.
+- **[08:12](https://www.youtube.com/watch?v=18ZKgshcwi4&t=492s)** — You can manually do some acupressure to certain points in your body that will greatly reduce your stress.
+- **[08:19](https://www.youtube.com/watch?v=18ZKgshcwi4&t=499s)** — It will literally put you to sleep when you do it.
+- **[08:21](https://www.youtube.com/watch?v=18ZKgshcwi4&t=501s)** — It's wonderful.
+- **[08:22](https://www.youtube.com/watch?v=18ZKgshcwi4&t=502s)** — And for that information, you can check it out right here.

@@ -1,0 +1,153 @@
+# You Will Never Get High Blood Pressure after Watching This Video
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=xUu0vqcP7fE](https://www.youtube.com/watch?v=xUu0vqcP7fE)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=0s)** — You may never get high blood pressure after watching this video.
+- **[00:03](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=3s)** — The most important thing to know about blood pressure is that it is a symptom.
+- **[00:07](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=7s)** — It's not a root cause.
+- **[00:08](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=8s)** — And in this video, we're going to talk about the root causes
+- **[00:10](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=10s)** — because the problem with hypertension is that 95% of it is classified
+- **[00:15](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=15s)** — as something called essential high blood pressure,
+- **[00:18](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=18s)** — which basically means they don't really know what causes it.
+- **[00:20](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=20s)** — It might be caused by, you know, genetics or lifestyle.
+- **[00:24](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=24s)** — We don't know. But if you lose weight and reduce your salt
+- **[00:27](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=27s)** — and you exercise and you stop smoking and you stop drinking, it might go away.
+- **[00:31](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=31s)** — There's also a lot of people who don't exercise and they don't have high blood pressure.
+- **[00:35](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=35s)** — And there's a large group of people who consume a lot of salt
+- **[00:38](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=38s)** — and they don't have high blood pressure.
+- **[00:39](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=39s)** — And when someone is put on hypertensive medication, 20% of the time, it doesn't work.
+- **[00:44](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=44s)** — Now, why wouldn't that work? Because they're treating the symptom.
+- **[00:47](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=47s)** — They're not fixing the cause.
+- **[00:49](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=49s)** — Anytime you treat the symptom without fixing the root cause, you camouflage the problem.
+- **[00:53](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=53s)** — It continues.
+- **[00:54](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=54s)** — Now, if you have high blood pressure, I'm not telling you to come off your medication
+- **[00:57](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=57s)** — without your doctor's consent.
+- **[01:00](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=60s)** — But I want to give you some really important information
+- **[01:02](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=62s)** — that will help you get to the root of this problem.
+- **[01:05](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=65s)** — All right, now let's get into the root causes, okay?
+- **[01:08](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=68s)** — Let's start with the big one.
+- **[01:09](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=69s)** — Vitamin D deficiency.
+- **[01:11](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=71s)** — There is a hormone system called the water pressure control system.
+- **[01:15](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=75s)** — When this system gets triggered and it goes up,
+- **[01:18](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=78s)** — there is a potent vasoconstriction going on in your arteries.
+- **[01:22](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=82s)** — Basically, there's a squeezing of the arteries and the pressure is going to go up.
+- **[01:26](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=86s)** — That is triggered by low vitamin D.
+- **[01:29](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=89s)** — This system being high also causes a massive retention of sodium.
+- **[01:33](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=93s)** — Wherever the sodium goes, the water goes.
+- **[01:35](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=95s)** — More sodium, more water, more pressure.
+- **[01:38](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=98s)** — This is why there's a big push to get everyone with high blood pressure
+- **[01:42](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=102s)** — off of sodium or on a low sodium diet.
+- **[01:45](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=105s)** — They would be much better off giving the person vitamin D
+- **[01:48](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=108s)** — and also increasing their potassium.
+- **[01:50](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=110s)** — The more potassium you have, the more sodium you could have.
+- **[01:54](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=114s)** — Potassium protects you against the excess amount of sodium.
+- **[01:58](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=118s)** — People that are salt-sensitive are really potassium deficient.
+- **[02:02](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=122s)** — And unfortunately, the majority of population doesn't get enough potassium
+- **[02:05](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=125s)** — because you need so much.
+- **[02:06](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=126s)** — You need like 4,700 milligrams every single day.
+- **[02:11](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=131s)** — No one's getting that much.
+- **[02:12](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=132s)** — And also look at how many people are deficient vitamin D.
+- **[02:15](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=135s)** — It's just off the charts.
+- **[02:16](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=136s)** — Another interesting point about this is that your risk of high blood pressure
+- **[02:20](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=140s)** — goes up during the winter.
+- **[02:22](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=142s)** — Why is that?
+- **[02:22](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=142s)** — The way the sun is angled at the earth,
+- **[02:25](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=145s)** — there's just not enough UV radiation to create enough vitamin D in our skin.
+- **[02:31](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=151s)** — And then we have this other very important factor.
+- **[02:33](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=153s)** — The darker your skin, the more you're at risk for high blood pressure.
+- **[02:37](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=157s)** — On average, if you have dark skin, your risk for high blood pressure goes up by 2x.
+- **[02:44](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=164s)** — Why does this happen?
+- **[02:44](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=164s)** — Because melanin in your skin is a pigment and it acts as a sunscreen.
+- **[02:51](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=171s)** — It blocks you of ultraviolet radiation, making it very difficult to make vitamin D.
+- **[02:56](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=176s)** — This is why the darker your skin, the more vitamin D you need to take
+- **[03:00](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=180s)** — or the more sun exposure you need to have.
+- **[03:02](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=182s)** — Then you get into the genetic high blood pressure situation.
+- **[03:06](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=186s)** — Well, that's usually associated with a genetic problem with vitamin D,
+- **[03:12](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=192s)** — which is interesting.
+- **[03:13](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=193s)** — There's a super high percentage of people that have a genetic problem with vitamin D
+- **[03:17](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=197s)** — that can't absorb vitamin D that well, and they need a lot more vitamin D.
+- **[03:22](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=202s)** — So I've even questioned, do we really have a genetic blood pressure problem?
+- **[03:26](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=206s)** — Or do we have a genetic problem with vitamin D that's causing the high blood pressure?
+- **[03:30](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=210s)** — I mentioned that 95% of all blood pressure problems are essential,
+- **[03:34](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=214s)** — which means they're unknown cause.
+- **[03:36](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=216s)** — So it could be lifestyle, it could be genetic, they don't know.
+- **[03:39](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=219s)** — They just throw all these lifestyle things in a box and, you know,
+- **[03:42](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=222s)** — we just don't know. But in the meantime, keep taking medication
+- **[03:45](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=225s)** — because until we find out a cause, we need to keep that pressure low.
+- **[03:49](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=229s)** — Then we have this insulin resistant connection.
+- **[03:52](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=232s)** — If you consume a lot of carbs or you're eating a lot of snacks,
+- **[03:56](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=236s)** — you develop this condition called insulin resistance.
+- **[03:59](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=239s)** — And this is a precursor for high blood glucose.
+- **[04:02](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=242s)** — And it is the root cause of a fatty liver, high blood pressure,
+- **[04:06](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=246s)** — high cholesterol, belly fat, high glucose.
+- **[04:09](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=249s)** — It's all just insulin resistance.
+- **[04:11](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=251s)** — If you're low in vitamin D, your risk for getting this goes high.
+- **[04:16](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=256s)** — So that could be one mechanism why some people that are obese
+- **[04:19](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=259s)** — develop hypertension because the obesity is diluting the vitamin D
+- **[04:24](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=264s)** — and either triggering insulin resistance or just causing high blood pressure directly.
+- **[04:29](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=269s)** — Vitamin D depends on magnesium.
+- **[04:32](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=272s)** — Magnesium is essential for vitamin D to work.
+- **[04:35](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=275s)** — So these go hand in hand.
+- **[04:37](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=277s)** — So this is why I put vitamin D, magnesium and potassium.
+- **[04:42](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=282s)** — Okay, those three right there.
+- **[04:43](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=283s)** — Let's look at another connection between vitamin D and soft tissue calcium.
+- **[04:47](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=287s)** — Now you have this situation where if there's too much calcium in the arteries,
+- **[04:52](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=292s)** — your arteries can get stiff and actually your blood pressure can go up from there.
+- **[04:57](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=297s)** — And if you watch some of my other videos,
+- **[04:59](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=299s)** — I recommend taking vitamin K2 to direct the calcium into the bone or the teeth
+- **[05:04](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=304s)** — and out of the soft tissues.
+- **[05:06](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=306s)** — And there's actually even a test called the coronary artery calcification test,
+- **[05:10](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=310s)** — which is a really good indicator or predictor of all-cause mortality.
+- **[05:15](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=315s)** — This is why people with cramps at night or just leg cramps or feet cramps,
+- **[05:20](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=320s)** — really they need more magnesium. Why?
+- **[05:22](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=322s)** — Magnesium prevents the calcium from building up in the tissues.
+- **[05:26](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=326s)** — Also think about women who are postmenopausal that take calcium supplements.
+- **[05:29](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=329s)** — Their risk for heart attack goes up.
+- **[05:32](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=332s)** — Why? Because you're dumping all this calcium.
+- **[05:35](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=335s)** — Some women are taking like 1200 or 1500 milligrams of calcium every single day.
+- **[05:42](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=342s)** — And sometimes even take a little vitamin D.
+- **[05:44](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=344s)** — They're still at risk for heart problems.
+- **[05:46](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=346s)** — Why? Because they're deficient in magnesium.
+- **[05:49](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=349s)** — Magnesium keeps the calcium from getting too high and forming clots.
+- **[05:54](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=354s)** — That's right. Too much clotting or a thrombosis,
+- **[05:57](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=357s)** — they call it, could be coming from too much calcium.
+- **[06:00](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=360s)** — Also, arrhythmias can also be coming from too much calcium.
+- **[06:05](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=365s)** — And guess what? Magnesium is the antidote to preventing building up in the arteries,
+- **[06:10](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=370s)** — heart attacks, all sorts of things.
+- **[06:12](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=372s)** — And let's just talk about two medications they use for high blood pressure.
+- **[06:16](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=376s)** — Calcium channel blockers, which by the way magnesium is a natural calcium channel blocker,
+- **[06:22](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=382s)** — but you can't patent it, so they use a medication.
+- **[06:26](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=386s)** — Then you also have something else called beta blockers.
+- **[06:28](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=388s)** — Beta blockers block adrenaline.
+- **[06:31](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=391s)** — Okay, so if there's too much adrenaline in the body, your blood pressure will go up as well.
+- **[06:35](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=395s)** — And take a well guess what a natural beta blocker is.
+- **[06:40](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=400s)** — Not just magnesium, but vitamin D.
+- **[06:42](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=402s)** — Both of these will naturally decrease adrenaline.
+- **[06:47](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=407s)** — Now let's roll into the four things I recommend to correct the problem if you have high blood pressure.
+- **[06:52](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=412s)** — Okay, vitamin D. I would take 10,000 IUs every single day,
+- **[06:56](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=416s)** — but if you're trying to correct high blood pressure, take 20,000 or even a little bit more.
+- **[07:02](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=422s)** — Now if you have any thought in your mind that 20,000 IUs is toxic,
+- **[07:06](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=426s)** — being on the sun for about 40 minutes will give you 20,000 IUs of vitamin D3.
+- **[07:10](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=430s)** — So 20,000 is not a toxic level.
+- **[07:13](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=433s)** — In fact, this is really like half of one milligram of vitamin D3.
+- **[07:17](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=437s)** — Magnesium, very underrated, but it's very important.
+- **[07:22](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=442s)** — I would recommend taking magnesium glycinate.
+- **[07:25](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=445s)** — You can get a good amount of magnesium from pumpkin seeds, sunflower seeds, spinach, other leafy greens, almonds, and even chocolate.
+- **[07:33](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=453s)** — Just make sure you don't have the chocolate with a lot of sugar.
+- **[07:36](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=456s)** — Magnesium allows vitamin D to work. These two go hand in hand.
+- **[07:40](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=460s)** — Then I recommend going on a low carb diet because at the root of high blood pressure,
+- **[07:45](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=465s)** — metabolic syndrome, heart disease, is too many carbs.
+- **[07:49](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=469s)** — And consuming too much sugar and starch depletes you of vitamin D magnesium.
+- **[07:55](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=475s)** — And potassium.
+- **[07:57](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=477s)** — Okay, so you need to do that. Also potassium is very, very important.
+- **[08:00](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=480s)** — You can get this from an electrolyte powder.
+- **[08:03](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=483s)** — I would recommend taking a high quality electrolyte powder that has about a thousand milligrams of potassium with other electrolytes.
+- **[08:11](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=491s)** — But you can also get potassium from greens, but you have to consume a very large salad every single day.
+- **[08:17](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=497s)** — But the greens will also give you magnesium.
+- **[08:20](https://www.youtube.com/watch?v=xUu0vqcP7fE&t=500s)** — Now to get more details on this low carb diet, you should go to this video right here.

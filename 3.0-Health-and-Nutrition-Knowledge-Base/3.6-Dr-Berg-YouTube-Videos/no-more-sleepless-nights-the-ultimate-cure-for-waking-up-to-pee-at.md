@@ -1,0 +1,131 @@
+# No More Sleepless Nights: The Ultimate Cure for Waking Up to Pee at Night (Nocturia)
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=Ku56lZTV7OY](https://www.youtube.com/watch?v=Ku56lZTV7OY)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=0s)** — Are you fed up with using the bathroom several times a night?
+- **[00:03](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=3s)** — Let's talk about Nocturia.
+- **[00:05](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=5s)** — Urinating at night when you should be sleeping.
+- **[00:07](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=7s)** — It can drive people crazy.
+- **[00:09](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=9s)** — It can be a real pain in the butt because
+- **[00:11](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=11s)** — it interferes with your sleep.
+- **[00:14](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=14s)** — So I'm going to show you a very commonly overlooked cause to Nocturia.
+- **[00:20](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=20s)** — And you're going to be very excited to hear what I'm going to say about this because
+- **[00:23](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=23s)** — finally you're going to find something that really works.
+- **[00:25](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=25s)** — As you're trying to get solutions, you go online,
+- **[00:28](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=28s)** — the first page you're going to see
+- **[00:30](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=30s)** — Cleveland Clinic, WebMD, Medline Plus,
+- **[00:35](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=35s)** — all these credible authority sites.
+- **[00:38](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=38s)** — The same information.
+- **[00:40](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=40s)** — And they all say it's a normal part of aging,
+- **[00:43](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=43s)** — which really is absolutely not true.
+- **[00:45](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=45s)** — And they all recommend medications.
+- **[00:48](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=48s)** — But some of them have alternatives, right?
+- **[00:50](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=50s)** — They have alternatives. They'll say, well, you know, you might want to try an herb,
+- **[00:53](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=53s)** — but there's no evidence.
+- **[00:55](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=55s)** — And they could be dangerous.
+- **[00:58](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=58s)** — And herbs are not regulated by the FDA.
+- **[01:01](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=61s)** — The safety of drugs are regulated by the FDA.
+- **[01:04](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=64s)** — Well, I guess after the FDA finds that it's safe,
+- **[01:08](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=68s)** — pretty much stays in the market, right?
+- **[01:09](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=69s)** — I mean, we don't have recalls. We don't have drugs that
+- **[01:12](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=72s)** — end up being very harmful. I am being very sarcastic.
+- **[01:16](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=76s)** — There was an analysis in 2011 on adverse drug reactions.
+- **[01:22](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=82s)** — In the US alone, 2.1 million serious injuries,
+- **[01:29](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=89s)** — 128,000 deaths from drugs.
+- **[01:32](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=92s)** — But drugs are regulated by the FDA.
+- **[01:34](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=94s)** — I mean, how many people do you know that died from an herb
+- **[01:37](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=97s)** — or had a lot of serious reactions from herbs? Is it very common?
+- **[01:41](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=101s)** — That being said, the information on necturia,
+- **[01:43](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=103s)** — they usually say it's a bladder infection, could be a kidney infection,
+- **[01:47](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=107s)** — could be a prostate enlargement.
+- **[01:49](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=109s)** — But what's fascinating is there's one thing
+- **[01:52](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=112s)** — that is not listed on any of these sites.
+- **[01:56](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=116s)** — So just envision what the kidneys are.
+- **[01:59](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=119s)** — The kidneys are a filter and they filter blood.
+- **[02:02](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=122s)** — And what controls this filtration rate as well as the production of urine
+- **[02:09](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=129s)** — is the concentration of various things.
+- **[02:13](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=133s)** — Salts, sugars, waste products, red blood cell breakdown.
+- **[02:18](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=138s)** — And so you have all these different concentrated particles in there
+- **[02:21](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=141s)** — and some of it's recycled, some of it does not get recycled.
+- **[02:25](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=145s)** — When the urine is produced, it goes down these little tubes into the bladder.
+- **[02:28](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=148s)** — And what's interesting about people that get up several times a night,
+- **[02:32](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=152s)** — they're not urinating a full bladder of urine.
+- **[02:35](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=155s)** — It could be just a little bit. So what is up with that?
+- **[02:39](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=159s)** — There must be something going on with the sensors in the bladder itself
+- **[02:45](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=165s)** — and maybe the valve of the bladder.
+- **[02:48](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=168s)** — So in the bladder we have a combination of smooth muscle and valves
+- **[02:55](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=175s)** — and nerves that are controlled by a part of the nervous system
+- **[03:02](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=182s)** — called the parasympathetic nervous system.
+- **[03:05](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=185s)** — So that's like the opposite or partner to the sympathetic nervous system
+- **[03:09](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=189s)** — which is the flight or fight mechanism.
+- **[03:11](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=191s)** — This is why you need to relax when you urinate, right?
+- **[03:14](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=194s)** — If you're stressed in some way, it would be harder to eliminate.
+- **[03:19](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=199s)** — So I'm just kind of giving you a little background here
+- **[03:21](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=201s)** — for what I'm going to talk about.
+- **[03:23](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=203s)** — So the bladder is controlled by the parasympathetic nervous system
+- **[03:27](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=207s)** — which another name for that is called rest and digest.
+- **[03:30](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=210s)** — There's another thing related to sugar.
+- **[03:34](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=214s)** — When there's too much sugar in the blood that gets filtered,
+- **[03:39](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=219s)** — there's something that occurs that's called,
+- **[03:41](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=221s)** — and this might be a new term for you, osmotic diuresis.
+- **[03:44](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=224s)** — Now what does that mean?
+- **[03:46](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=226s)** — Osmotic has to do with the particles or concentration of sugar.
+- **[03:50](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=230s)** — Diuresis means increased amount of urine that is coming out.
+- **[03:53](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=233s)** — So apparently in the little filtration rate in the kidneys,
+- **[03:56](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=236s)** — if there's too much sugar, that filter will push out the sugar
+- **[04:01](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=241s)** — and wherever there's sugar there's water.
+- **[04:03](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=243s)** — Water follows sugar.
+- **[04:05](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=245s)** — So we get this excessive amount of water and sugar
+- **[04:09](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=249s)** — with this osmotic diuresis thing.
+- **[04:11](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=251s)** — And so that really kind of explains why a diabetic, for example,
+- **[04:15](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=255s)** — has this excessive urination.
+- **[04:18](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=258s)** — In fact, diabetics have like a 49% increase of nocturia.
+- **[04:24](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=264s)** — Someone with hypertension has a 39% increase risk of having that.
+- **[04:28](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=268s)** — And someone who is obese has like a 200% increase risk of having nocturia.
+- **[04:35](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=275s)** — And obstructive sleep apnea.
+- **[04:38](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=278s)** — Is at risk like, I think it's 40% of having this excessive urine situation at night.
+- **[04:46](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=286s)** — Now what's interesting about the sleep apnea situation
+- **[04:49](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=289s)** — is I found this one paper that did this research
+- **[04:55](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=295s)** — on the relationship between sleep apnea and kidney physiology
+- **[05:01](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=301s)** — that includes the bladder.
+- **[05:03](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=303s)** — And to my knowledge, this is like the only study that was ever done on this.
+- **[05:06](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=306s)** — But they found that when you have obstructive breathing,
+- **[05:11](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=311s)** — you create hypoxia in the body. That's a lack of oxygen.
+- **[05:15](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=315s)** — Blood pressure does go up, but your parasympathetic nervous system goes down.
+- **[05:22](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=322s)** — Remember that thing that controls not just the smooth muscle around your bladder,
+- **[05:29](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=329s)** — but the nerves down there and the valves?
+- **[05:32](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=332s)** — Well, it just so happens that they found an increase association between hypoxia and diuresis.
+- **[05:41](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=341s)** — Because apparently this lack of oxygen can affect your bladder, which is fascinating.
+- **[05:46](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=346s)** — So that's an interesting connection.
+- **[05:48](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=348s)** — But now the question is, what is behind sleep apnea?
+- **[05:52](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=352s)** — What's behind obesity? What's behind diabetes and hypertension?
+- **[05:57](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=357s)** — And the answer is insulin resistance.
+- **[05:59](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=359s)** — And there's some interesting research. I'm going to put a list down below showing that insulin resistance can cause nocturia.
+- **[06:08](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=368s)** — Now, I did two other videos on this topic, which I'm going to put a link down below.
+- **[06:12](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=372s)** — And the comments from people who tried it and it worked are overwhelming.
+- **[06:16](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=376s)** — I mean, you're going to be blown away at how many people just made some slight changes in their diet
+- **[06:21](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=381s)** — and got rid of this problem within days.
+- **[06:25](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=385s)** — So how do we fix insulin resistance?
+- **[06:27](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=387s)** — First, stop snacking at night. And basically stop snacking in general.
+- **[06:32](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=392s)** — In fact, do intermittent fasting.
+- **[06:34](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=394s)** — Basically, you're just cutting down the number of meals, not the calories, just the frequency of eating.
+- **[06:40](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=400s)** — It's going to greatly help insulin resistance.
+- **[06:42](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=402s)** — And number two, start cutting down your carbs to less than 30 grams per day.
+- **[06:49](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=409s)** — Those two actions are the most powerful thing you can do.
+- **[06:52](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=412s)** — And you're going to see amazing changes.
+- **[06:54](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=414s)** — Now, a couple of things you can do to add to speed things up.
+- **[06:58](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=418s)** — Take some apple cider vinegar with some water right before your meals.
+- **[07:03](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=423s)** — Just like a tablespoon of apple cider vinegar. What does that do?
+- **[07:06](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=426s)** — That is a really good blood sugar regulating natural remedy.
+- **[07:11](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=431s)** — The other thing you can do is exercise on a regular basis.
+- **[07:14](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=434s)** — That is another potent way to improve insulin resistance.
+- **[07:19](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=439s)** — And if you have any questions on what to eat, I have so much data on this topic on my website.
+- **[07:24](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=444s)** — You can just download exactly what to eat. I'll put DrBurg.com down below.
+- **[07:29](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=449s)** — You can just click that. But if you want some hope that you can be helped, okay?
+- **[07:33](https://www.youtube.com/watch?v=Ku56lZTV7OY&t=453s)** — Check out this video right here and read all the comments of people who started to fix their insulin resistance.

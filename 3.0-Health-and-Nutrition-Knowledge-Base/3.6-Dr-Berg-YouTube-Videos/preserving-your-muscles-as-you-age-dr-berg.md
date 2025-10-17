@@ -1,0 +1,150 @@
+# Preserving Your Muscles as You Age - Dr. Berg
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=e5MhlSjvXh8](https://www.youtube.com/watch?v=e5MhlSjvXh8)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=0s)** — Let's talk about how to salvage your muscles as you get older.
+- **[00:05](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=5s)** — Both men and women. When women hit the age of 50, they go through this process, this change called menopause.
+- **[00:13](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=13s)** — And when they go through menopause, they have all sorts of changes in their hormones, which I'm going to cover.
+- **[00:18](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=18s)** — Men start developing more hormonal changes more when they're 60.
+- **[00:22](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=22s)** — Now, what I'm primarily going to focus in on with these hormones is
+- **[00:26](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=26s)** — the relationship between what happens to one's muscles.
+- **[00:30](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=30s)** — Okay? The term for this is called sarcopenia.
+- **[00:33](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=33s)** — The Latin word for sarcopenia means basically poverty of the flesh.
+- **[00:39](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=39s)** — You're deficient in skeletal muscle.
+- **[00:42](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=42s)** — And this relates to just getting older.
+- **[00:45](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=45s)** — As we all are aging, including myself, I'm going to be 59, which is very weird because I don't feel 59.
+- **[00:52](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=52s)** — So, of course, I'm doing a deep dive in this to preserve my muscles as long as possible.
+- **[00:57](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=57s)** — Why is this important?
+- **[00:59](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=59s)** — Because as we age and we lose our muscles, we lose a lot of our metabolism.
+- **[01:04](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=64s)** — Now, this is not just related to your metabolic rate,
+- **[01:08](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=68s)** — the speed at which your ability to burn fat or your capacity to burn fat,
+- **[01:12](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=72s)** — but also all the other things that are connected with metabolism as well.
+- **[01:16](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=76s)** — You have a lot of mitochondria in your muscles, right?
+- **[01:18](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=78s)** — So, if you're losing your muscles, you're going to lose a lot of your mitochondria, the energy factories of the body.
+- **[01:22](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=82s)** — And roughly as we get older, we lose between 1 and 2% of our muscles each year.
+- **[01:27](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=87s)** — As far as the percentage of our metabolism related to muscle, it's roughly about 40%.
+- **[01:32](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=92s)** — So, it's pretty significant.
+- **[01:33](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=93s)** — Let's start with females and estrogen.
+- **[01:36](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=96s)** — Estrogen does decrease as you get older.
+- **[01:39](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=99s)** — It goes down a certain curve.
+- **[01:43](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=103s)** — But this other hormone, progesterone, tanks even lower, almost to the point where it's almost zero.
+- **[01:49](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=109s)** — So, if we don't have any progesterone, we get a lot of problems with estrogen.
+- **[01:54](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=114s)** — And estrogen, relating to this topic, affects your bone, affects your muscle,
+- **[01:59](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=119s)** — your connective tissue, your collagen, your cartilage.
+- **[02:03](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=123s)** — And so, you start losing this connective tissue underneath the skin and things start sagging and hanging and you start getting wrinkles.
+- **[02:09](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=129s)** — Not to mention, estrogen has a function of helping you regenerate and rejuvenate and repair muscle.
+- **[02:15](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=135s)** — A lot of women lose their muscle because of this darn estrogen.
+- **[02:20](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=140s)** — Now, typically men develop ALS, amyotrophic lateral sclerosis.
+- **[02:25](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=145s)** — It's a severe neurodegeneration within your spinal column and other nerves.
+- **[02:32](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=152s)** — So, men develop this condition, ALS, four times more than females, until menopause.
+- **[02:41](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=161s)** — Then, the ratio is one to one.
+- **[02:44](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=164s)** — And what's interesting about progesterone, it's an extremely potent neuroprotector.
+- **[02:52](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=172s)** — Interesting. Especially if someone has ALS.
+- **[02:55](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=175s)** — Is there any relationship between increasing your cholesterol or decreasing your cholesterol and muscle?
+- **[03:01](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=181s)** — Yes, there is. Take a look at statin drugs. What's the biggest side effect of statin drugs?
+- **[03:06](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=186s)** — Muscle damage, muscle diseases. Why?
+- **[03:10](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=190s)** — Because you need cholesterol to make these steroid hormones, including testosterone.
+- **[03:17](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=197s)** — And so cholesterol is very important as the raw material to help you build muscle.
+- **[03:22](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=202s)** — So, if you're trying to salvage your muscles, be careful about going on a low fat diet
+- **[03:26](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=206s)** — and also a low cholesterol diet.
+- **[03:29](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=209s)** — And of course, statins, check with your doctor before wanting to come off of that.
+- **[03:33](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=213s)** — I'm not telling you to come off of it.
+- **[03:35](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=215s)** — And then cholesterol then turns into pregnenolome and DHEA.
+- **[03:39](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=219s)** — And pregnenolome, as it decreases, causes an increase.
+- **[03:45](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=225s)** — I think it's a compensatory thing for cortisol.
+- **[03:49](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=229s)** — So we get this decrease in DHEA, decrease in pregnenolome, decrease in estrogen,
+- **[03:55](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=235s)** — decrease in progesterone, decrease in testosterone, which we all know
+- **[04:00](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=240s)** — affects libido as well as muscle physiology.
+- **[04:04](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=244s)** — And growth hormone also goes down.
+- **[04:07](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=247s)** — And there's another hormone involved that I want to talk about.
+- **[04:10](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=250s)** — And that is melatonin.
+- **[04:13](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=253s)** — Now when we think about melatonin, we think about the sleep hormone.
+- **[04:17](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=257s)** — Well, there's two types of melatonin.
+- **[04:19](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=259s)** — One is to help induce you going to sleep.
+- **[04:22](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=262s)** — The other one, it's a very important protector of the mitochondria,
+- **[04:27](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=267s)** — which is again in the muscles.
+- **[04:30](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=270s)** — And as far as how much that melatonin decreases as we age, it decreases by like 10 times.
+- **[04:35](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=275s)** — So when we're young, it's very high.
+- **[04:38](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=278s)** — When we get older, it gets less and less and less,
+- **[04:40](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=280s)** — which could explain why we have a hard time sleeping.
+- **[04:43](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=283s)** — In the pituitary, there's two hormones that control the testicle as well as the ovaries.
+- **[04:50](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=290s)** — So there's a pathway there.
+- **[04:52](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=292s)** — And that would be called luteinizing hormone.
+- **[04:55](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=295s)** — And the other one is folliculostimulating hormone.
+- **[04:57](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=297s)** — And they're basically a communication from the pituitary down to the gonads
+- **[05:01](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=301s)** — to tell the gonads to release its hormones.
+- **[05:04](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=304s)** — With a man, as we get older, both of those hormones skyrocket up to like a thousand percent.
+- **[05:15](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=315s)** — Now what you should know about this luteinizing hormone and folliculostimulating hormone is that
+- **[05:19](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=319s)** — you can suppress it by increasing melatonin.
+- **[05:23](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=323s)** — So melatonin keeps those other two hormones in check,
+- **[05:26](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=326s)** — which is a really good solution.
+- **[05:28](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=328s)** — But the problem is our melatonin has crashed by 10 times.
+- **[05:31](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=331s)** — So how do we increase it?
+- **[05:33](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=333s)** — Is infrared light.
+- **[05:35](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=335s)** — Just being outside, you're going to be exposed to infrared.
+- **[05:39](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=339s)** — Over half of the sun's rays is infrared.
+- **[05:43](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=343s)** — And also infrared penetrates your skull like two inches into the body.
+- **[05:49](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=349s)** — So it can help recharge your cells of melatonin.
+- **[05:52](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=352s)** — You can also get infrared from sitting in front of your fireplace
+- **[05:56](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=356s)** — or to have candles or even a campfire.
+- **[06:01](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=361s)** — What diminishes infrared is artificial lights,
+- **[06:04](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=364s)** — LED lights, blue light from all the cell phone, the computer, all that stuff.
+- **[06:10](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=370s)** — So now let's talk about how to salvage our muscles as long as possible.
+- **[06:14](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=374s)** — Okay, this is the formula.
+- **[06:16](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=376s)** — You ready for this?
+- **[06:17](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=377s)** — Number two, resistance exercise.
+- **[06:21](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=381s)** — Regular, consistent exercise to take your muscles and put them against resistance,
+- **[06:27](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=387s)** — whether it's weight training or bands or any type of exercise.
+- **[06:31](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=391s)** — You want to start doing that and keep it implemented the rest of your life
+- **[06:36](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=396s)** — because exercise is the most potent stimulator of building muscle, muscle synthesis.
+- **[06:42](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=402s)** — Number three, animal protein.
+- **[06:44](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=404s)** — 0.8 to 1.2 grams of protein per kilogram of weight.
+- **[06:51](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=411s)** — So I weigh 185 pounds.
+- **[06:53](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=413s)** — That comes out to about 84 kilograms.
+- **[06:58](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=418s)** — So I should be consuming roughly between 67 to 100 grams of protein.
+- **[07:04](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=424s)** — Now, it can be a little bit less, it could be a little bit more,
+- **[07:07](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=427s)** — but you definitely need more protein because if you're starving yourself of protein,
+- **[07:12](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=432s)** — you're not going to be able to salvage your muscles.
+- **[07:14](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=434s)** — A lot of people are on this Ozempic medication.
+- **[07:19](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=439s)** — And one of the main side effects of that is severe muscle loss.
+- **[07:24](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=444s)** — So here you are losing all this body fat.
+- **[07:26](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=446s)** — But you're also losing a lot of muscle protein.
+- **[07:30](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=450s)** — I'm not recommending that as a solution for losing weight.
+- **[07:34](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=454s)** — Number four, make sure you have enough cholesterol.
+- **[07:37](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=457s)** — You can get that from meats, dairy, butter, things like that.
+- **[07:42](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=462s)** — Number five, I would recommend taking a Pregnet alone.
+- **[07:45](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=465s)** — You can get this as a supplement.
+- **[07:47](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=467s)** — I would recommend starting out with like 30 milligrams.
+- **[07:51](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=471s)** — If you're male, maybe you start off with 100.
+- **[07:55](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=475s)** — There's not many side effects from taking this,
+- **[07:57](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=477s)** — but this is like a precursor that can give you the raw material
+- **[08:00](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=480s)** — to build these other hormones because taking these other hormones is a very complex thing.
+- **[08:05](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=485s)** — And so you have to know how much to take.
+- **[08:07](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=487s)** — And then when you take these other hormones like testosterone or estrogen or progesterone,
+- **[08:11](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=491s)** — that tends to shut off your ability to produce them even more.
+- **[08:15](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=495s)** — So if you take the precursor, it's a much safer way.
+- **[08:19](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=499s)** — And I would also recommend taking DHEA.
+- **[08:22](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=502s)** — If you're female, take 25 milligrams.
+- **[08:25](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=505s)** — If you're male, you can take 100 milligrams.
+- **[08:28](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=508s)** — DHEA also helps you build muscle and it's a precursor.
+- **[08:32](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=512s)** — Now, as far as taking Pregnet alone and taking DHEA,
+- **[08:37](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=517s)** — you know, I'm not telling you to take this.
+- **[08:39](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=519s)** — I mean, you can do these other things.
+- **[08:40](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=520s)** — But if you notice you have a loss of muscles, okay,
+- **[08:44](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=524s)** — and you want to do something to increase them, then maybe take them.
+- **[08:48](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=528s)** — But I'm not recommending everyone just get on these supplements.
+- **[08:51](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=531s)** — I think adding the exercise, making sure you have enough cholesterol,
+- **[08:55](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=535s)** — making sure you have enough sun for the infrared,
+- **[08:58](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=538s)** — I think that would be sufficient for most people.
+- **[09:01](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=541s)** — But as you get a little bit older and you start noticing the muscle loss,
+- **[09:05](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=545s)** — then you might want to take these other two things.
+- **[09:07](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=547s)** — Now, if you have not seen a very popular video
+- **[09:10](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=550s)** — on this infrared stimulation of the melatonin,
+- **[09:14](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=554s)** — I put this video up right here.
+- **[09:16](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=556s)** — Check that out.

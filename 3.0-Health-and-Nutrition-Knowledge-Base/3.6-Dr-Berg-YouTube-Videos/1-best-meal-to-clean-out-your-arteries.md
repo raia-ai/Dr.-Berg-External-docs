@@ -1,0 +1,145 @@
+# #1 Best Meal to Clean Out Your Arteries
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=23yNXtR-N1s](https://www.youtube.com/watch?v=23yNXtR-N1s)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=23yNXtR-N1s&t=0s)** — I want to tell you the number one best meal to clear out your arteries.
+- **[00:05](https://www.youtube.com/watch?v=23yNXtR-N1s&t=5s)** — I spent a lot of time talking about what not to eat.
+- **[00:08](https://www.youtube.com/watch?v=23yNXtR-N1s&t=8s)** — Today we're going to talk about what to eat.
+- **[00:10](https://www.youtube.com/watch?v=23yNXtR-N1s&t=10s)** — This is going to be quite surprising for most of you because it's not going to
+- **[00:13](https://www.youtube.com/watch?v=23yNXtR-N1s&t=13s)** — follow the traditional American Heart Association idea of what you should be eating.
+- **[00:18](https://www.youtube.com/watch?v=23yNXtR-N1s&t=18s)** — To figure out what to eat, we have to really look at the layer of tissue
+- **[00:22](https://www.youtube.com/watch?v=23yNXtR-N1s&t=22s)** — that's exposed to the blood going through your arteries.
+- **[00:24](https://www.youtube.com/watch?v=23yNXtR-N1s&t=24s)** — And that's called the endothelial layer that controls your blood pressure,
+- **[00:28](https://www.youtube.com/watch?v=23yNXtR-N1s&t=28s)** — both high and low.
+- **[00:29](https://www.youtube.com/watch?v=23yNXtR-N1s&t=29s)** — It also acts as a filter, especially as the blood vessels go through the
+- **[00:33](https://www.youtube.com/watch?v=23yNXtR-N1s&t=33s)** — kidney because that's what the kidney is.
+- **[00:35](https://www.youtube.com/watch?v=23yNXtR-N1s&t=35s)** — It's a filter.
+- **[00:35](https://www.youtube.com/watch?v=23yNXtR-N1s&t=35s)** — Also does other things like preventing clots.
+- **[00:38](https://www.youtube.com/watch?v=23yNXtR-N1s&t=38s)** — It has an immune component.
+- **[00:39](https://www.youtube.com/watch?v=23yNXtR-N1s&t=39s)** — One other very unique thing about it is that the fuel that it
+- **[00:43](https://www.youtube.com/watch?v=23yNXtR-N1s&t=43s)** — prefers is actually glucose.
+- **[00:45](https://www.youtube.com/watch?v=23yNXtR-N1s&t=45s)** — Realize you don't have to consume glucose to feed it.
+- **[00:48](https://www.youtube.com/watch?v=23yNXtR-N1s&t=48s)** — Your body can very easily make glucose because it uses glucose as the
+- **[00:54](https://www.youtube.com/watch?v=23yNXtR-N1s&t=54s)** — That means it also needs insulin to hold this glucose in, which means
+- **[01:01](https://www.youtube.com/watch?v=23yNXtR-N1s&t=61s)** — that inside of the artery is very susceptible to problems with insulin.
+- **[01:05](https://www.youtube.com/watch?v=23yNXtR-N1s&t=65s)** — The majority of the population has this insulin resistance problem.
+- **[01:09](https://www.youtube.com/watch?v=23yNXtR-N1s&t=69s)** — Why is that so important to know?
+- **[01:11](https://www.youtube.com/watch?v=23yNXtR-N1s&t=71s)** — Because if you have an insulin deficiency, you're going to have a
+- **[01:14](https://www.youtube.com/watch?v=23yNXtR-N1s&t=74s)** — deficiency of fuel.
+- **[01:15](https://www.youtube.com/watch?v=23yNXtR-N1s&t=75s)** — How do you develop insulin resistance?
+- **[01:17](https://www.youtube.com/watch?v=23yNXtR-N1s&t=77s)** — By consuming things that increase insulin.
+- **[01:20](https://www.youtube.com/watch?v=23yNXtR-N1s&t=80s)** — And that would be the chronic consumption of carbohydrates, snacking.
+- **[01:24](https://www.youtube.com/watch?v=23yNXtR-N1s&t=84s)** — Both snacking too much and the consumption of too many carbohydrates
+- **[01:27](https://www.youtube.com/watch?v=23yNXtR-N1s&t=87s)** — creates a situation of insulin resistance.
+- **[01:30](https://www.youtube.com/watch?v=23yNXtR-N1s&t=90s)** — The next thing I want to talk about is nitric oxide.
+- **[01:33](https://www.youtube.com/watch?v=23yNXtR-N1s&t=93s)** — The nitric oxide relaxes the vessels.
+- **[01:36](https://www.youtube.com/watch?v=23yNXtR-N1s&t=96s)** — They help keep the arteries from becoming stiff.
+- **[01:39](https://www.youtube.com/watch?v=23yNXtR-N1s&t=99s)** — They really support that endothelial layer of the inside of the arteries.
+- **[01:43](https://www.youtube.com/watch?v=23yNXtR-N1s&t=103s)** — Vitamin D is another thing that triggers nitric oxide.
+- **[01:47](https://www.youtube.com/watch?v=23yNXtR-N1s&t=107s)** — Vitamin D is so powerful and potent at helping support that endothelial layer.
+- **[01:54](https://www.youtube.com/watch?v=23yNXtR-N1s&t=114s)** — This is why so many people that are low in vitamin D have a problem with
+- **[01:58](https://www.youtube.com/watch?v=23yNXtR-N1s&t=118s)** — high blood pressure.
+- **[01:58](https://www.youtube.com/watch?v=23yNXtR-N1s&t=118s)** — Why?
+- **[01:59](https://www.youtube.com/watch?v=23yNXtR-N1s&t=119s)** — Because vitamin D3 supports nitric oxide.
+- **[02:02](https://www.youtube.com/watch?v=23yNXtR-N1s&t=122s)** — There's a couple other things that trigger nitric oxide.
+- **[02:05](https://www.youtube.com/watch?v=23yNXtR-N1s&t=125s)** — One is arginine.
+- **[02:06](https://www.youtube.com/watch?v=23yNXtR-N1s&t=126s)** — This is why a lot of people are taking it as a supplement to help
+- **[02:09](https://www.youtube.com/watch?v=23yNXtR-N1s&t=129s)** — lower your blood pressure.
+- **[02:10](https://www.youtube.com/watch?v=23yNXtR-N1s&t=130s)** — Another interesting thing about nitric oxide is testosterone increases
+- **[02:16](https://www.youtube.com/watch?v=23yNXtR-N1s&t=136s)** — nitric oxide.
+- **[02:17](https://www.youtube.com/watch?v=23yNXtR-N1s&t=137s)** — And fortunately, nowadays, the big reason why people have low testosterone is all
+- **[02:21](https://www.youtube.com/watch?v=23yNXtR-N1s&t=141s)** — the plastics in the environment because that plastic can directly shut down
+- **[02:27](https://www.youtube.com/watch?v=23yNXtR-N1s&t=147s)** — your testosterone.
+- **[02:28](https://www.youtube.com/watch?v=23yNXtR-N1s&t=148s)** — Another thing that's really important in increasing nitric oxide is magnesium.
+- **[02:32](https://www.youtube.com/watch?v=23yNXtR-N1s&t=152s)** — Magnesium tends to relax muscle spasms, tends to reduce cortisol.
+- **[02:38](https://www.youtube.com/watch?v=23yNXtR-N1s&t=158s)** — And think about what cortisol does.
+- **[02:40](https://www.youtube.com/watch?v=23yNXtR-N1s&t=160s)** — It increases stress.
+- **[02:41](https://www.youtube.com/watch?v=23yNXtR-N1s&t=161s)** — What's going to happen to your blood pressure?
+- **[02:43](https://www.youtube.com/watch?v=23yNXtR-N1s&t=163s)** — It's going to increase your blood pressure.
+- **[02:45](https://www.youtube.com/watch?v=23yNXtR-N1s&t=165s)** — The other thing that's interesting about magnesium is that magnesium is a
+- **[02:48](https://www.youtube.com/watch?v=23yNXtR-N1s&t=168s)** — very potent thing to keep calcium from building up inside the arteries.
+- **[02:53](https://www.youtube.com/watch?v=23yNXtR-N1s&t=173s)** — Magnesium and vitamin D can help keep that calcium from even ending up in
+- **[02:59](https://www.youtube.com/watch?v=23yNXtR-N1s&t=179s)** — the arteries in the first place.
+- **[03:00](https://www.youtube.com/watch?v=23yNXtR-N1s&t=180s)** — Vitamin K2 also keeps calcium from building up in the artery.
+- **[03:04](https://www.youtube.com/watch?v=23yNXtR-N1s&t=184s)** — The first thing I'm presenting to you is the various nutrients that are
+- **[03:07](https://www.youtube.com/watch?v=23yNXtR-N1s&t=187s)** — really important in supporting this artery.
+- **[03:09](https://www.youtube.com/watch?v=23yNXtR-N1s&t=189s)** — And then we're going to translate that to the best meal.
+- **[03:12](https://www.youtube.com/watch?v=23yNXtR-N1s&t=192s)** — I always like to take what mainstream recommends to eat to prevent heart
+- **[03:18](https://www.youtube.com/watch?v=23yNXtR-N1s&t=198s)** — problems and really look at that, but in the opposite direction.
+- **[03:23](https://www.youtube.com/watch?v=23yNXtR-N1s&t=203s)** — Because if we take a look at Cheerios, you can see this little
+- **[03:26](https://www.youtube.com/watch?v=23yNXtR-N1s&t=206s)** — certification thing right here, which says American Heart Association
+- **[03:31](https://www.youtube.com/watch?v=23yNXtR-N1s&t=211s)** — certified meats criteria for heart healthy food.
+- **[03:35](https://www.youtube.com/watch?v=23yNXtR-N1s&t=215s)** — All you need to have to get this little certification is if 51% of those
+- **[03:41](https://www.youtube.com/watch?v=23yNXtR-N1s&t=221s)** — ingredients are whole grains.
+- **[03:42](https://www.youtube.com/watch?v=23yNXtR-N1s&t=222s)** — You can have refined grains in there.
+- **[03:44](https://www.youtube.com/watch?v=23yNXtR-N1s&t=224s)** — You can have sugars in there and it's still heart healthy.
+- **[03:46](https://www.youtube.com/watch?v=23yNXtR-N1s&t=226s)** — Hmm.
+- **[03:47](https://www.youtube.com/watch?v=23yNXtR-N1s&t=227s)** — I don't think so.
+- **[03:48](https://www.youtube.com/watch?v=23yNXtR-N1s&t=228s)** — I also need to show you another heart healthy thing that's
+- **[03:52](https://www.youtube.com/watch?v=23yNXtR-N1s&t=232s)** — recommended seed oils.
+- **[03:54](https://www.youtube.com/watch?v=23yNXtR-N1s&t=234s)** — That's what they recommend.
+- **[03:55](https://www.youtube.com/watch?v=23yNXtR-N1s&t=235s)** — If we look at the mainstream recommendation, they basically recommend
+- **[03:59](https://www.youtube.com/watch?v=23yNXtR-N1s&t=239s)** — whole grains, unsaturated seed oils for the heart.
+- **[04:03](https://www.youtube.com/watch?v=23yNXtR-N1s&t=243s)** — Both of those items will start to raise insulin.
+- **[04:06](https://www.youtube.com/watch?v=23yNXtR-N1s&t=246s)** — We're also told to avoid saturated fat.
+- **[04:08](https://www.youtube.com/watch?v=23yNXtR-N1s&t=248s)** — Things with saturated fat have cholesterol and that can damage
+- **[04:12](https://www.youtube.com/watch?v=23yNXtR-N1s&t=252s)** — the heart and clog our arteries.
+- **[04:14](https://www.youtube.com/watch?v=23yNXtR-N1s&t=254s)** — This is why people say you need to avoid red meat, but they're
+- **[04:18](https://www.youtube.com/watch?v=23yNXtR-N1s&t=258s)** — not against coconut oil.
+- **[04:19](https://www.youtube.com/watch?v=23yNXtR-N1s&t=259s)** — One teaspoon of coconut oil has more cholesterol than seven ounces of a
+- **[04:25](https://www.youtube.com/watch?v=23yNXtR-N1s&t=265s)** — steak, but we're not against coconut oil, but we are against meat.
+- **[04:29](https://www.youtube.com/watch?v=23yNXtR-N1s&t=269s)** — There's a tremendous amount of false information in relationship
+- **[04:32](https://www.youtube.com/watch?v=23yNXtR-N1s&t=272s)** — to what's good for the heart.
+- **[04:35](https://www.youtube.com/watch?v=23yNXtR-N1s&t=275s)** — The statistics on heart disease are getting worse and worse and worse.
+- **[04:38](https://www.youtube.com/watch?v=23yNXtR-N1s&t=278s)** — What mainstream is recommending is not working.
+- **[04:40](https://www.youtube.com/watch?v=23yNXtR-N1s&t=280s)** — The best meal that you can eat to support a healthy artery, to help
+- **[04:46](https://www.youtube.com/watch?v=23yNXtR-N1s&t=286s)** — support a healthy heart.
+- **[04:48](https://www.youtube.com/watch?v=23yNXtR-N1s&t=288s)** — The first thing to know is we want to consume something that
+- **[04:51](https://www.youtube.com/watch?v=23yNXtR-N1s&t=291s)** — does not mess up our insulin.
+- **[04:53](https://www.youtube.com/watch?v=23yNXtR-N1s&t=293s)** — We're going to have to go low carb.
+- **[04:56](https://www.youtube.com/watch?v=23yNXtR-N1s&t=296s)** — Ketogenic is going to be best because with ketones, you can bypass
+- **[05:00](https://www.youtube.com/watch?v=23yNXtR-N1s&t=300s)** — this insulin resistance and feed that layer of the insulin, the artery,
+- **[05:05](https://www.youtube.com/watch?v=23yNXtR-N1s&t=305s)** — and make sure it gets enough fuel.
+- **[05:08](https://www.youtube.com/watch?v=23yNXtR-N1s&t=308s)** — The primary part of this meal is going to be red meat.
+- **[05:12](https://www.youtube.com/watch?v=23yNXtR-N1s&t=312s)** — The exact thing that they tell you not to eat.
+- **[05:14](https://www.youtube.com/watch?v=23yNXtR-N1s&t=314s)** — You can do a hamburger or something like that.
+- **[05:17](https://www.youtube.com/watch?v=23yNXtR-N1s&t=317s)** — I would just make sure it's grass fed.
+- **[05:19](https://www.youtube.com/watch?v=23yNXtR-N1s&t=319s)** — If you're going to have a burger, I would highly recommend
+- **[05:23](https://www.youtube.com/watch?v=23yNXtR-N1s&t=323s)** — you melt some cheese on it.
+- **[05:24](https://www.youtube.com/watch?v=23yNXtR-N1s&t=324s)** — I would find some raw cheese because raw cheese is higher in vitamin K2.
+- **[05:30](https://www.youtube.com/watch?v=23yNXtR-N1s&t=330s)** — Red meat is also loaded with zinc, which will directly
+- **[05:34](https://www.youtube.com/watch?v=23yNXtR-N1s&t=334s)** — improve your testosterone.
+- **[05:36](https://www.youtube.com/watch?v=23yNXtR-N1s&t=336s)** — As far as how much it could range anywhere from six ounces to eight ounces.
+- **[05:40](https://www.youtube.com/watch?v=23yNXtR-N1s&t=340s)** — The mistake that a lot of people make is they start going plant based
+- **[05:44](https://www.youtube.com/watch?v=23yNXtR-N1s&t=344s)** — protein that are not very bioavailable.
+- **[05:47](https://www.youtube.com/watch?v=23yNXtR-N1s&t=347s)** — We'll just think about what the heart is.
+- **[05:48](https://www.youtube.com/watch?v=23yNXtR-N1s&t=348s)** — It's like a muscle and we need to give it the raw material to
+- **[05:51](https://www.youtube.com/watch?v=23yNXtR-N1s&t=351s)** — help support it, to help heal it.
+- **[05:53](https://www.youtube.com/watch?v=23yNXtR-N1s&t=353s)** — Now let's get into the second part of this meal.
+- **[05:55](https://www.youtube.com/watch?v=23yNXtR-N1s&t=355s)** — And I'm going to recommend that you have a salad.
+- **[05:59](https://www.youtube.com/watch?v=23yNXtR-N1s&t=359s)** — I primarily do arugula, which also will increase nitric oxide.
+- **[06:02](https://www.youtube.com/watch?v=23yNXtR-N1s&t=362s)** — It also has vitamin C that's good for the arteries.
+- **[06:05](https://www.youtube.com/watch?v=23yNXtR-N1s&t=365s)** — It also has some vitamin E.
+- **[06:07](https://www.youtube.com/watch?v=23yNXtR-N1s&t=367s)** — The other thing that can help you is pumpkin seeds.
+- **[06:10](https://www.youtube.com/watch?v=23yNXtR-N1s&t=370s)** — Pumpkin seeds have high magnesium, high zinc and selenium.
+- **[06:15](https://www.youtube.com/watch?v=23yNXtR-N1s&t=375s)** — Pumpkin seeds can increase nitric oxide.
+- **[06:17](https://www.youtube.com/watch?v=23yNXtR-N1s&t=377s)** — Maybe just take a handful of pumpkin seeds with your meal.
+- **[06:20](https://www.youtube.com/watch?v=23yNXtR-N1s&t=380s)** — The last thing I want to bring up is vitamin D.
+- **[06:21](https://www.youtube.com/watch?v=23yNXtR-N1s&t=381s)** — To support a healthy heart, there's nothing more powerful than the vitamin D3.
+- **[06:26](https://www.youtube.com/watch?v=23yNXtR-N1s&t=386s)** — It's virtually impossible to get your vitamin D from food unless you're an
+- **[06:32](https://www.youtube.com/watch?v=23yNXtR-N1s&t=392s)** — you're eating all this seal fat, which you're probably not.
+- **[06:35](https://www.youtube.com/watch?v=23yNXtR-N1s&t=395s)** — So you're going to have to get it from the sun.
+- **[06:37](https://www.youtube.com/watch?v=23yNXtR-N1s&t=397s)** — When you're getting the sun, get a lot of it.
+- **[06:40](https://www.youtube.com/watch?v=23yNXtR-N1s&t=400s)** — Just don't get burnt.
+- **[06:40](https://www.youtube.com/watch?v=23yNXtR-N1s&t=400s)** — In the winter, you can't get it from the sun.
+- **[06:42](https://www.youtube.com/watch?v=23yNXtR-N1s&t=402s)** — So you're going to have to take it as a supplement.
+- **[06:44](https://www.youtube.com/watch?v=23yNXtR-N1s&t=404s)** — As a maintenance dosage, you need at least 10,000 I use every single day.
+- **[06:49](https://www.youtube.com/watch?v=23yNXtR-N1s&t=409s)** — That will greatly help your heart and many other things.
+- **[06:51](https://www.youtube.com/watch?v=23yNXtR-N1s&t=411s)** — Thanks for watching.
+- **[06:52](https://www.youtube.com/watch?v=23yNXtR-N1s&t=412s)** — And I will see you in the next video.

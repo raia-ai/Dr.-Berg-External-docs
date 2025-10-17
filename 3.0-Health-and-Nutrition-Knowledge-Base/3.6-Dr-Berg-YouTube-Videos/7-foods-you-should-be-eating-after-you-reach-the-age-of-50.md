@@ -1,0 +1,94 @@
+# 7 Foods You Should Be Eating After You Reach the Age of 50
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=9VJxmAvQX9s](https://www.youtube.com/watch?v=9VJxmAvQX9s)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=0s)** — Today we're going to discuss the seven foods you should be eating after you reach the age of 50.
+- **[00:06](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=6s)** — And of course, I'm almost there. I'm 49. I'm being very sarcastic. I'm 59. And I eat a lot of
+- **[00:11](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=11s)** — these foods I'm going to share with you. But I really want to talk about why you should be
+- **[00:16](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=16s)** — eating these foods first. Obviously, you want to eat foods that will help to extend longevity,
+- **[00:21](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=21s)** — right? So we should probably use a longevity expert. We're going to talk about Dr. David
+- **[00:25](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=25s)** — He's one of the leading experts on longevity. He actually studies these genes called sirtuins.
+- **[00:31](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=31s)** — Sirtuins basically are longevity genes. One of the things that will increase sirtuins is called
+- **[00:38](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=38s)** — NAD. NAD is inside your mitochondria converting food to energy, then pushing it down the
+- **[00:46](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=46s)** — assembly line until eventually it helps recharge a certain battery. As we age,
+- **[00:51](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=51s)** — our NAD goes down. At midlife, they're down like 50%. A lot of the anti-agen experts out there
+- **[00:57](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=57s)** — are educating people about boosting this NAD. There's a lot of supplements out there that help
+- **[01:02](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=62s)** — boost the NAD. People are getting injections. I think even David Sinclair came up with his
+- **[01:07](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=67s)** — own supplement. There's a whole bunch of drama on that, which I'm not going to get into. But
+- **[01:11](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=71s)** — all of those compounds have this basic derivative of where they come from. And that
+- **[01:18](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=78s)** — is plain old simple niacin, which is B3. Then the question is why not just take more niacin?
+- **[01:23](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=83s)** — Niacin is so inexpensive. That's not the whole picture, but it's one piece of the puzzle.
+- **[01:29](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=89s)** — There are other reasons. And I'm going to get to those. But I first want to show you
+- **[01:33](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=93s)** — a very interesting book. Now, what does this book have to do with niacin? Well,
+- **[01:39](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=99s)** — let me explain. In the late 1800s and early 1900s, there was a disease that was rampant
+- **[01:46](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=106s)** — called plegra. For many years, they thought it was an infection. But to make a long story short,
+- **[01:50](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=110s)** — it wasn't an infection. It was a man-made thing. They isolated it. It comes from consuming
+- **[01:56](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=116s)** — a diet of just corn. So apparently in corn, niacin, B3, is locked up. And so when you just
+- **[02:04](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=124s)** — mash this corn up and live on a diet of corn, which a lot of people did, you end up with
+- **[02:09](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=129s)** — plegra. But wait a second. I thought corn has been around for a long time. Like the
+- **[02:16](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=136s)** — to our knowledge didn't get plegra. And that is because they use a special technique of adding
+- **[02:21](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=141s)** — lime, which is kind of a calcium carbonate. And they would soak their corn overnight. And this
+- **[02:27](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=147s)** — alkalized water allowed the niacin to be freed up. But of course, in the late 1800s
+- **[02:33](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=153s)** — and early 1900s, they omitted that little step of adding lime. I want to show you
+- **[02:38](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=158s)** — another book. It's called Niacin, The Real Story. Fascinating book by an author named
+- **[02:45](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=165s)** — Dr. Abram Hoffer. He was also a biochemist. I want to read you the first line of the first
+- **[02:50](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=170s)** — chapter. Many people have no idea how many illnesses are caused by too little niacin.
+- **[02:56](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=176s)** — And particularly no one realizes how many diseases can be cured with mega doses of niacin. Now,
+- **[03:02](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=182s)** — Dr. Hoffer was one of the doctors who started the Ortho Molecular Medicine Group,
+- **[03:08](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=188s)** — where they use high doses of nutrients to create therapeutic dosage to correct all sorts
+- **[03:13](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=193s)** — of body problems. But in this book, they talk about how niacin is the building block,
+- **[03:18](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=198s)** — the precursor for the NAD, which is everything to do with allowing the mitochondria to work.
+- **[03:24](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=204s)** — Now that we have the basics down, now we need to talk about why does NAD decrease as we age?
+- **[03:30](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=210s)** — I don't want to go into a lot of details on that, but I will just tell you one of the
+- **[03:35](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=215s)** — molecules is called C38 if you want to look it up. So as we get older, C38 increases,
+- **[03:41](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=221s)** — and then our NAD goes down. So today we're going to talk about all the foods that can increase
+- **[03:46](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=226s)** — the NAD. So let's start with number one. What will be the first one? Well, let's first talk
+- **[03:50](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=230s)** — about the food that has the most niacin. Okay, that would be very important as well, right?
+- **[03:55](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=235s)** — What food has the most niacin? If you look it up on ChatGPT, it will give you the
+- **[04:00](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=240s)** — incorrect answer. In fact, I had an argument with ChatGPT going back and forth because the
+- **[04:04](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=244s)** — first food that it gave me that has the most niacin was chicken. And I'm like, that's not
+- **[04:09](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=249s)** — the right answer would be beef liver. Okay, but number two is the food that they are telling you
+- **[04:16](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=256s)** — to avoid, which is really wild. And that would be grass fed red meat. It's loaded, not just with
+- **[04:25](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=265s)** — niacin B3, but so many other B vitamins and so many other nutrients that can help you live
+- **[04:31](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=271s)** — a long healthy life. Chicken is not at the top of the list. Okay, chicken is very high in
+- **[04:36](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=276s)** — omega-6 fatty acids. It's inflammatory. It's lower on the list, but it does have some niacin.
+- **[04:41](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=281s)** — But organ meats, red meat. Okay, if you've been watching my channel, you know I recommend red meat
+- **[04:48](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=288s)** — for a lot of people, a lot of conditions. I consume it as the main protein in my diet
+- **[04:53](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=293s)** — for many reasons. And now you know one is just niacin, getting enough niacin. Now,
+- **[04:59](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=299s)** — some people are not going to eat organ meats or red meat. Well, then have nutritional yeast.
+- **[05:04](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=304s)** — Number three, foods that have probiotics or microbes. And that would be sauerkraut.
+- **[05:10](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=310s)** — And the reason sauerkraut is at the top of the list. I'm talking about raw sauerkraut.
+- **[05:14](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=314s)** — Sauerkraut has a good amount of niacin. And if you can get the sauerkraut that is from the
+- **[05:19](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=319s)** — purple cabbage, you'll get even something better. And of course, certain types of yogurt. You
+- **[05:26](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=326s)** — really want to make sure you get a quality yogurt or better yet, just make your own.
+- **[05:29](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=329s)** — Number four, parsley. I personally don't like parsley. So I might have it as a spice,
+- **[05:34](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=334s)** — but also celery and even chamomile tea. And also as a side note, and this is not part of this,
+- **[05:41](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=341s)** — sulforaphane in cruciferous vegetables, especially broccoli sprouts and radish sprouts.
+- **[05:47](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=347s)** — So if you could put some of that on your salad or even consume any of the cruciferous
+- **[05:52](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=352s)** — vegetables, you are going to get a good amount of sulforaphane to increase your NAD.
+- **[05:56](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=356s)** — Of course, cruciferous also do a lot of other things too. They can help you detoxify chemicals
+- **[06:00](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=360s)** — and they do multiple additional things as well. Okay, next compound. And then we'll talk about
+- **[06:05](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=365s)** — the foods is anthocyanins. Those should be in anything kind of blue and purple. Okay,
+- **[06:13](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=373s)** — like blueberries, like blackberries and purple cabbage, which I mentioned is part of the
+- **[06:19](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=379s)** — sauerkraut. And of course you also have the grape as well, but they're a bit sweet. The
+- **[06:24](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=384s)** — blackberry and the blueberry are a little bit better. And the purple cabbage is also awesome.
+- **[06:28](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=388s)** — All right, next one in the list is curcumin from turmeric. Okay. And I think that one of the
+- **[06:34](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=394s)** — best ways to consume that is through curries. Okay, curries. Unfortunately, a lot of the
+- **[06:39](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=399s)** — curries had so much sugar. So if you made a curry with certain types of grass fed lamb,
+- **[06:45](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=405s)** — for example, that would be awesome. Or even grass fed beef, you would get exactly what you
+- **[06:49](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=409s)** — need. All right, number six, we need to boost quercetin. Okay. And the food that has the most
+- **[06:55](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=415s)** — quercetin is onions. I live on onions. I consume onions on a daily basis with my eggs,
+- **[07:02](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=422s)** — with my red meat. And so you're going to get a lot of quercetin when you have onions. All
+- **[07:06](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=426s)** — right. And number seven, omega-3 fatty acids, EPA and DHA. And this food would be wild caught
+- **[07:12](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=432s)** — salmon, but it's other things too. You can do any of the fatty fishes. You can also do
+- **[07:17](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=437s)** — what I like to do at least once a week or even twice a week is consume cod liver in a can.
+- **[07:24](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=444s)** — Wild caught cod liver. I love it, but I'll just have the cod liver itself. But also there's so
+- **[07:29](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=449s)** — many other benefits with omega-3 fatty acids. You're going to help reduce inflammation. And
+- **[07:33](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=453s)** — also the cod liver oil has not just this omega-3 fatty acid, but it also has vitamin A and
+- **[07:41](https://www.youtube.com/watch?v=9VJxmAvQX9s&t=461s)** — vitamin D. So thanks for watching and I will see you in the next video.

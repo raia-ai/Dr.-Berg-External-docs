@@ -1,0 +1,169 @@
+# These Mistakes Are Super Unhealthy!
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=_JrqyBwy_eo](https://www.youtube.com/watch?v=_JrqyBwy_eo)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=0s)** — There are 11 common mistakes that a lot of people make when they take supplements.
+- **[00:05](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=5s)** — Now the first thing I want to mention is that I hear this a lot.
+- **[00:08](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=8s)** — We don't really need to take supplements because we can get all we need from our diet.
+- **[00:14](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=14s)** — And it's almost impossible to get vitamin D from food.
+- **[00:17](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=17s)** — So it's not actually very easy to get all of our nutrients even if we ate a really good diet.
+- **[00:22](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=22s)** — Not to mention certain foods that the pletus of nutrients, especially if you're doing a lot of refined carbs.
+- **[00:28](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=28s)** — Okay, number one, let's talk about timing.
+- **[00:31](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=31s)** — Okay, during the day, when should you take your supplements?
+- **[00:34](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=34s)** — Personally, I like to take almost all of my supplements in the morning
+- **[00:37](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=37s)** — because I want all these cofactors to be available in the first part of the day when I need more energy.
+- **[00:41](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=41s)** — In fact, I switched my intermittent fasting pattern where I'm doing two meals.
+- **[00:46](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=46s)** — One is breakfast and then a late lunch and then I don't have a dinner.
+- **[00:50](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=50s)** — That seems to work.
+- **[00:51](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=51s)** — And the reason I did that is because it gives me more energy during the day rather than doing fasting.
+- **[00:57](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=57s)** — And then eating late at night when I don't need the energy before I go to bed.
+- **[01:02](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=62s)** — Now, as far as taking electrolytes right before bed, I don't really recommend it because
+- **[01:07](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=67s)** — electrolytes can push fluid out of your body.
+- **[01:11](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=71s)** — Now, as far as vitamin D goes, some people do better to take the vitamin D in the morning.
+- **[01:17](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=77s)** — Some people do better right before bed. It tends to help them sleep better.
+- **[01:20](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=80s)** — You can experiment with that.
+- **[01:22](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=82s)** — The other thing I want to mention about the timing is that you don't want to take
+- **[01:26](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=86s)** — any calcium supplements right before you eat because calcium neutralizes the stomach acid
+- **[01:31](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=91s)** — and it's going to inhibit your digestion.
+- **[01:35](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=95s)** — And if you're taking a fat-soluble vitamin like vitamin C or the B vitamins, you can take them anytime.
+- **[01:40](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=100s)** — The next mistake I want to talk about is taking too many supplements at one time and trying to swallow them.
+- **[01:46](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=106s)** — I personally use myself as a human guinea pig for a long time.
+- **[01:49](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=109s)** — I've tried pretty much every single nutrient vitamin cleanse alternative program you can imagine.
+- **[01:55](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=115s)** — And one time, long ago, I decided to do a gallbladder flush.
+- **[02:02](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=122s)** — In this gallbladder flush, you take beetroot supplements and olive oil.
+- **[02:07](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=127s)** — I took a hand of these beetroot supplements, put it in my mouth, and washed them down with 12 ounces of oil.
+- **[02:15](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=135s)** — Big, big mistake. I should have used some water and I should have taken a little bit at a time
+- **[02:21](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=141s)** — because those beet supplements got stuck in my esophagus.
+- **[02:26](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=146s)** — And it was like I started getting chest pain. I thought it was going to die like a heart attack.
+- **[02:30](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=150s)** — Oh my gosh, I'm going to die from taking supplements.
+- **[02:34](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=154s)** — So I just kind of laid in a ball and just pushed through it and somehow I survived.
+- **[02:38](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=158s)** — But I don't recommend that. That was very, very scary.
+- **[02:40](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=160s)** — Some people do better just taking their supplements with a meal. It seems to go down easier.
+- **[02:47](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=167s)** — Next mistake is this. If you're trying to solve a health problem, whatever it is,
+- **[02:52](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=172s)** — and you introduce a lot of different supplements at one time, you're not going to know what worked.
+- **[02:57](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=177s)** — So always introduce them one at a time, especially if you're trying to solve some health problem.
+- **[03:02](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=182s)** — The next mistake is thinking these vitamins are going to work if your diet sucks.
+- **[03:10](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=190s)** — I have a personal example of this.
+- **[03:12](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=192s)** — Yes, I was eating too many carbs at one time, but I wasn't consuming enough protein, especially for breakfast.
+- **[03:19](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=199s)** — And no matter how many vitamins I took, I was still tired.
+- **[03:23](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=203s)** — What I really needed was protein. Once I had protein, I'm like, oh my gosh, everything works now.
+- **[03:27](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=207s)** — But also if you're eating too many carbs and things like that, you're going to get a lot of bloating.
+- **[03:31](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=211s)** — And I don't care how many vitamins you take for this or that. It's not going to create the effect.
+- **[03:36](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=216s)** — Next mistake is going for the cheapest vitamin possible, especially these one a days.
+- **[03:41](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=221s)** — If you read the label, which I have right here, I'm going to show you the first ingredient calcium carbonate,
+- **[03:49](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=229s)** — which is the type of calcium and cement.
+- **[03:51](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=231s)** — So they're putting the cheapest vitamins you could possibly imagine, mostly made from petroleum and chemicals.
+- **[03:58](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=238s)** — A lot of the vitamin companies out there are owned by either chemical companies,
+- **[04:04](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=244s)** — Big Pharma or some of the junk food brands.
+- **[04:07](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=247s)** — What I'm observing is they're not going for quality ingredients.
+- **[04:10](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=250s)** — They get the cheapest possible, especially when you get into antioxidants like beta carotene, for example,
+- **[04:16](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=256s)** — and you're taking it synthetically. There's some side effects.
+- **[04:19](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=259s)** — It shows that increases your risk for cancer.
+- **[04:22](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=262s)** — Of course, they're not doing a comparison with that study and using antioxidants from actual food.
+- **[04:28](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=268s)** — No, it's the synthetic version.
+- **[04:29](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=269s)** — It's probably not the best way to do it.
+- **[04:31](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=271s)** — And the other thing you'll notice with the synthetics is the RDAs are the same,
+- **[04:34](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=274s)** — supplying 100%, 100%, 100%. In nature, you don't have that.
+- **[04:40](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=280s)** — And of course, you have fillers, you have colorings.
+- **[04:43](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=283s)** — And sometimes people think that there's no difference between vitamins.
+- **[04:46](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=286s)** — The synthetics are the same as natural. Well, I don't think so.
+- **[04:51](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=291s)** — Now, there are a couple vitamins that I think are fine to take synthetically.
+- **[04:55](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=295s)** — One is niacin and then the other one is benfotamine.
+- **[04:59](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=299s)** — But for some of the other vitamins, I would try to go more natural
+- **[05:03](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=303s)** — or get the vitamins in the natural complex that nature has provided.
+- **[05:08](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=308s)** — Now, let's talk about the mistake sometimes people make with supplements and drug interactions.
+- **[05:14](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=314s)** — They're on a medication that's creating an effect.
+- **[05:17](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=317s)** — And then they want to take a supplement that also creates the same effect.
+- **[05:21](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=321s)** — Doctors don't like that because then that might make the problem worse.
+- **[05:26](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=326s)** — So if you're taking a medication for high blood pressure,
+- **[05:28](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=328s)** — and then you take a supplement to also help lower your high blood pressure
+- **[05:32](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=332s)** — and you end up with low blood pressure, then that might be an issue.
+- **[05:36](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=336s)** — So you need to check with your doctor so they can monitor that because
+- **[05:39](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=339s)** — I mean, my thought is why not introduce something natural?
+- **[05:43](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=343s)** — I'll give you an example. Let's say you're diabetic and you're taking metformin.
+- **[05:46](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=346s)** — Well, Berberine also creates an effect very similar to metformin.
+- **[05:50](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=350s)** — Why not work with the doctor to just take less of the metformin?
+- **[05:54](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=354s)** — Because that could have some side effects.
+- **[05:56](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=356s)** — One thing I want to say about antibiotics is that you should always take a probiotic
+- **[06:02](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=362s)** — when you're taking an antibiotic so you can at least salvage the good bacteria.
+- **[06:08](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=368s)** — But here's the thing. If you're on medication, let's say for example,
+- **[06:11](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=371s)** — for high blood pressure and you're taking magnesium and all of a sudden
+- **[06:14](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=374s)** — your blood pressure starts going too low. Is that really a bad thing?
+- **[06:19](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=379s)** — Why not just get with the doctor to take less of that medication?
+- **[06:22](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=382s)** — Because magnesium is such an important natural remedy for everything related to the
+- **[06:26](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=386s)** — heart. One of the worst medications you can take for your liver,
+- **[06:29](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=389s)** — which is over-the-counter, is Tylenol. You might want to try milk thistle,
+- **[06:34](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=394s)** — an herbal supplement that can actually minimize the damage of your liver
+- **[06:39](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=399s)** — from some of these other medications. Next mistake a lot of people make
+- **[06:43](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=403s)** — with supplements is that there's certain vitamin or mineral interactions
+- **[06:47](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=407s)** — that people need to know about. For example, if you're taking high doses of vitamin D3
+- **[06:53](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=413s)** — without magnesium, this could be a problem. You need magnesium for vitamin D to do its job.
+- **[07:01](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=421s)** — And without magnesium, vitamin D can't work. And also taking high levels of zinc
+- **[07:06](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=426s)** — over a long period of time, you can end up with a copper deficiency.
+- **[07:11](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=431s)** — So just realize that a lot of times these minerals go in pairs like sodium and potassium.
+- **[07:17](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=437s)** — If you're consuming a lot of salt without potassium, that could be a problem.
+- **[07:23](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=443s)** — This is why I don't recommend taking one mineral for a long period of time,
+- **[07:26](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=446s)** — especially if you're doing high dosage. I would rather you take the one mineral
+- **[07:30](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=450s)** — in a blend of other minerals or trace minerals just to make sure that you don't create another problem.
+- **[07:36](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=456s)** — Alright, next point I want to bring up is taking advice from someone
+- **[07:40](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=460s)** — that gives you an opinion about vitamins that's not really based on a good evaluation.
+- **[07:46](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=466s)** — There's not enough time in school to really fully understand about chemistry.
+- **[07:51](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=471s)** — All you have time to do is memorize things like this Krebs cycle,
+- **[07:55](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=475s)** — pass the test and move on to the next subject.
+- **[07:58](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=478s)** — So there's a big difference between learning and understanding and memorizing.
+- **[08:02](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=482s)** — They're not the same thing. So you really want to get opinions from people
+- **[08:05](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=485s)** — that have a lot of experience in the area of what you're trying to get an opinion on.
+- **[08:10](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=490s)** — Like you wouldn't want to take marriage advice from someone that's never been married.
+- **[08:14](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=494s)** — And one last point about this, I think it's really important.
+- **[08:17](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=497s)** — A lot of the institutions and journals do not like to publish anything positive on vitamin D.
+- **[08:24](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=504s)** — Now why would that be? Because it competes with the drug companies
+- **[08:27](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=507s)** — and vitamin D is very inexpensive because you can get it from the sun.
+- **[08:30](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=510s)** — Alright, next mistake I'm going to mention with supplements is not taking high enough doses.
+- **[08:37](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=517s)** — There's two reasons why people take supplements.
+- **[08:40](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=520s)** — One is to compensate for not having enough from their diet.
+- **[08:44](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=524s)** — The other reason is to create a therapeutic effect.
+- **[08:48](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=528s)** — And there's a lot of other reasons why high doses of certain vitamins are good.
+- **[08:51](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=531s)** — There's actually quite a few genetic weaknesses that make it more difficult to absorb certain nutrients.
+- **[08:58](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=538s)** — I recently had over 20 people get their DNA testing on vitamin D
+- **[09:05](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=545s)** — and 100% of them had at least one genetic problem or weakness with either absorbing vitamin D or converting.
+- **[09:14](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=554s)** — So the solution is just to take a little bit more.
+- **[09:16](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=556s)** — Another common vitamin that I think people are not taking enough of is vitamin B1.
+- **[09:22](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=562s)** — I mean the RDAs for vitamin B1 is ridiculous.
+- **[09:26](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=566s)** — Ridiculous. It's not going to do anything.
+- **[09:28](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=568s)** — Like they're 100 years old and they're just based on what you would need to prevent a deficiency.
+- **[09:36](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=576s)** — They're not based on correcting something or to create a therapeutic benefit.
+- **[09:42](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=582s)** — The other thing is if your stomach is not acid enough, it's too alkaline,
+- **[09:47](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=587s)** — you're not going to be able to absorb the minerals.
+- **[09:49](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=589s)** — You're not going to be able to break down B12 because you have to break down that protein that's connected to it.
+- **[09:54](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=594s)** — In which case you would need to take, you know,
+- **[09:57](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=597s)** — butane hydrochloride to acidify the stomach so you can absorb some of these nutrients.
+- **[10:01](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=601s)** — All right. The next point I want to talk about is if you are a vegan, right?
+- **[10:04](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=604s)** — You're not getting animal sources.
+- **[10:07](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=607s)** — So you really want to make sure you take additional nutrients on top of your diet because you're going to be deficient.
+- **[10:13](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=613s)** — You would need to take B12. You need D3, omega-3 fatty acids.
+- **[10:18](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=618s)** — If you don't want to get it from fish sources, you can get it from algae, iron, zinc, iodine,
+- **[10:24](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=624s)** — and calcium. Now let's get to the last one, dosing.
+- **[10:28](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=628s)** — And when I'm talking about dosing, I'm talking about how many times a week do you need vitamin D?
+- **[10:33](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=633s)** — This is so, so important simply because vitamin D is the most important vitamin because of
+- **[10:39](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=639s)** — what happens when you're deficient.
+- **[10:41](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=641s)** — The RDAs that they originally came up with, which is, you know, 600 IUs,
+- **[10:46](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=646s)** — is sufficient, but there's another system that a lot of people do not know about.
+- **[10:52](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=652s)** — And this system is called the paracrine-autocrine system.
+- **[10:58](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=658s)** — So this system is mainly dependent on either the sun converting the cholesterol in your skin to vitamin D
+- **[11:05](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=665s)** — or the vitamin D in your food or the vitamin D in your supplements.
+- **[11:11](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=671s)** — And the half-life for that is like 24 hours.
+- **[11:15](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=675s)** — So after 24 hours, it's pretty much gone.
+- **[11:18](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=678s)** — So if you're trying to support your immune system, you need to be taking vitamin D every single day
+- **[11:24](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=684s)** — or getting sun every single day, or it's very likely you're going to be deficient.
+- **[11:28](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=688s)** — The amount that I would recommend as a maintenance would be no less than 10,000 IUs.
+- **[11:33](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=693s)** — That's not unreasonable. It might sound like a lot. It's not.
+- **[11:37](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=697s)** — But the dangers of having a vitamin D deficiency are much, much greater than having any excess.
+- **[11:44](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=704s)** — And since we're ending off on this vitamin D topic, if you have not seen this interview with
+- **[11:49](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=709s)** — Professor Hollis, who is the pioneer in vitamin D research, you have to check it out.
+- **[11:54](https://www.youtube.com/watch?v=_JrqyBwy_eo&t=714s)** — We go into this topic a lot more in depth. And I put that video up right here. Check it out.

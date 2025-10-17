@@ -1,0 +1,116 @@
+# This Has Gone Too Far!
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=ZGEWoPmvPJY](https://www.youtube.com/watch?v=ZGEWoPmvPJY)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=0s)** — Now what would happen if you ate like a cow?
+- **[00:03](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=3s)** — I'm not talking about when you look out into the field and you see this cow grazing on the grass.
+- **[00:09](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=9s)** — I'm talking about what a cow eats in the last 200 days of its life.
+- **[00:13](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=13s)** — This cow is forced to consume a tremendous amount of starch.
+- **[00:17](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=17s)** — The cow is prevented from doing a lot of exercise because they're very small spaces
+- **[00:21](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=21s)** — and they're put in front of the starch three times a day.
+- **[00:24](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=24s)** — Their diet the last 200 days is about between 70 and 90 percent starch.
+- **[00:29](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=29s)** — Take a look at our food pyramid for a second.
+- **[00:33](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=33s)** — You can see at the very top, used sparingly, fats, oils and sweets.
+- **[00:37](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=37s)** — It says not to eat a lot of sugar.
+- **[00:38](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=38s)** — If we look at the very bottom, the majority of calories, 6 to 11 servings,
+- **[00:44](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=44s)** — should be in the form of starch.
+- **[00:46](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=46s)** — And that would be like bread, pasta, cereal, crackers, biscuits, things like that.
+- **[00:49](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=49s)** — The average American consumes between 65 to 70 percent of their calories as starches.
+- **[00:58](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=58s)** — I want to show you something. Corn chips.
+- **[01:00](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=60s)** — Okay, and we look at the back of the label.
+- **[01:01](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=61s)** — Tell me how many sugars we have.
+- **[01:03](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=63s)** — Zero sugars. How many carbohydrates?
+- **[01:05](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=65s)** — 18 grams. That's per serving size, per 15 chips.
+- **[01:09](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=69s)** — Now let's look at flour tortillas.
+- **[01:11](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=71s)** — Zero sugars, 25 grams of carbohydrate.
+- **[01:16](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=76s)** — Let's not forget corn flakes.
+- **[01:17](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=77s)** — Three grams of sugar and 35 grams of carbohydrate.
+- **[01:21](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=81s)** — I want to explain the very big confusion that people have related to carbohydrates.
+- **[01:25](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=85s)** — I think everyone knows that sugar is not that healthy.
+- **[01:28](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=88s)** — What about carbohydrates? If we deduct the sugars in the fiber, what is left?
+- **[01:32](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=92s)** — And the answer is starch.
+- **[01:34](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=94s)** — What's the difference between a sugar and a starch?
+- **[01:38](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=98s)** — A sugar molecule, like we call glucose, is like just one molecule of sugar.
+- **[01:42](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=102s)** — So sugar, and we're just going to talk about the basic foundation or building block of sugar, is glucose.
+- **[01:48](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=108s)** — But with a starch, you have a chain of glucose stuck together.
+- **[01:52](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=112s)** — Now you know what a starch is.
+- **[01:53](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=113s)** — And no, we're not just talking about whole starches like potato or even like rice or even whole grains.
+- **[02:00](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=120s)** — I'm talking about the refined stuff like this right here.
+- **[02:03](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=123s)** — Corn starch.
+- **[02:05](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=125s)** — And by the way, we consume a tremendous amount of this refined corn starch every single day in a lot of our foods.
+- **[02:14](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=134s)** — Let's just go back to this food pyramid for a second.
+- **[02:16](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=136s)** — You see the bottom foundation of the food pyramid should be mostly starches.
+- **[02:20](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=140s)** — 65% of our calories should be in the form of starches.
+- **[02:24](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=144s)** — These are actually hidden sugars.
+- **[02:26](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=146s)** — Ultra-processed starch is worse than sugar.
+- **[02:29](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=149s)** — These ultra-processed starches will jack up your blood sugar way more than just glucose.
+- **[02:36](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=156s)** — When you look at this food pyramid, what you're looking at is you're looking at a lot of refined carbohydrates we are recommended to eat.
+- **[02:44](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=164s)** — And the only reason that that's recommended is because the lobbyist groups are very very powerful.
+- **[02:50](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=170s)** — The food companies are extremely powerful.
+- **[02:52](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=172s)** — Only four companies control the entire grain market and they have a tremendous amount of money.
+- **[02:58](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=178s)** — Unfortunately, the scientists who actually create the food guidelines are just unfortunately very corrupt because it was found that over 90% of them had some type of vested interest or funding from Big Food.
+- **[03:12](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=192s)** — What's really unique about these starches is that they're incredibly profitable.
+- **[03:17](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=197s)** — You can buy one cubic ton of corn for $198.
+- **[03:23](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=203s)** — Don't worry, it gets more interesting because right here I have frozen corn.
+- **[03:27](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=207s)** — This is not the type of corn that is in all these other products.
+- **[03:32](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=212s)** — There are two types of corn.
+- **[03:33](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=213s)** — You have field corn or another name for that is dent corn.
+- **[03:37](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=217s)** — And then you have edible sweet corn, right?
+- **[03:41](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=221s)** — The type of stuff that you have a corn on the cob or you'd buy is frozen corn.
+- **[03:45](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=225s)** — And so this dent corn or field corn is not even edible.
+- **[03:50](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=230s)** — But this we use as the feed to fatten cattle to create a marbling effect of their muscles.
+- **[03:56](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=236s)** — And they make so many different things out of corn.
+- **[03:58](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=238s)** — They make ethanol.
+- **[04:00](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=240s)** — They turn the starch into corn flour and they can make modified food starch, modified corn starch, maltodextrin.
+- **[04:07](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=247s)** — In fact, there's over 50 different starches that they can make from various foods.
+- **[04:11](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=251s)** — And this is why they're a hidden sugar that you need to be aware of.
+- **[04:15](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=255s)** — Not only that, you can also make oil from corn as in corn oil,
+- **[04:20](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=260s)** — which is part of the seed oil, which actually is very, very unhealthy, even though they say it's heart healthy.
+- **[04:25](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=265s)** — An average American consumes eight gallons of seed oil every single year.
+- **[04:30](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=270s)** — Yes, we need to avoid sugar, but not many people are talking about the hidden sugar, the starches,
+- **[04:36](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=276s)** — especially the corn starches.
+- **[04:38](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=278s)** — Not only do they act like sugar, but they're also the most popular GMO food,
+- **[04:43](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=283s)** — which means they have traces of an herbicide called glyphosate.
+- **[04:47](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=287s)** — If we ask ourselves what would happen if we eat like a cow.
+- **[04:50](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=290s)** — Well, we have been eating like a cow for quite some time and you can see the results.
+- **[04:55](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=295s)** — We have obesity, fatty liver, we get heart disease, and the list goes on and on.
+- **[04:59](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=299s)** — The normal cow stomach is not meant to digest grains.
+- **[05:03](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=303s)** — It's meant to break down grass.
+- **[05:05](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=305s)** — Grass is fermented with bacteria and that fiber feeds the microbes.
+- **[05:10](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=310s)** — The problem with feeding grains to a cow is that the microbes now create this excess amount of acid
+- **[05:16](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=316s)** — and they get what's called acidosis and you get a lot of infection and that's not very healthy for a cow.
+- **[05:22](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=322s)** — This is one of the big reasons why in their food,
+- **[05:25](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=325s)** — they put a lot of antibiotics to counter this bacterial overgrowth.
+- **[05:30](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=330s)** — If we're consuming all this grain, we probably also have a similar thing.
+- **[05:34](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=334s)** — That's what happens when we consume the grains and it creates inflammation in the gut.
+- **[05:38](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=338s)** — That creates all sorts of allergies and abnormal fermentation in the wrong place.
+- **[05:43](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=343s)** — Normally, we need fermentation a little bit lower in the digestive tract, not in the small intestine.
+- **[05:47](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=347s)** — And so this is definitely not a what-if problem.
+- **[05:49](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=349s)** — This is like we have been consuming very similar foods to cattle for quite some time.
+- **[05:54](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=354s)** — And if I put some dent corn in front of you right now to see if you could actually eat it,
+- **[05:58](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=358s)** — you would absolutely not want to eat it.
+- **[06:01](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=361s)** — Unless we turn it into a powder and different things to make the texture a little bit easier to consume.
+- **[06:07](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=367s)** — An average person in America consumes 35.5 pounds of corn starch every single year.
+- **[06:15](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=375s)** — They consume 60 pounds of corn sweetener every single year.
+- **[06:20](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=380s)** — High fructose corn syrup and other sweeteners that are made from corn.
+- **[06:24](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=384s)** — And as far as corn seed oils, an average consumer consumes 11.5 pounds of this seed oil every single year.
+- **[06:32](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=392s)** — If we wanted to add the soy oil into that mixture, you can add another 28 pounds.
+- **[06:37](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=397s)** — So what should we do?
+- **[06:39](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=399s)** — Number one, we should not support these intensive farming practices.
+- **[06:43](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=403s)** — I would highly recommend not buying food from cows that are in feedlots.
+- **[06:48](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=408s)** — Instead, start buying grass-fed grass-finished beef.
+- **[06:51](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=411s)** — If you and I start buying grass-fed grass-finished animal products,
+- **[06:54](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=414s)** — these very large industrial farms are going to have to allow cows to live on more space to consume grass,
+- **[07:01](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=421s)** — what they were designed to consume.
+- **[07:02](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=422s)** — But people will not do that unless they have the awareness of what's going on.
+- **[07:06](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=426s)** — And at the core of what we feed our animals is dent corn and soy.
+- **[07:10](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=430s)** — The more that you avoid these foods, you can help make a difference
+- **[07:14](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=434s)** — and shift the market from the conventional grain-fed cattle.
+- **[07:18](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=438s)** — On that note, let's talk about the healthiest food that you possibly can eat.
+- **[07:23](https://www.youtube.com/watch?v=ZGEWoPmvPJY&t=443s)** — And I put that information in this video right here. Check it out.

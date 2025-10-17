@@ -1,0 +1,111 @@
+# What Would Happen If You Used RICE WATER on Your Hair for 2 Weeks
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=l_iJt5AIoCI](https://www.youtube.com/watch?v=l_iJt5AIoCI)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=0s)** — What would happen if you used rice water on your hair for two weeks?
+- **[00:04](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=4s)** — This is actually one of those ancient secrets that have been used in Asia for hundreds of years.
+- **[00:09](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=9s)** — I'm going to show you the biggest mistake that people make when they do this,
+- **[00:12](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=12s)** — as well as the exact way of how to do this to maximize your results.
+- **[00:17](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=17s)** — Making your hair stronger, your scalp is going to be much healthier.
+- **[00:20](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=20s)** — Big question is, how can the water from rice do anything, really?
+- **[00:24](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=24s)** — You're not actually eating the rice and you're not even drinking the water.
+- **[00:28](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=28s)** — If you look this up, there's several ways to do this.
+- **[00:30](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=30s)** — Some people will take a cup of rice in two cups of water and they'll mix it together
+- **[00:35](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=35s)** — and then they'll let it sit for a couple hours.
+- **[00:38](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=38s)** — They'll strain off the rice and then use that rice water on their hair.
+- **[00:42](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=42s)** — That's really not going to do anything.
+- **[00:43](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=43s)** — There's a way to make this rice water that you can turn that into a probiotic.
+- **[00:48](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=48s)** — What's interesting is you're not actually adding any microbes at all.
+- **[00:51](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=51s)** — The microbes are already on the rice. The microbes are actually in the air.
+- **[00:56](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=56s)** — What you're going to do is you're going to create this probiotic liquid,
+- **[01:00](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=60s)** — which is going to be made over a period of time of 48 hours,
+- **[01:03](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=63s)** — where these microbes are going to eat the starch from the rice
+- **[01:06](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=66s)** — and they're going to reproduce at a massive level.
+- **[01:09](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=69s)** — You're going to use that probiotic with all the additional byproducts
+- **[01:12](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=72s)** — that are created on your hair and your scalp.
+- **[01:15](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=75s)** — A lot of great things occur from fermentation.
+- **[01:18](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=78s)** — Of course, you have yogurt, kefir, cheese.
+- **[01:21](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=81s)** — All these wonderful things occur when you ferment them.
+- **[01:23](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=83s)** — Let's first talk about what is in this rice water
+- **[01:25](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=85s)** — that's so good for your hair and your scalp.
+- **[01:27](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=87s)** — Rice normally has a lot of B vitamins,
+- **[01:30](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=90s)** — and B vitamins are essential for the hair.
+- **[01:32](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=92s)** — There's amino acids in this solution as well.
+- **[01:35](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=95s)** — One of the interesting byproducts of fermentation is called patera.
+- **[01:40](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=100s)** — A lot of people use patera on their skin.
+- **[01:42](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=102s)** — Patera is the antidote to dull hair,
+- **[01:45](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=105s)** — because it's going to make your hair look really bright, shiny, healthy.
+- **[01:49](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=109s)** — If you had dandruff, for example, or itchiness,
+- **[01:52](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=112s)** — or some type of imbalance in the microbiome on your surface of your skin,
+- **[01:56](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=116s)** — that's going to be greatly improved.
+- **[01:58](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=118s)** — As soon as you start sterilizing it,
+- **[01:59](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=119s)** — or putting shampoos that actually kill the microbiome in your scalp,
+- **[02:03](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=123s)** — then you get an overgrowth of unfriendly yeast.
+- **[02:06](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=126s)** — And that's why it takes a friendly yeast to help put that back in check.
+- **[02:10](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=130s)** — There's another really important thing in this liquid,
+- **[02:13](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=133s)** — and it's called lactic acid.
+- **[02:16](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=136s)** — That comes from lactic acid bacteria.
+- **[02:18](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=138s)** — And I know people are like, oh, the body should be alkaline.
+- **[02:21](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=141s)** — And anything that's acidic is unhealthy.
+- **[02:23](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=143s)** — No, not when we're dealing with hair in your skin.
+- **[02:25](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=145s)** — We need your skin and hair to be on the acid side.
+- **[02:28](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=148s)** — And lactic acid is an acid that will help the skin and hair,
+- **[02:31](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=151s)** — and decrease that dullness and frizzy hair that you may have.
+- **[02:35](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=155s)** — And there's other nutrients in this liquid too,
+- **[02:37](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=157s)** — like magnesium and selenium, for example.
+- **[02:38](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=158s)** — This liquid also increases something called nitric oxide,
+- **[02:42](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=162s)** — which can actually help bring oxygen to the root of the hair.
+- **[02:45](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=165s)** — Overall, it can do a lot for your hair, your scalp,
+- **[02:48](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=168s)** — and your skin if you want to put on your skin as well.
+- **[02:50](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=170s)** — Let me now show you how to make it.
+- **[02:51](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=171s)** — So simply add two cups of that rice in a bowl.
+- **[02:54](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=174s)** — Add four cups of water.
+- **[02:56](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=176s)** — And I recommend taking your hand and massaging a little bit,
+- **[02:58](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=178s)** — just so you can clean out any dirt or excess starch.
+- **[03:01](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=181s)** — Then you're going to drain the water.
+- **[03:02](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=182s)** — So what's left in the bowl is two cups of this wet rice.
+- **[03:05](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=185s)** — At this point, add two more cups of fresh water.
+- **[03:08](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=188s)** — Mix it up a little bit and let it sit at room temperature for two hours.
+- **[03:12](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=192s)** — You're going to drain out the fluid into the glass jar.
+- **[03:17](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=197s)** — Cover the jar lightly. That way it has a chance to breathe.
+- **[03:20](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=200s)** — And what's happening is the yeast and bacteria from the air
+- **[03:24](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=204s)** — and on the rice is starting to eat some of that carbohydrate in that rice water.
+- **[03:29](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=209s)** — They're eating it and they're giving all these amazing byproducts,
+- **[03:34](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=214s)** — vitamins, minerals, antioxidants.
+- **[03:35](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=215s)** — When you're fermenting a solution, you can ferment it for 24 hours
+- **[03:39](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=219s)** — and still get some benefit.
+- **[03:40](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=220s)** — You'll have a lot of the bacteria that's growing in there.
+- **[03:44](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=224s)** — Then in the second 24 hours,
+- **[03:45](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=225s)** — you're going to have more of the benefits from the yeast and their byproducts,
+- **[03:48](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=228s)** — which are really going to help your scalp and your skin as well as the hair.
+- **[03:52](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=232s)** — But here's the thing. You could continue to ferment this for much longer.
+- **[03:57](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=237s)** — You can go a week. Some people even go for a month.
+- **[04:00](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=240s)** — You may notice that it starts to give some smell or odor that you might not like.
+- **[04:05](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=245s)** — And that has to do with some of the overgrowth that can occur in that mixture.
+- **[04:09](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=249s)** — You really don't need to go past 48 hours.
+- **[04:12](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=252s)** — But if you do, it will still help you.
+- **[04:13](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=253s)** — You just might want to add some spearmint essential oils or something to offset the smell.
+- **[04:18](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=258s)** — Then at 48 hours, you can take the cheesecloth or paper towel off the top,
+- **[04:23](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=263s)** — screw the lid on it, and then put it in the refrigerator
+- **[04:25](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=265s)** — so it can then be preserved for a longer period of time.
+- **[04:28](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=268s)** — The colder temperature will slow down the bacterial growth.
+- **[04:31](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=271s)** — Then you're going to leave it on your hair for about 20 minutes.
+- **[04:34](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=274s)** — After 20 minutes, rinse out your hair.
+- **[04:36](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=276s)** — And then you can dry it and you're good to go.
+- **[04:38](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=278s)** — I would recommend doing it twice a week.
+- **[04:40](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=280s)** — Let's say, for example, you're doing it twice a week for two weeks.
+- **[04:44](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=284s)** — You're going to need roughly about four cups of this material.
+- **[04:47](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=287s)** — Then you have enough for four applications over the next two weeks.
+- **[04:50](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=290s)** — This is a great solution to help repair your hair,
+- **[04:53](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=293s)** — to put the microbes back into the hair.
+- **[04:56](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=296s)** — And like I said before, you can also apply some of this on your face,
+- **[04:59](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=299s)** — okay, with a little cotton swab.
+- **[05:01](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=301s)** — Apply it to the face, wait 20 minutes, and then rinse it out.
+- **[05:04](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=304s)** — Go ahead and try this. I think you're going to be highly impressed.
+- **[05:07](https://www.youtube.com/watch?v=l_iJt5AIoCI&t=307s)** — And then please comment down below and tell me how it worked for you.

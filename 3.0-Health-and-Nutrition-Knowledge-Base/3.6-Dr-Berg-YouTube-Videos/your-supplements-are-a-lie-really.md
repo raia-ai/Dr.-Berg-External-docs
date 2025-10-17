@@ -1,0 +1,168 @@
+# Your Supplements Are a Lie… Really
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=hHRGqGmGmpg](https://www.youtube.com/watch?v=hHRGqGmGmpg)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=0s)** — It's easy to look at stuff like this and say it's kind of like medicine.
+- **[00:04](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=4s)** — And so it would be kind of regulated like medicine, tracked and vetted by our government's health agency, like medicine is.
+- **[00:11](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=11s)** — But medicine goes through a very different process, a super lengthy process, with tons of studies and clinical trials, paperwork.
+- **[00:19](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=19s)** — It takes years and years and a lot of drugs aren't ever even approved.
+- **[00:24](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=24s)** — They fail this process and never make it onto the shelf.
+- **[00:26](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=26s)** — Well, there's something about that that I think you should know more about.
+- **[00:30](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=30s)** — The thing about the FDA is the FDA is not a full-time career job.
+- **[00:37](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=37s)** — It's a few years on the FDA and then they're being courted by the pharmaceutical companies.
+- **[00:43](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=43s)** — Yeah, and now let's take a look at the next part.
+- **[00:46](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=46s)** — FDA officials are supposed to be watchdogs over pharmaceutical companies.
+- **[00:50](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=50s)** — They're also constantly courted by pharmaceutical companies.
+- **[00:53](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=53s)** — You'll have a merc going in and saying to somebody on the FDA,
+- **[00:58](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=58s)** — I'll give you $600,000 if you'll come and work on our regulatory committee to go into bat for us with the FDA.
+- **[01:06](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=66s)** — And they'll say, okay, well, I'll think about that.
+- **[01:09](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=69s)** — And then there'll be like a Pfizer will come in and say, well, we'll give you $800,000 a year to come in and work on our regulatory committee.
+- **[01:15](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=75s)** — And so it becomes like a bidding war like that.
+- **[01:18](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=78s)** — So the FDA knows that their next jumping off point to go from a lower paying government job to be a very lucrative farmer job on the inside,
+- **[01:27](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=87s)** — the manufacturing side, they know that that's part of their career path.
+- **[01:33](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=93s)** — So that, I'm sure, weighs heavily into their decision making process.
+- **[01:37](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=97s)** — And so I'm not saying that the supplement industry is not corrupt to a certain degree.
+- **[01:42](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=102s)** — But if you're implying that the drug industry doesn't have a massive control over the FDA,
+- **[01:49](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=109s)** — well, then you need to dig a little bit deeper into that topic.
+- **[01:52](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=112s)** — I mean, the rotation between people working for the FDA and the drug industry and then back to the FDA and back to the industry.
+- **[01:59](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=119s)** — This is a well-known fact.
+- **[02:01](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=121s)** — And it's a well-known problem, too, because certain drugs get pushed through without real good safety studies.
+- **[02:07](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=127s)** — And did you realize that 60% of medical reviewers that are in the approval process for these drugs,
+- **[02:15](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=135s)** — who then leave the FDA, go to not only work for the drug companies, but they consult the drug companies?
+- **[02:22](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=142s)** — Well, here's the problem with the FDA regulating supplements.
+- **[02:26](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=146s)** — Because of the ties to drug company, which is the direct competitors,
+- **[02:30](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=150s)** — you'd quickly see that a lot of supplements will be off the market.
+- **[02:33](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=153s)** — I mean, even when I was in practice for 30 years, I don't remember a lot of people being harmed by supplements.
+- **[02:40](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=160s)** — Generally, supplements are pretty safe.
+- **[02:43](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=163s)** — And supplements are in a whole different league than pharmaceutical drugs.
+- **[02:46](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=166s)** — And I'm going to bring up one aspect of this that might not relate directly, but indirectly it does.
+- **[02:51](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=171s)** — It's called GROSS. And that stands for generally recognized as safe.
+- **[02:56](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=176s)** — This also relates to a lot of the chemical companies that are allowed to do their own testing,
+- **[03:03](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=183s)** — without the FDA, and consider their ingredients safe.
+- **[03:07](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=187s)** — Companies are responsible for ensuring their products are safe,
+- **[03:09](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=189s)** — and in fact can often put new dietary supplements on the market without even telling FDA.
+- **[03:15](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=195s)** — That is a big loophole right now with all sorts of new chemicals that are coming onto the
+- **[03:20](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=200s)** — market and putting into our food supply. There's no FDA approval process for that.
+- **[03:25](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=205s)** — And so the next time you hear something that is GROSS, generally recognized as safe,
+- **[03:29](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=209s)** — realize that that is not through the FDA approval process.
+- **[03:33](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=213s)** — One of the supplements that gained popularity was called L-tryptophan.
+- **[03:38](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=218s)** — It was this health food supplement made of amino acids that claimed to help people sleep
+- **[03:43](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=223s)** — and lose weight. It sounded healthy enough until doctors found that people who took the stuff
+- **[03:48](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=228s)** — were developing blood and muscle disorders. So let's talk about this L-tryptophan because
+- **[03:53](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=233s)** — very, very interesting. In 1989, there was an incident where you had a dozen people die
+- **[04:01](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=241s)** — from apparently taking L-tryptophan. And just so you know what L-tryptophan is,
+- **[04:06](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=246s)** — it's an amino acid that can create some real interesting effects. Helping you sleep,
+- **[04:11](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=251s)** — it has an anti-depressive factor, it helps to curb cravings, because it's a precursor to
+- **[04:19](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=259s)** — Now I just want to let you know before this incident, 2% of every single household was
+- **[04:25](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=265s)** — taking L-tryptophan before this. So they did a big recall, okay, and the FDA banned
+- **[04:32](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=272s)** — the supplement. So to make a long story short, they eventually found out this problem was
+- **[04:36](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=276s)** — related to a batch of L-tryptophan that was contaminated through using a genetically modified
+- **[04:45](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=285s)** — bacteria. So anyway, it got contaminated, these batches got out, and it killed some people,
+- **[04:50](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=290s)** — which is terrible. And what you should know about this is about a year previous Prozac was
+- **[04:56](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=296s)** — released in the market. It deals with this neurotransmitter called serotonin. And when
+- **[05:01](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=301s)** — this ban occurred, which was all over the news, several days later, there was a huge
+- **[05:05](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=305s)** — promotion for Prozac. And so they banned L-tryptophan for 16 years, which is roughly
+- **[05:11](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=311s)** — the same period where the patents tend to run out on Prozac. But actually, I think the patents
+- **[05:16](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=316s)** — ran out in 2001, where they lost the monopoly over that product. I think their stocks just
+- **[05:23](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=323s)** — plummeted by several billion dollars. But after that, L-tryptophan was allowed to be used
+- **[05:28](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=328s)** — in the general market. And I don't even think a lot of people know the power of L-tryptophan.
+- **[05:33](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=333s)** — I mean, even if you think about this outbreak of E. coli from eating spinach,
+- **[05:37](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=337s)** — are they going to ban spinach for 16 years? Probably not. But they definitely banned
+- **[05:43](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=343s)** — L-tryptophan, a natural amino acid, for a very long time. This meta-analysis, which used 84
+- **[05:50](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=350s)** — studies and put it all together to find conclusions, found that vitamins and supplements
+- **[05:55](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=355s)** — were generally, quote, associated with little or no benefit in preventing cancer,
+- **[06:01](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=361s)** — cardiovascular disease, and death. Had a little bit of a benefit on treating cancer if you
+- **[06:06](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=366s)** — They also found that people with a high risk of lung cancer had an, quote, increased risk of
+- **[06:12](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=372s)** — lung cancer and other harmful outcomes by taking one vitamin, beta-carotene.
+- **[06:54](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=414s)** — So what this basically is saying is that vitamins don't work for, like, the big things,
+- **[07:00](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=420s)** — preventing the killers, like cancer and heart problems, and they maybe even hurt us in some
+- **[07:05](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=425s)** — cases, depending on the supplement.
+- **[07:35](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=455s)** — Now, it's called metabolomics that allows you to dig deep down and visualize what's happening
+- **[07:39](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=459s)** — with these biochemical pathways. One of the challenges in the field of supplements, okay,
+- **[07:47](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=467s)** — is that you have a lot of large companies that own the good majority of the supplement
+- **[07:53](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=473s)** — industry, which I believe has a huge interest in making big profits. So in other words,
+- **[07:58](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=478s)** — when you buy synthetic B1 versus natural B1, it's incredibly cheap. And then you hear these
+- **[08:04](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=484s)** — well-known claims that, well, hey, there's no difference between synthetic and natural.
+- **[08:07](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=487s)** — They're both the same molecules. They work the same. I don't think so. Two-thirds of all
+- **[08:14](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=494s)** — vitamins sold come from raw materials from China, and those are purely synthetic. Okay,
+- **[08:19](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=499s)** — those are industrial-made compounds, ascorbic acid, thiamine, all these vitamins, right?
+- **[08:25](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=505s)** — They're made in a lab. Now, even if it's on the label of, say, made in USA,
+- **[08:30](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=510s)** — means put together. Where does the raw material come from? It comes from overseas in China.
+- **[08:37](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=517s)** — I personally sell supplements, and I've been criticized by selling supplements. They say,
+- **[08:40](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=520s)** — Dr. Berg, you shouldn't be selling supplements because you're in the business.
+- **[08:43](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=523s)** — Well, my viewpoint is, would you rather have a drug company selling supplements,
+- **[08:48](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=528s)** — a large junk food company selling supplements, a marketer selling supplements when there's really
+- **[08:54](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=534s)** — no individual name behind the brand? I mean, check out these brands and who owns these brands.
+- **[08:59](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=539s)** — We have Nestle owning certain brands, Pfizer, Bayer, Clorox, Procter & Gamble,
+- **[09:08](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=548s)** — private equity firms. Another pharmaceutical company owns Nature Lab, global investment firm,
+- **[09:14](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=554s)** — it's called KKR. And then you have like Kirkland, which is owned by Costco. I mean,
+- **[09:19](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=559s)** — what's really bizarre is if you take the top-selling vitamins, the multivitamins,
+- **[09:24](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=564s)** — the first ingredient is calcium carbonate, the majority of that product. Calcium carbonate is
+- **[09:31](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=571s)** — limestone. You're dealing with like this rock and you're going to put that as a supplement.
+- **[09:35](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=575s)** — From my viewpoint, it's not the best type of calcium you should put in a supplement. And so
+- **[09:39](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=579s)** — when you read this label and you see all these chemicals put in there and the synthetic
+- **[09:43](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=583s)** — vitamins, are they really focused on quality or are they focused on profits? I spend a
+- **[09:48](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=588s)** — tremendous amount of time sourcing the ingredients in my products and making sure
+- **[09:52](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=592s)** — it doesn't come from China. I investigate the soils that these certain products are grown on.
+- **[09:57](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=597s)** — In fact, this is one of the reasons I'm actually creating a very large greenhouse to grow some of
+- **[10:05](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=605s)** — my own ingredients. So I'm going to create a lot of videos on it so you can see the soil.
+- **[10:09](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=609s)** — And I wish companies were more transparent about where their ingredients come from. I mean,
+- **[10:14](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=614s)** — even like my product with vitamin C, to make sure that vitamin C was natural, it was a
+- **[10:20](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=620s)** — lot more expensive than the synthetic ascorbic acid, which by the way, 90% of all of the
+- **[10:26](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=626s)** — vitamin C in the market is synthetic ascorbic acid. It's made from cornstarch and sulfuric
+- **[10:32](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=632s)** — acid. It doesn't even come from any plants. Does our diet actually provide all the vitamins
+- **[10:37](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=637s)** — that we need? Some people will say, oh, no, don't worry about vitamins. They're not
+- **[10:41](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=641s)** — really needed. Well, have you ever looked at the back of a label of a product and looked
+- **[10:45](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=645s)** — at some of the nutrients? It'll say it provides 2% of the RDAs for vitamin A or vitamin B,
+- **[10:52](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=652s)** — etc. Did you realize that RDAs are really just average numbers to potentially
+- **[11:00](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=660s)** — prevent a deficiency in healthy people? And then you also have the dietary requirement
+- **[11:07](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=667s)** — intake. So if our food is grown on crappy soils or even hydroponically where they're just
+- **[11:13](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=673s)** — 15 minerals, how can someone say that we have enough nutrients? And then you have the factor
+- **[11:19](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=679s)** — of genetics. We have genetics that sometimes can interfere with our ability to absorb a vitamin.
+- **[11:26](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=686s)** — And that's why when you test vitamin D, for example, they always test the inactive version
+- **[11:31](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=691s)** — in the blood and they might say, oh yeah, you're fine. But what about the conversion that
+- **[11:35](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=695s)** — has to happen through your kidney and the liver? Well, and what if you have a problem
+- **[11:40](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=700s)** — with the genes? What's the solution? You have to take more. I mean, when I was reading some
+- **[11:45](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=705s)** — of these tests with people, they have a problem with vitamin C, they have a problem with B12
+- **[11:49](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=709s)** — and folate. The point is there's a lot of barriers for these nutrients to go in our bodies
+- **[11:54](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=714s)** — from absorption, from genetics, from the amount needed. Let's say someone has chronic
+- **[12:00](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=720s)** — inflammation, they have diabetes. Or what if they exercise a lot like I do, yet I was
+- **[12:06](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=726s)** — deficient in vitamin C and glutathione? Why? Because I exercise a lot. And then when we get
+- **[12:13](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=733s)** — to other nutrients that are not necessarily vitamins like the omega-3 fatty acids,
+- **[12:17](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=737s)** — specifically DHA, which is an anti-inflammatory, if you're consuming all these seed oils,
+- **[12:23](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=743s)** — okay, that's going to block your absorption of omega-3 fatty acids. And then we also have
+- **[12:28](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=748s)** — potassium, for example. The requirements for potassium are 4,700 milligrams. You'd have to
+- **[12:35](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=755s)** — consume a lot of certain things. A lot of people aren't aware that they need that much.
+- **[12:40](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=760s)** — And then let's just take folate. There's been studies showing that if you're deficient of
+- **[12:44](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=764s)** — folate, it can mimic the same damage to your DNA as radiation can cause to your DNA. Let's
+- **[12:53](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=773s)** — also look at the type of food someone eats. Let's say they eat a lot of grains. Well,
+- **[12:59](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=779s)** — guess what? Phytic acid blocks certain nutrients like zinc. And then let's say someone
+- **[13:04](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=784s)** — is a vegan and they're thinking that they're getting all their vitamin A because they're
+- **[13:09](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=789s)** — eating a lot of carrots, getting a lot of beta carotene. You have to realize beta carotene
+- **[13:13](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=793s)** — is a precursor. It's not the active form of vitamin A, which is like retinol, which is
+- **[13:18](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=798s)** — very high in egg yolks. You'd have to consume a tremendous amount of carrots. I think it was 45
+- **[13:23](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=803s)** — pounds of carrots to get enough vitamin A for one day. And then you might be eating
+- **[13:29](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=809s)** — walnuts to get your omega-3. Walnuts do have ALA. That's the precursor. It's not the active
+- **[13:37](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=817s)** — form. And that has to be converted into EPA and DHA. And you have to consume a lot of
+- **[13:43](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=823s)** — walnuts to have that happen. And so I'm not just picking on the vegan diet. I'm just saying
+- **[13:47](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=827s)** — that if you do a vegan diet, you have to make sure that you take certain supplements.
+- **[13:51](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=831s)** — And then you have fasting where you're not eating any food and then you're on
+- **[13:56](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=836s)** — one meal a day. Well, maybe you need to take certain supplements because you're not necessarily
+- **[14:01](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=841s)** — eating the quantities of food. Now your body will adapt and it'll be more efficient and your
+- **[14:06](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=846s)** — need for certain nutrients will not be as high. So number one, we do need nutrition. Number
+- **[14:11](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=851s)** — two, I don't think we're getting enough of the right nutrition. And number three, the
+- **[14:15](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=855s)** — supplements that are sold out there sometimes might not give you the right type of vitamins
+- **[14:19](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=859s)** — that you need because the source of them are synthetic. But it's not just about vitamins,
+- **[14:25](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=865s)** — minerals, trace minerals, amino acids, fatty acids. You also have phytonutrients that I think
+- **[14:31](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=871s)** — in the future we're going to find out they create huge benefits for us. When a diabetic
+- **[14:35](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=875s)** — consumes more of these phytonutrients, they have less complications. But when I saw this
+- **[14:40](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=880s)** — video on vitamins, I wanted to correct a few things, add a few things because I am actually
+- **[14:47](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=887s)** — in this area. I know a lot about it. And yes, there is a lot of corruption going on.
+- **[14:52](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=892s)** — A lot of hidden sugars in these products. And I've done a video on that.
+- **[14:56](https://www.youtube.com/watch?v=hHRGqGmGmpg&t=896s)** — The hidden maltodextrin. You should check it out. I put it up right here.

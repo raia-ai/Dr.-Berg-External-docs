@@ -1,0 +1,159 @@
+# Slow Metabolism Is a Myth (Not Kidding) - Dr. Berg
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=IcIT4NwEpAQ](https://www.youtube.com/watch?v=IcIT4NwEpAQ)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=0s)** — Now why is it that most people that start a diet cannot stick to it?
+- **[00:04](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=4s)** — And why is it that those who lose the weight regain it back and then some?
+- **[00:09](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=9s)** — Our bodies tend to resist when you start restricting food and calories and going on a low carb diet.
+- **[00:15](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=15s)** — You know, most diets out there do involve lessening of the calories.
+- **[00:19](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=19s)** — I don't know of any diet that increases your calories.
+- **[00:22](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=22s)** — But when I was in practice, I would always ask a person who has difficulty losing weight,
+- **[00:27](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=27s)** — What happened in your history? When did it start?
+- **[00:29](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=29s)** — This is what they told me over and over and over again.
+- **[00:32](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=32s)** — They would start a diet, lose the weight, gain it back, and one for one,
+- **[00:37](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=37s)** — those people who did the most diets have the most difficult time losing weight.
+- **[00:42](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=42s)** — In other words, the more diets that they do, the slower the metabolism.
+- **[00:48](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=48s)** — Or they might have this appearance of a slow metabolism.
+- **[00:50](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=50s)** — And I've never had an overweight person tell me that they can lose weight easily.
+- **[00:55](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=55s)** — They just need to do the right things.
+- **[00:57](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=57s)** — The great majority of the time that they don't attempt to lose weight is because it's very difficult.
+- **[01:01](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=61s)** — They don't see results. That's where the problem is.
+- **[01:05](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=65s)** — So, is it actually true that diets slow your metabolism?
+- **[01:10](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=70s)** — Well, this is a very interesting topic because when you restrict energy from the body and calories,
+- **[01:16](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=76s)** — and you lose fat, the body will compensate, and the metabolism becomes more efficient.
+- **[01:25](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=85s)** — What does this word efficient mean? It can run on smaller amounts of fuel.
+- **[01:30](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=90s)** — Just like a car. You have different cars that have a different efficiency.
+- **[01:35](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=95s)** — Those cars that can take the same amount of fuel and go longer are more efficient.
+- **[01:40](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=100s)** — They're not gas guzzlers. Well, in the body, it's the same thing.
+- **[01:45](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=105s)** — If you have a difficult time losing weight because you've dieted for many, many years,
+- **[01:48](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=108s)** — your body is probably compensated for survival purposes because dieting is similar to famine or a little bit like starvation.
+- **[02:00](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=120s)** — And I'm mainly talking about the lowering of calories.
+- **[02:03](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=123s)** — But what's really going on, if we want to isolate the real problem,
+- **[02:06](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=126s)** — a person that is struggling with weight loss doesn't really have a slow metabolism.
+- **[02:10](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=130s)** — They have an enhanced metabolic efficiency problem.
+- **[02:15](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=135s)** — They don't waste energy very easily. They can run just on a little bit of energy.
+- **[02:20](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=140s)** — So is this really a bad thing? Well, yeah, it's kind of a bad thing from the person's perspective.
+- **[02:27](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=147s)** — But from a survival standpoint, it's really an enhanced survival capacity.
+- **[02:32](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=152s)** — Those people that have a slower metabolism have more survival long term.
+- **[02:38](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=158s)** — And it's interesting to me how so many people are pushing,
+- **[02:43](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=163s)** — well, you have to lose weight. You have to lose weight.
+- **[02:45](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=165s)** — This is just a side note, and I don't want to get into this, but it's really interesting.
+- **[02:48](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=168s)** — Those people that are overweight actually, believe it or not, might not be as unhealthy as you might think.
+- **[02:55](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=175s)** — Now, I'm not talking about the person eating a lot of junk food.
+- **[02:59](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=179s)** — I'm talking about those people that eat healthily and they still overweight.
+- **[03:02](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=182s)** — If we compare those to a skinny person who eats poorly, that skinny person has less of a survival capacity.
+- **[03:09](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=189s)** — So many times people don't change their diet because they say, I don't have a weight problem.
+- **[03:16](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=196s)** — So we always associate weight with being unhealthy.
+- **[03:20](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=200s)** — We don't associate being overweight with a very efficient metabolism.
+- **[03:25](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=205s)** — So that's the topic for today. I want to talk about it.
+- **[03:27](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=207s)** — I want to do a deep dive into this because if you end up solving the wrong problem,
+- **[03:32](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=212s)** — a slow metabolism, with things that maybe might stimulate your metabolism,
+- **[03:36](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=216s)** — you might end up burning your metabolism out. But I think for the majority of the population,
+- **[03:40](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=220s)** — it's not a slow metabolism. It's just a very efficient metabolism.
+- **[03:44](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=224s)** — So I want to focus on calorie restriction. I want to talk about that.
+- **[03:48](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=228s)** — There's a lot of data on calorie restriction, but I'm going to give you a little summary on what it talks about.
+- **[03:54](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=234s)** — People that restrict the calories are more susceptible to being deficient in nutrients,
+- **[04:00](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=240s)** — which can then affect the hormone system. I mean, just let's take one example.
+- **[04:04](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=244s)** — The Biggest Loser. Years ago they had this show, The Biggest Loser,
+- **[04:08](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=248s)** — and these people very, very dramatically lost a ton of weight.
+- **[04:13](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=253s)** — And they had to do some serious calorie restriction and exercise.
+- **[04:17](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=257s)** — Well, we know now the bad effects that that created.
+- **[04:21](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=261s)** — Every single one of these people gained the weight back and more.
+- **[04:25](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=265s)** — But those people who lost the most weight had the slowest metabolism.
+- **[04:31](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=271s)** — So it kind of screws everything up. It's like it just makes it really hard to lose weight from then on out.
+- **[04:36](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=276s)** — Another term for this is called adaptive thermogenesis,
+- **[04:40](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=280s)** — where your body has adjusted or adapted to these lower amounts of calories,
+- **[04:45](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=285s)** — and now it just burns fat less because it's more efficient.
+- **[04:49](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=289s)** — Now there was another interesting experiment called the Minnesota Starvation Experiment.
+- **[04:55](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=295s)** — I'm going to put the link down below for that as well.
+- **[04:58](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=298s)** — But this experiment involved a group of men going on a very low calorie diet.
+- **[05:06](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=306s)** — So they had 32 normal men, went 24 weeks on a semi-starvation diet,
+- **[05:12](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=312s)** — and then 12 weeks on a restricted refeeding diet,
+- **[05:15](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=315s)** — and then 8 weeks they can pretty much eat on anything they want.
+- **[05:19](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=319s)** — And the results were similar to the experiments on mice,
+- **[05:22](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=322s)** — where you're forcing the machine to conserve energy as it's trying to deal with the starvation.
+- **[05:29](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=329s)** — And they found that the metabolism was suppressed by like 15.5%.
+- **[05:34](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=334s)** — But they had rebound hunger, they regained the weight quickly,
+- **[05:37](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=337s)** — and some had a higher level of weight gain than others, beyond the original starting weight.
+- **[05:42](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=342s)** — So now what about intermittent fasting? How does that compare with calorie restriction?
+- **[05:49](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=349s)** — Well, when you lower calories, the person usually is more hungry, they have more cravings.
+- **[05:56](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=356s)** — When you do intermittent fasting correctly, you're less hungry and you don't have the cravings.
+- **[06:01](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=361s)** — And when we're talking about intermittent fasting, I mean, the problem is there's so many different types of intermittent fasting.
+- **[06:07](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=367s)** — But the bottom line is that if you do intermittent fasting without restricting the calories,
+- **[06:11](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=371s)** — you're going on a period where you're eating nothing for a while,
+- **[06:15](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=375s)** — versus just going on a period where you're eating lower amounts of calories.
+- **[06:19](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=379s)** — And there's some very unique benefits to just doing intermittent fasting and not doing calorie restrictive type programs.
+- **[06:27](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=387s)** — So out of the 27 trials that I looked at, 18 were randomized controlled trials.
+- **[06:33](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=393s)** — And pretty much in all the studies, they all lose weight. There were no serious adverse events.
+- **[06:38](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=398s)** — Most of the weight which was lost was actual fat loss.
+- **[06:42](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=402s)** — Most of the people lost weight in the midsection by the studies which included not just obesity,
+- **[06:48](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=408s)** — but also diabetes had improvements in blood sugars.
+- **[06:51](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=411s)** — Now I will say that some of the studies involving calorie restriction did not show negative effects.
+- **[06:58](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=418s)** — Okay, because again, there's variables with that as well.
+- **[07:01](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=421s)** — And I think it has to do with what type of calories you're consuming and if you have enough nutrients with those calories.
+- **[07:08](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=428s)** — Because when we talk about calorie restriction, it doesn't necessarily define the quality of those calories.
+- **[07:15](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=435s)** — Which makes sense from pure logic is that if you're consuming less nutrients,
+- **[07:21](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=441s)** — you're going to create more negative effects with health and body function.
+- **[07:26](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=446s)** — But what if you did calorie restriction with all the nutrients?
+- **[07:29](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=449s)** — I'd like to see that study. It probably shows a lot better results.
+- **[07:33](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=453s)** — But regarding intermittent fasting, okay, periods of time where you're not eating and then you're eating,
+- **[07:38](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=458s)** — I always recommend with that doing the healthy version of the ketogenic diet.
+- **[07:44](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=464s)** — So we don't create imbalances in the body because one of the problems with calorie restrictive diets,
+- **[07:49](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=469s)** — as well as intermittent fasting, is are you getting enough requirements in your fatty acids or your amino acids?
+- **[07:56](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=476s)** — If you are, you're going to have a lot less problems.
+- **[07:58](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=478s)** — But here's the big thing about intermittent fasting that's different than calorie restrictive diets.
+- **[08:05](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=485s)** — And I'm speaking in a generality. When you do intermittent fasting,
+- **[08:10](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=490s)** — you adapt your body to running on ketones, which is basically a situation where you're burning your own fat.
+- **[08:18](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=498s)** — So even though you might be indirectly reducing the amount of calories by eating less meals
+- **[08:24](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=504s)** — because you're going from three meals to two meals or even one meal, it's hard to eat all those calories in one meal.
+- **[08:31](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=511s)** — What you have to realize is a portion of that fuel that you get in those dietary calories is not coming from the diet.
+- **[08:40](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=520s)** — A portion of that fuel is coming from the person's own fat fuel.
+- **[08:45](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=525s)** — Whereas if you do calorie restriction without going on low carb,
+- **[08:49](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=529s)** — that could easily be a situation where you're not able to tap into your own fat.
+- **[08:53](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=533s)** — You're tapping into your own muscle because your carbs are too high and your insulin is too high.
+- **[09:00](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=540s)** — In the presence of insulin, you can't tap into the fat.
+- **[09:02](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=542s)** — So if you were to do a low calorie diet, I would highly recommend you go low carb.
+- **[09:07](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=547s)** — You have to also look at how much of your own fat is being mobilized.
+- **[09:10](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=550s)** — And just so you know, there are nutrients in your own fat that are stored that then are released, like even vitamin D.
+- **[09:18](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=558s)** — Anything fat soluble, like the fat soluble vitamins can be released into the system to provide for more nutrition as well as energy fuel.
+- **[09:27](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=567s)** — But I don't even look at the combination of the healthy version of the ketogenic diet with intermittent fasting as a diet
+- **[09:34](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=574s)** — because you can easily do this as a long term lifestyle change where it doesn't even feel like a diet.
+- **[09:42](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=582s)** — There is a lot of flexibility with the types of food that you're eating.
+- **[09:45](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=585s)** — But the main thing is you're not hungry going into it. You don't crave anything, which makes it very sustainable.
+- **[09:51](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=591s)** — And it even helps your sympathetic nervous system so you have less stress.
+- **[09:57](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=597s)** — Another big thing that it will help you with is there's something called a set point, which is kind of a very comfortable weight that your body tends to settle in that you can't seem to go below.
+- **[10:06](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=606s)** — It likes to gravitate into that range. Let's say, for example, it's, I don't know, one, one seventy or one sixty five or one eighty, whatever, right?
+- **[10:13](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=613s)** — That's where you're at and you just can't seem to get below it. You might lose weight, but you always kind of hit this plateau.
+- **[10:19](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=619s)** — They call it. There's some interesting data that relates to the amount of insulin that you have in your bloodstream and that set point.
+- **[10:28](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=628s)** — So this relates to something called insulin resistance. So if you have insulin resistance, chances are you have greater amounts of fasting insulin.
+- **[10:36](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=636s)** — Insulin is a fat storing hormone. And if you have diabetes, for example, or some people that are overweight that aren't eating healthily,
+- **[10:42](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=642s)** — they usually have a higher fasting insulin, right, which is rarely tested.
+- **[10:48](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=648s)** — That could be the thing that is controlling your set point and not allowing you to go lower.
+- **[10:53](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=653s)** — And I think the set point does relate to this very efficient metabolism adaptation problem.
+- **[11:00](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=660s)** — And when you're in ketosis, by the way, initially, at least your body wastes a lot of fuel.
+- **[11:06](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=666s)** — You're peeing out ketones, you're breathing out ketones. Those are chunks of fat.
+- **[11:11](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=671s)** — Your body is wasting. It's less efficient with the fuel. And also in the little mitochondria, the factories that make energy,
+- **[11:19](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=679s)** — you're producing more energy from those ketones. I also want to mention this other new diet out there.
+- **[11:25](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=685s)** — It's called the metabolic confusion diet. What is that? It's not necessarily a calorie restrictive diet.
+- **[11:34](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=694s)** — As much as you're going on a low calorie diet, you are lowering your calories to a certain degree, maybe 1700.
+- **[11:40](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=700s)** — But usually it's not really, really low. Maybe it might go down to 1200. But you're doing that for a few days.
+- **[11:47](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=707s)** — Okay. And then you're actually increasing the calories higher. So you might be in like four days of 1700 calories.
+- **[11:55](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=715s)** — Right. And then you go on three days of 2700 calories. That's called the metabolic confusion diet.
+- **[12:02](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=722s)** — Now, what's interesting about that diet, and just from the research that I saw, there's doesn't seem to be the same bad effects as a low calorie diet.
+- **[12:10](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=730s)** — It doesn't seem to slow down your metabolism. And people like it because it's more flexible. It's not as restrictive.
+- **[12:18](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=738s)** — So some people kind of do this for the whole week. They go on a lower calorie. But then on the weekends, they kind of do what they want.
+- **[12:25](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=745s)** — Now, for some people, that may work. I mean, it's a step up. And if you're starting out and you look at the ketogenic diet
+- **[12:30](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=750s)** — and this intermittent fasting is being very difficult and you can't do it, why don't you try the metabolic confusion diet?
+- **[12:36](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=756s)** — And it's not intermittent fasting. But the problem is that there's not a lot of long term data to know if it does eventually cause your metabolism to be downgraded.
+- **[12:49](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=769s)** — But at the very least, I think it's not restricting nutrients. You won't end up with a nutrient deficiency.
+- **[12:54](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=774s)** — And it's probably enough calories where it doesn't send signals to your brain to slow down the metabolism.
+- **[12:59](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=779s)** — And maybe you do that for a while until the point where you can graduate into the healthy version of the ketogenic diet with intermittent fasting or even one of those two.
+- **[13:09](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=789s)** — And the big thing I want you to get out of this video is that it's not that you have a slow metabolism. You have an enhanced metabolic efficiency.
+- **[13:19](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=799s)** — And once you get the right problem, then you can come up with the right solution.
+- **[13:23](https://www.youtube.com/watch?v=IcIT4NwEpAQ&t=803s)** — So if you really want what I think is the best solution for this, I would recommend learning how to do the basic keto plan from this video right here. Check it out.

@@ -1,0 +1,145 @@
+# How I FIXED My Terrible Sleep
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=iseMJEZvC1E](https://www.youtube.com/watch?v=iseMJEZvC1E)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=iseMJEZvC1E&t=0s)** — This is a master class on how to perfect your sleep and wake up feeling really refreshed.
+- **[00:05](https://www.youtube.com/watch?v=iseMJEZvC1E&t=5s)** — I don't care what diet you're on, what supplements you take, what type of exercise you do.
+- **[00:08](https://www.youtube.com/watch?v=iseMJEZvC1E&t=8s)** — All of that is not going to work unless your sleep is good.
+- **[00:12](https://www.youtube.com/watch?v=iseMJEZvC1E&t=12s)** — We sleep to detoxify our brains.
+- **[00:14](https://www.youtube.com/watch?v=iseMJEZvC1E&t=14s)** — If you notice when you don't sleep, it feels like your brain is toxic.
+- **[00:18](https://www.youtube.com/watch?v=iseMJEZvC1E&t=18s)** — Let's first talk about the diet.
+- **[00:19](https://www.youtube.com/watch?v=iseMJEZvC1E&t=19s)** — Especially if you're doing refined sugars and junk food.
+- **[00:22](https://www.youtube.com/watch?v=iseMJEZvC1E&t=22s)** — If you snack late at night and you go to bed loaded,
+- **[00:26](https://www.youtube.com/watch?v=iseMJEZvC1E&t=26s)** — that stress in your gut is going to prevent you from going to sleep.
+- **[00:28](https://www.youtube.com/watch?v=iseMJEZvC1E&t=28s)** — If you want better sleep, eat earlier in the day.
+- **[00:31](https://www.youtube.com/watch?v=iseMJEZvC1E&t=31s)** — If you really want a good sleep, have your last meal like 4 or 5 o'clock.
+- **[00:35](https://www.youtube.com/watch?v=iseMJEZvC1E&t=35s)** — If you have urination problems at night, just do intermittent fasting.
+- **[00:38](https://www.youtube.com/watch?v=iseMJEZvC1E&t=38s)** — Cut out the snacks. Go low carb.
+- **[00:40](https://www.youtube.com/watch?v=iseMJEZvC1E&t=40s)** — If you eat inflammatory foods like the grains, that will also keep you up.
+- **[00:45](https://www.youtube.com/watch?v=iseMJEZvC1E&t=45s)** — When you eat a lot of carbohydrates, it takes a lot of vitamin B1
+- **[00:48](https://www.youtube.com/watch?v=iseMJEZvC1E&t=48s)** — to break down those carbohydrates and utilize them.
+- **[00:51](https://www.youtube.com/watch?v=iseMJEZvC1E&t=51s)** — When you don't have enough B1, your legs start just feeling so energetic.
+- **[00:56](https://www.youtube.com/watch?v=iseMJEZvC1E&t=56s)** — Vitamin B1 helps reduce nervous anxiety and tension.
+- **[01:00](https://www.youtube.com/watch?v=iseMJEZvC1E&t=60s)** — One thing that is really good to consume to help you sleep at night is kefir.
+- **[01:05](https://www.youtube.com/watch?v=iseMJEZvC1E&t=65s)** — Kefir has probiotics which will then build up things like serotonin,
+- **[01:10](https://www.youtube.com/watch?v=iseMJEZvC1E&t=70s)** — which then turns into melatonin.
+- **[01:12](https://www.youtube.com/watch?v=iseMJEZvC1E&t=72s)** — And melatonin is a sleep hormone.
+- **[01:15](https://www.youtube.com/watch?v=iseMJEZvC1E&t=75s)** — An even better probiotic to take is the L-ruderi yogurt.
+- **[01:19](https://www.youtube.com/watch?v=iseMJEZvC1E&t=79s)** — Super beneficial for sleep.
+- **[01:20](https://www.youtube.com/watch?v=iseMJEZvC1E&t=80s)** — You just need a half of a cup of that per day.
+- **[01:22](https://www.youtube.com/watch?v=iseMJEZvC1E&t=82s)** — It doesn't have to be before bed. It could be any time during the day.
+- **[01:25](https://www.youtube.com/watch?v=iseMJEZvC1E&t=85s)** — What about the environment that you sleep in?
+- **[01:27](https://www.youtube.com/watch?v=iseMJEZvC1E&t=87s)** — Let's talk about the temperature first.
+- **[01:29](https://www.youtube.com/watch?v=iseMJEZvC1E&t=89s)** — If you ever try to go to bed when it's too hot, it just won't work.
+- **[01:32](https://www.youtube.com/watch?v=iseMJEZvC1E&t=92s)** — Turn down the thermostat down to between 65 and 68 degrees.
+- **[01:37](https://www.youtube.com/watch?v=iseMJEZvC1E&t=97s)** — Some people that have cold feet sleep much better if they warm up some socks
+- **[01:42](https://www.youtube.com/watch?v=iseMJEZvC1E&t=102s)** — and at least keep their feet warm.
+- **[01:44](https://www.youtube.com/watch?v=iseMJEZvC1E&t=104s)** — Plants in your room, that oxygen from the plants can help you sleep.
+- **[01:48](https://www.youtube.com/watch?v=iseMJEZvC1E&t=108s)** — The darker it is, the better.
+- **[01:50](https://www.youtube.com/watch?v=iseMJEZvC1E&t=110s)** — Any light inhibits melatonin.
+- **[01:53](https://www.youtube.com/watch?v=iseMJEZvC1E&t=113s)** — If you're staying inside all day, sitting behind a computer,
+- **[01:56](https://www.youtube.com/watch?v=iseMJEZvC1E&t=116s)** — getting all this blue light, or you're on your cell phone
+- **[01:59](https://www.youtube.com/watch?v=iseMJEZvC1E&t=119s)** — and getting a lot of blue light, blue light stimulates energy.
+- **[02:03](https://www.youtube.com/watch?v=iseMJEZvC1E&t=123s)** — This is why even in the early morning, when the sun rises,
+- **[02:06](https://www.youtube.com/watch?v=iseMJEZvC1E&t=126s)** — there's a lot of blue that will wake you up.
+- **[02:08](https://www.youtube.com/watch?v=iseMJEZvC1E&t=128s)** — In the evening, you'll see these yellow, purple, reddish type colors.
+- **[02:11](https://www.youtube.com/watch?v=iseMJEZvC1E&t=131s)** — Now we're going to get a little bit more infrared,
+- **[02:14](https://www.youtube.com/watch?v=iseMJEZvC1E&t=134s)** — which will actually help wind us down.
+- **[02:16](https://www.youtube.com/watch?v=iseMJEZvC1E&t=136s)** — Over 50% of the sun's rays are infrared.
+- **[02:18](https://www.youtube.com/watch?v=iseMJEZvC1E&t=138s)** — It can penetrate several inches into our body
+- **[02:22](https://www.youtube.com/watch?v=iseMJEZvC1E&t=142s)** — and help you make vitamin D, which is crucial for sleep.
+- **[02:26](https://www.youtube.com/watch?v=iseMJEZvC1E&t=146s)** — One thing it does is it increases something called melatonin.
+- **[02:28](https://www.youtube.com/watch?v=iseMJEZvC1E&t=148s)** — Fortunately, since the 80s, when we've been avoiding the sun,
+- **[02:32](https://www.youtube.com/watch?v=iseMJEZvC1E&t=152s)** — we've been having a lot of sleep problems.
+- **[02:34](https://www.youtube.com/watch?v=iseMJEZvC1E&t=154s)** — Also, alcohol.
+- **[02:35](https://www.youtube.com/watch?v=iseMJEZvC1E&t=155s)** — Alcohol will make you feel like you are tired and want to go to sleep,
+- **[02:39](https://www.youtube.com/watch?v=iseMJEZvC1E&t=159s)** — but it doesn't really give you the quality of sleep.
+- **[02:40](https://www.youtube.com/watch?v=iseMJEZvC1E&t=160s)** — It actually prevents the deep sleep.
+- **[02:42](https://www.youtube.com/watch?v=iseMJEZvC1E&t=162s)** — And then we have caffeine.
+- **[02:44](https://www.youtube.com/watch?v=iseMJEZvC1E&t=164s)** — Caffeine, coffee, tea, chocolate can also act as a stimulant.
+- **[02:49](https://www.youtube.com/watch?v=iseMJEZvC1E&t=169s)** — That can prevent sleeping because your liver doesn't have a chance
+- **[02:52](https://www.youtube.com/watch?v=iseMJEZvC1E&t=172s)** — to really detoxify those stimulants.
+- **[02:54](https://www.youtube.com/watch?v=iseMJEZvC1E&t=174s)** — Also, the more exercise you do, the better you're going to sleep as well.
+- **[02:58](https://www.youtube.com/watch?v=iseMJEZvC1E&t=178s)** — The next thing I want to talk about is old injuries.
+- **[03:01](https://www.youtube.com/watch?v=iseMJEZvC1E&t=181s)** — So if you injure your lower back,
+- **[03:03](https://www.youtube.com/watch?v=iseMJEZvC1E&t=183s)** — one of the things that I do every single night is stretching
+- **[03:05](https://www.youtube.com/watch?v=iseMJEZvC1E&t=185s)** — to help myself sleep.
+- **[03:07](https://www.youtube.com/watch?v=iseMJEZvC1E&t=187s)** — You'll notice when you do a lot of stretching,
+- **[03:09](https://www.youtube.com/watch?v=iseMJEZvC1E&t=189s)** — your body goes into this relaxed mode.
+- **[03:11](https://www.youtube.com/watch?v=iseMJEZvC1E&t=191s)** — One of the things that you can do is lie on your back with your arms
+- **[03:14](https://www.youtube.com/watch?v=iseMJEZvC1E&t=194s)** — stretched above you and just do these stretches from your lower feet,
+- **[03:19](https://www.youtube.com/watch?v=iseMJEZvC1E&t=199s)** — trying to push your feet going this way and your arms going this way.
+- **[03:22](https://www.youtube.com/watch?v=iseMJEZvC1E&t=202s)** — I'm going to put a video down below to show you how to do that.
+- **[03:25](https://www.youtube.com/watch?v=iseMJEZvC1E&t=205s)** — This is a little device that I invented and developed.
+- **[03:28](https://www.youtube.com/watch?v=iseMJEZvC1E&t=208s)** — It's a plastic device.
+- **[03:30](https://www.youtube.com/watch?v=iseMJEZvC1E&t=210s)** — It's modeled after my hand.
+- **[03:32](https://www.youtube.com/watch?v=iseMJEZvC1E&t=212s)** — And I will lay back on it and I will hold pressure from the top of my
+- **[03:37](https://www.youtube.com/watch?v=iseMJEZvC1E&t=217s)** — mid back to the lower part of my mid back until the muscles relax.
+- **[03:41](https://www.youtube.com/watch?v=iseMJEZvC1E&t=221s)** — Now there's another area of your body.
+- **[03:43](https://www.youtube.com/watch?v=iseMJEZvC1E&t=223s)** — It's in the brain stem.
+- **[03:44](https://www.youtube.com/watch?v=iseMJEZvC1E&t=224s)** — I'll take this on the back of a tall back chair or my couch
+- **[03:48](https://www.youtube.com/watch?v=iseMJEZvC1E&t=228s)** — and I'll place it right underneath my skull and lean back,
+- **[03:52](https://www.youtube.com/watch?v=iseMJEZvC1E&t=232s)** — pressing underneath the skull.
+- **[03:55](https://www.youtube.com/watch?v=iseMJEZvC1E&t=235s)** — That really helps as well.
+- **[03:57](https://www.youtube.com/watch?v=iseMJEZvC1E&t=237s)** — I also use it and actually press up underneath the rib cage to take
+- **[04:03](https://www.youtube.com/watch?v=iseMJEZvC1E&t=243s)** — tension out of your abdomen.
+- **[04:05](https://www.youtube.com/watch?v=iseMJEZvC1E&t=245s)** — Because if you've ever noticed when you have problems with sleep,
+- **[04:07](https://www.youtube.com/watch?v=iseMJEZvC1E&t=247s)** — there's going to be a lot of tension and muscle spasm in your stomach area
+- **[04:11](https://www.youtube.com/watch?v=iseMJEZvC1E&t=251s)** — and underneath your rib cage, probably because you have a lot of bloating.
+- **[04:16](https://www.youtube.com/watch?v=iseMJEZvC1E&t=256s)** — So this is a great way to kind of take the bloating out.
+- **[04:20](https://www.youtube.com/watch?v=iseMJEZvC1E&t=260s)** — Another thing to help yourself sleep is to start sleeping on the right side.
+- **[04:24](https://www.youtube.com/watch?v=iseMJEZvC1E&t=264s)** — Why do I do that?
+- **[04:25](https://www.youtube.com/watch?v=iseMJEZvC1E&t=265s)** — I just find that when I sleep on the left side or at least starting out,
+- **[04:28](https://www.youtube.com/watch?v=iseMJEZvC1E&t=268s)** — if there's some type of congestion in my liver,
+- **[04:31](https://www.youtube.com/watch?v=iseMJEZvC1E&t=271s)** — it kind of presses on my heart and it doesn't help me sleep or feel relaxed.
+- **[04:35](https://www.youtube.com/watch?v=iseMJEZvC1E&t=275s)** — The other thing that I focus on is nose breathing.
+- **[04:39](https://www.youtube.com/watch?v=iseMJEZvC1E&t=279s)** — You will get more oxygen if you breathe through your nose than from your mouth.
+- **[04:44](https://www.youtube.com/watch?v=iseMJEZvC1E&t=284s)** — You're going to put your body in a relaxed state really quickly,
+- **[04:49](https://www.youtube.com/watch?v=iseMJEZvC1E&t=289s)** — slowly in and a little bit slower out.
+- **[04:52](https://www.youtube.com/watch?v=iseMJEZvC1E&t=292s)** — Sometimes people ask me my opinion on meditation.
+- **[04:55](https://www.youtube.com/watch?v=iseMJEZvC1E&t=295s)** — The best way that I think you can get rid of your stress
+- **[04:58](https://www.youtube.com/watch?v=iseMJEZvC1E&t=298s)** — is to get yourself out of your head and not do more of that thinking.
+- **[05:03](https://www.youtube.com/watch?v=iseMJEZvC1E&t=303s)** — This is why I like hobbies are really great.
+- **[05:06](https://www.youtube.com/watch?v=iseMJEZvC1E&t=306s)** — Bird watching, hiking, woodworking, painting.
+- **[05:11](https://www.youtube.com/watch?v=iseMJEZvC1E&t=311s)** — Another key part of sleeping is getting enough sodium.
+- **[05:15](https://www.youtube.com/watch?v=iseMJEZvC1E&t=315s)** — When you are low in sodium, salt, your cortisol goes up.
+- **[05:20](https://www.youtube.com/watch?v=iseMJEZvC1E&t=320s)** — An average person needs more than even a teaspoon of sea salt per day.
+- **[05:25](https://www.youtube.com/watch?v=iseMJEZvC1E&t=325s)** — If you start adding more sodium to the diet,
+- **[05:27](https://www.youtube.com/watch?v=iseMJEZvC1E&t=327s)** — whether you put a little pinch of sea salt in your coffee in the morning,
+- **[05:31](https://www.youtube.com/watch?v=iseMJEZvC1E&t=331s)** — you're going to sleep better.
+- **[05:32](https://www.youtube.com/watch?v=iseMJEZvC1E&t=332s)** — And that brings up the other mineral.
+- **[05:34](https://www.youtube.com/watch?v=iseMJEZvC1E&t=334s)** — Because if you're low in potassium, you're also going to have a problem with sleeping.
+- **[05:38](https://www.youtube.com/watch?v=iseMJEZvC1E&t=338s)** — Because potassium is a physiological relaxer.
+- **[05:41](https://www.youtube.com/watch?v=iseMJEZvC1E&t=341s)** — If you're deficient in potassium, guess what?
+- **[05:43](https://www.youtube.com/watch?v=iseMJEZvC1E&t=343s)** — Your pulse rate goes up.
+- **[05:45](https://www.youtube.com/watch?v=iseMJEZvC1E&t=345s)** — Another thing that I do about an hour before bed is take some magnesium glycinate powder.
+- **[05:52](https://www.youtube.com/watch?v=iseMJEZvC1E&t=352s)** — Magnesium helps with muscle tightness and muscle spasm and muscle cramps.
+- **[05:57](https://www.youtube.com/watch?v=iseMJEZvC1E&t=357s)** — Magnesium also helps calm your body.
+- **[05:59](https://www.youtube.com/watch?v=iseMJEZvC1E&t=359s)** — I'll take this magnesium glycinate in a warm glass of water and I might add some tea to it.
+- **[06:05](https://www.youtube.com/watch?v=iseMJEZvC1E&t=365s)** — And there's several teas that I might use.
+- **[06:08](https://www.youtube.com/watch?v=iseMJEZvC1E&t=368s)** — Like chamomile tea is a great one to also help wind you down.
+- **[06:11](https://www.youtube.com/watch?v=iseMJEZvC1E&t=371s)** — What about sound?
+- **[06:13](https://www.youtube.com/watch?v=iseMJEZvC1E&t=373s)** — You can get a machine that kind of gives you this background static.
+- **[06:21](https://www.youtube.com/watch?v=iseMJEZvC1E&t=381s)** — I mean, when you think about it, complete silence in nature is very unnatural.
+- **[06:24](https://www.youtube.com/watch?v=iseMJEZvC1E&t=384s)** — This is why I always sleep better if I'm camping, for example.
+- **[06:28](https://www.youtube.com/watch?v=iseMJEZvC1E&t=388s)** — There's also something called binaural beats,
+- **[06:30](https://www.youtube.com/watch?v=iseMJEZvC1E&t=390s)** — where you're putting two different beats in each ear.
+- **[06:33](https://www.youtube.com/watch?v=iseMJEZvC1E&t=393s)** — Two slightly different sounds, but that definitely has been shown to help you sleep.
+- **[06:39](https://www.youtube.com/watch?v=iseMJEZvC1E&t=399s)** — There's one last really cool thing that can help you sleep.
+- **[06:42](https://www.youtube.com/watch?v=iseMJEZvC1E&t=402s)** — Certain essential oils that have kind of a sedative effect, but they're natural.
+- **[06:47](https://www.youtube.com/watch?v=iseMJEZvC1E&t=407s)** — And you don't have to consume them. You just breathe in the vapor.
+- **[06:50](https://www.youtube.com/watch?v=iseMJEZvC1E&t=410s)** — The first one is called spikenard.
+- **[06:53](https://www.youtube.com/watch?v=iseMJEZvC1E&t=413s)** — It's a sedative and it's going to calm you down.
+- **[06:56](https://www.youtube.com/watch?v=iseMJEZvC1E&t=416s)** — If you get that, I recommend you pair it with another essential oil, vetiver.
+- **[07:00](https://www.youtube.com/watch?v=iseMJEZvC1E&t=420s)** — Vetiver helps induce a deeper sleep and you don't have to consume it.
+- **[07:04](https://www.youtube.com/watch?v=iseMJEZvC1E&t=424s)** — You can just breathe it in or rub it onto your temples or even on your chest.
+- **[07:09](https://www.youtube.com/watch?v=iseMJEZvC1E&t=429s)** — Fixing your sleep is super powerful, but if you're still waking up tired,
+- **[07:14](https://www.youtube.com/watch?v=iseMJEZvC1E&t=434s)** — you are missing out on something that is incredibly powerful, and it's salt.
+- **[07:18](https://www.youtube.com/watch?v=iseMJEZvC1E&t=438s)** — I'm about to flip everything you've ever been told about salt completely upside down.
+- **[07:22](https://www.youtube.com/watch?v=iseMJEZvC1E&t=442s)** — You've got to check out this video right here.

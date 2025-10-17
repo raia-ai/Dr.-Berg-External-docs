@@ -1,0 +1,99 @@
+# The #1 Breakfast Mistake That Almost Killed Me
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=Y2tAmoIp9d4](https://www.youtube.com/watch?v=Y2tAmoIp9d4)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=0s)** — Hello, Dr. Berg here again. Today we're going to talk about the biggest mistake that I made with my breakfast that nearly killed me.
+- **[00:08](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=8s)** — There's a handful of mistakes to talk about. Then I'm going to get to the biggest one. Let's start with number one.
+- **[00:13](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=13s)** — The type of coffee that you drink. Of course, in college, I drank way too much coffee.
+- **[00:17](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=17s)** — But it's not necessarily the coffee that's the problem. It's the type of coffee that you're drinking.
+- **[00:22](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=22s)** — I'm not sure if you're aware of this or not, but coffee beans are one of the most sprayed crops behind cotton and tobacco.
+- **[00:29](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=29s)** — You're literally drinking a super concentrated soup of a lot of pesticides.
+- **[00:34](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=34s)** — Out of all the things that you're exposed to, it's the single greatest source of concentrated toxins that you expose yourself on a daily basis.
+- **[00:42](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=42s)** — Then on top of that, if you're adding sugar to your coffee, or if you add the non-dairy creamers with all the seed oils and chemicals,
+- **[00:50](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=50s)** — or maybe even flavored coffees, that would be even worse.
+- **[00:53](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=53s)** — The simple solution is just to use organic coffee beans.
+- **[00:56](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=56s)** — Number two. Orange juice. If you think orange juice is healthy, what you don't know is that you're basically just drinking sugar water.
+- **[01:04](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=64s)** — Because most, if not all, orange juice is pasteurized. And when they heat this orange juice, they kill off and destroy the vitamin C.
+- **[01:12](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=72s)** — You're not really getting nutrition. You're getting a lot of concentrated sugar.
+- **[01:15](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=75s)** — One small cup of orange juice is equivalent to a soda.
+- **[01:19](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=79s)** — Also, your liver is going to be affected from the fructose.
+- **[01:22](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=82s)** — What's going to happen is you're going to be spiking your blood sugar and it's going to come down in about an hour and a half.
+- **[01:28](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=88s)** — And now you're going to be wanting something sweet.
+- **[01:30](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=90s)** — Personally, I'm not thirsty in the morning, so I don't drink anything. But you can do tea, coffee, water with lemon.
+- **[01:36](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=96s)** — But I wouldn't do the juice.
+- **[01:38](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=98s)** — Number three. My breakfast used to be very carb heavy.
+- **[01:43](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=103s)** — Cereals, granola bars, blueberry muffins, pancakes and waffles, and definitely toast.
+- **[01:48](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=108s)** — Of course, the cereals are the worst because they have so many hidden sugars in their camouflage with the healthy whole grains, which is totally BS.
+- **[01:58](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=118s)** — After the breakfast, spike in sugar, I end up with low sugar because insulin is coming in there and pushing it down.
+- **[02:04](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=124s)** — And now my brain doesn't have any energy.
+- **[02:07](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=127s)** — This is what happened for years and years and years.
+- **[02:10](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=130s)** — I couldn't wake up in the morning.
+- **[02:12](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=132s)** — This so-called fuel is not really fueling our brains.
+- **[02:16](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=136s)** — It's literally starving our brains the more we consume it.
+- **[02:18](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=138s)** — That time I really bought into the whole grain cereals.
+- **[02:22](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=142s)** — And of course, you need to get rid of all that fat from the bacon.
+- **[02:25](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=145s)** — I would literally take paper towels and I would push out or dampen the oil or the fat from the bacon.
+- **[02:32](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=152s)** — That was my way of being healthy.
+- **[02:35](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=155s)** — How many kids are just grouchy and irritable and they can't just be calm because their blood sugar is so up and down.
+- **[02:42](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=162s)** — And instead of fixing the diet, they put them on psych drugs.
+- **[02:46](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=166s)** — Crazy. What I'm going to tell you is a very simple fix.
+- **[02:49](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=169s)** — It's so simple and so powerful.
+- **[02:52](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=172s)** — All you have to do is switch to a protein breakfast.
+- **[02:55](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=175s)** — That's it. And watch how fast your body improves.
+- **[02:59](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=179s)** — Simply consume eggs and bacon.
+- **[03:02](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=182s)** — I would do four eggs in the morning and some bacon.
+- **[03:05](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=185s)** — You can also do cheese. That works.
+- **[03:07](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=187s)** — You can also do yogurt, but I would do the whole fat yogurt without any added sugar.
+- **[03:12](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=192s)** — It's not the best source of protein, but it's definitely better than the sweetened yogurt.
+- **[03:15](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=195s)** — A steak would work really good.
+- **[03:17](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=197s)** — I also have done the burger patties, buffalo burgers, beef patties.
+- **[03:22](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=202s)** — Oh my gosh, that works really good too.
+- **[03:23](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=203s)** — Another mistake that I made with breakfast food is consuming just fruit and maybe sometimes nuts.
+- **[03:31](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=211s)** — Like I would take an apple and put peanut butter or a handful of nuts with fruit, maybe banana.
+- **[03:37](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=217s)** — So mid-morning I would need to eat again because bananas and apples are very high in sugar.
+- **[03:44](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=224s)** — On top of that, I would always need a snack mid-afternoon.
+- **[03:48](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=228s)** — That was also a mistake because it raised the blood glucose and it kept the insulin spiking through the day.
+- **[03:54](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=234s)** — A step up from that would be a protein snack if you had the choice.
+- **[03:59](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=239s)** — You can do cheese. You can do a little bit of meat like charcuterie.
+- **[04:03](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=243s)** — You'd never want a snack with carbohydrates.
+- **[04:06](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=246s)** — Next mistake that I was making is I was using a lot of peanut butter and I never read the label
+- **[04:12](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=252s)** — because on the label they added hydrogenated oils as well as added sugar and sometimes hyper-dose corn syrup.
+- **[04:20](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=260s)** — This relates to the next mistake. When I would cook or fry potatoes in the pan for breakfast,
+- **[04:26](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=266s)** — I would always use corn oil. It's highly processed, but it's healthy, right? Because it says it on the label.
+- **[04:34](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=274s)** — You want to cook in butter or olive oil or coconut oil or lard. You don't want to cook in seed oils.
+- **[04:42](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=282s)** — Next mistake I made was my meats had sugar and starches in them.
+- **[04:47](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=287s)** — Breakfast sausage, right? If you ever read the ingredients of that, they put modified food starch in there.
+- **[04:52](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=292s)** — There's sugar in there. There's wheat flour in there. There's very little meat in there.
+- **[04:56](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=296s)** — Of course, my bacon always had sugar in it.
+- **[04:59](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=299s)** — The next mistake and I have a lot of videos on this, which I probably should take down.
+- **[05:05](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=305s)** — They're older videos. I was really pushing kale shakes with fruit.
+- **[05:10](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=310s)** — I would sometimes recommend spinach instead of kale, which is just loaded with oxalates, right?
+- **[05:16](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=316s)** — Then you're going to have fruit in there. You're going to blend this up.
+- **[05:18](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=318s)** — The mistake that I made back then was not adding high quality protein, especially for breakfast.
+- **[05:24](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=324s)** — But now let's get into my biggest mistake that caused more destruction than anything else combined.
+- **[05:34](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=334s)** — Eating when I wasn't hungry.
+- **[05:36](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=336s)** — It was thinking that breakfast was the most important meal of the day.
+- **[05:41](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=341s)** — That actually is not true information.
+- **[05:43](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=343s)** — Here you are. You go to bed all night long. You're not eating. You're fasting.
+- **[05:47](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=347s)** — In the morning, then you screw it up by eating. You're not really hungry in the morning.
+- **[05:52](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=352s)** — Most people are not hungry unless they've eaten something sweet the day before.
+- **[05:56](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=356s)** — There's so many wonderful magical things that happen in your body when you fast for a longer period of time.
+- **[06:02](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=362s)** — So let's say, for example, last night, the last meal was at six and you can push through and not have breakfast
+- **[06:09](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=369s)** — and skip the breakfast and go all the way to lunch.
+- **[06:11](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=371s)** — Now you have a good 18 hours of fasting.
+- **[06:15](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=375s)** — You're able to burn your own fat to lose more weight.
+- **[06:18](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=378s)** — You get to run on not just your own fat, but the ketones that are a by-product of fat and your brain loves them.
+- **[06:25](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=385s)** — You get to reverse insulin resistance all the years of eating carbohydrates.
+- **[06:30](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=390s)** — Your mood goes up. Appetite goes away.
+- **[06:33](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=393s)** — Mostly from skipping breakfast. When I was 28, I was eating all the wrong things.
+- **[06:37](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=397s)** — I had arthritis. I had brain fog. I was a pre-diabetic. I started gaining weight.
+- **[06:43](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=403s)** — But other than that, I was doing pretty good overall. And I'm just being sarcastic.
+- **[06:48](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=408s)** — To get more information on what that's called, it's called intermittent fasting.
+- **[06:52](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=412s)** — I created a very detailed video for you, a guide that you can learn from all the details.
+- **[06:58](https://www.youtube.com/watch?v=Y2tAmoIp9d4&t=418s)** — And I put it right here. Check it out right now.

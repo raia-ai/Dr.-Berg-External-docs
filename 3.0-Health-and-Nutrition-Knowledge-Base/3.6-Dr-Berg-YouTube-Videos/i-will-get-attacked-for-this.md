@@ -1,0 +1,113 @@
+# I Will Get Attacked for This...
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=OiU1B6VNDvQ](https://www.youtube.com/watch?v=OiU1B6VNDvQ)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=0s)** — You've been lied to by medicine. I was recently invited to speak at the Low Carb Conference.
+- **[00:06](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=6s)** — Okay, there was a bunch of doctors in the room and what was amazing was that all the doctors in
+- **[00:12](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=12s)** — the room practiced a completely different type of medicine. They practiced the philosophy that
+- **[00:17](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=17s)** — food is the best medicine. Using drugs were not their mode of treatment and I really think that's
+- **[00:23](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=23s)** — going to be the wave of the future. But unfortunately the great majority of doctors
+- **[00:26](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=26s)** — use drugs to heal people. And today we're going to dissect this and talk about quite a few lies
+- **[00:31](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=31s)** — that you probably have been told by your doc. And the problem is not even doctors, it's the
+- **[00:37](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=37s)** — system behind doctors. If you were just to ask someone in the medical profession,
+- **[00:41](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=41s)** — what creates health? What would they say? Does a drug actually create health or does it numb or
+- **[00:48](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=48s)** — alter a symptom? And unfortunately our current health care system is highly influenced by
+- **[00:53](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=53s)** — big pharma and big food, aka the junk food industry. Another problem with the medical
+- **[00:58](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=58s)** — profession is it's over specialized. We have a bunch of specialists that are not necessarily
+- **[01:03](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=63s)** — connecting the dots and looking at the whole body. Doctors just focusing on the ears,
+- **[01:07](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=67s)** — nose and throat. Other doctors just focus on the digestive system or the endocrine system
+- **[01:13](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=73s)** — or the brain. I think that's a problem because it kind of keeps everything separated.
+- **[01:17](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=77s)** — And very unfortunately the training in nutrition and food therapy is virtually absent in medical
+- **[01:23](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=83s)** — schools. They get I think 12 to 20 hours. Well here's one of their biochemistry textbooks,
+- **[01:28](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=88s)** — this one right here. And what's missing in this book are the key co-factors,
+- **[01:33](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=93s)** — aka nutrients, that are involved in biochemistry. Nutrition is not emphasized
+- **[01:39](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=99s)** — in biochemistry. Doctors do not look into this diet, this food angle. Yet many doctors have
+- **[01:45](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=105s)** — opinions on nutrition which is not very favorable. So let's dive into the nine lies
+- **[01:50](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=110s)** — that your doctor told you. Number one, you don't need a gallbladder. So if you're missing it,
+- **[01:55](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=115s)** — it is not a big deal. Well first of all the gallbladder is a sack that is underneath your
+- **[02:00](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=120s)** — right rib cage. It's a storage place for something called bile salts. And bile salts are a
+- **[02:05](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=125s)** — detergent that helps you extract certain fats from your digestive system. So without a
+- **[02:12](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=132s)** — gallbladder you're not going to be able to concentrate this bile. So if you don't have a
+- **[02:16](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=136s)** — gallbladder, bile salts after a meal would be a good idea. Number two, statins have minimal
+- **[02:21](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=141s)** — side effects. That is completely not true. They have major side effects. Not just a little
+- **[02:28](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=148s)** — problem with muscles, but a major problem with muscles. Your risk for type 2 diabetes goes up
+- **[02:32](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=152s)** — and you're at risk for liver damage. Some doctors even recommend statins for everyone
+- **[02:37](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=157s)** — over the age of 40 and 50 whether you have a problem with cholesterol or not. That is insane
+- **[02:45](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=165s)** — because without cholesterol a lot of problems can occur. Cholesterol is a necessary thing that
+- **[02:50](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=170s)** — your body makes and needs for several things. Number one, it's needed to make a lot of
+- **[02:57](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=177s)** — different hormones including testosterone, estrogen, progesterone, the stress hormone
+- **[03:01](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=181s)** — called cortisol. It's needed to make the cell membranes. And you have a lot of cell membranes.
+- **[03:07](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=187s)** — In fact, the surface area of membrane that surrounds your cells is roughly, and I'm not
+- **[03:15](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=195s)** — So instead of trying to block the production of cholesterol, let's actually get rid of certain
+- **[03:20](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=200s)** — things that are causing high levels of cholesterol. Another lie that people are told is that
+- **[03:25](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=205s)** — hypertension is really too much salt in the diet. Is it really the salt? Some people that
+- **[03:30](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=210s)** — take salt before bed sleep better because it lowers cortisol. We don't want to start
+- **[03:35](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=215s)** — lowering salt below the threshold. Instead, we want to take the opposing mineral, which is
+- **[03:41](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=221s)** — and increase that. That allows a person to tolerate more sodium. Salt sensitive people
+- **[03:47](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=227s)** — are no longer salt sensitive when they have more potassium. Potassium is great for blood
+- **[03:52](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=232s)** — pressure because it helps soften the arteries. It helps calm this tightness down. All right,
+- **[03:57](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=237s)** — the next one. The doctor says your vitamin D is low. We're going to give you six to eight
+- **[04:02](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=242s)** — hundred IUs, right? Which is a ridiculous number. It's so small it's not going to
+- **[04:07](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=247s)** — dent into your levels. So then you go back to the doctor because you probably found one of
+- **[04:12](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=252s)** — my videos that said you should take a minimum of ten thousand IUs every day as a maintenance
+- **[04:17](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=257s)** — dosage. And they tell you, oh my gosh, that's toxic. That's a lie. If you're out for 40
+- **[04:23](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=263s)** — minutes in summer, you'll get 20,000 IUs of vitamin D3. Have you ever heard being out
+- **[04:29](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=269s)** — in the sun for 20 minutes will give you some toxicity with vitamin D? No, you don't,
+- **[04:35](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=275s)** — because vitamin D from the sun is the most natural way to get all the benefits. What
+- **[04:39](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=279s)** — you have to know is the international units are not a measurement of weight or size. They're
+- **[04:45](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=285s)** — based on a group of people deciding that's what it should be. A 10,000 IUs of vitamin D3 is not
+- **[04:51](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=291s)** — that much. If I'm not mistaken, it's less than a quarter of one milligram of vitamin D3. Now,
+- **[04:58](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=298s)** — this next one is actually kind of comical. You've probably been told by your doctor
+- **[05:01](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=301s)** — you need to give up red meat because red meat causes colon cancer, causes heart disease, right?
+- **[05:07](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=307s)** — Really? Is that actually true? The answer is no. In fact, out of all of the foods that you can
+- **[05:14](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=314s)** — eat that can help heal you, grass-fed red meat is at the top of the list. Why? Because it
+- **[05:21](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=321s)** — provides the most quality protein that your body needs. Number one, it has virtually all of
+- **[05:27](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=327s)** — the B vitamins. Zinc, selenium, copper, iron, all in the form that's easily absorbed. It also has
+- **[05:34](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=334s)** — another thing called creatine which gives you energy and it helps your muscles. It has l-carnitine
+- **[05:40](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=340s)** — which helps deliver fats into the mitochondria for energy. It helps you burn fat. It even
+- **[05:45](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=345s)** — has something called coenzyme Q10 and it's one of the best sources of glutamine for any
+- **[05:50](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=350s)** — type of gut inflammation. But of course, the conventional health care industry says that red
+- **[05:55](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=355s)** — meat is bad and you should avoid it. They kind of lump it in with processed meat saying it's all
+- **[06:00](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=360s)** — the same. Next one is that you have to avoid saturated fats. Well, they blame the saturated
+- **[06:06](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=366s)** — fat when in fact they should be blaming the unsaturated fat, the seed oils which make up 30%
+- **[06:12](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=372s)** — of our diet. Saturated fat by itself is not the culprit. If you take a look at all the junk
+- **[06:17](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=377s)** — food out there, there's not a lot of saturated fat in junk food. I'm talking about the
+- **[06:24](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=384s)** — very inflammatory. This next one is interesting. They're mostly going to tell you to lose weight
+- **[06:29](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=389s)** — because the weight's the cause. No, weight is a symptom. Your high cholesterol is a symptom. You
+- **[06:35](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=395s)** — see, if you actually put weight as the cause of your problem, then you're going to be susceptible
+- **[06:40](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=400s)** — to taking certain measures that might not be healthy to lose weight like ozempic or some
+- **[06:44](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=404s)** — other medication. My question is what is really at the root of your weight problem? It's kind
+- **[06:49](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=409s)** — of circular because they'll say that your weight problem causes your high blood pressure and they
+- **[06:54](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=414s)** — might put you in this boat where you have metabolic syndrome. So you have all these
+- **[06:58](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=418s)** — different syndromes. They're all associated with each other, but no one's really talking about
+- **[07:03](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=423s)** — the root cause. The root cause is really something called insulin resistance where the body is
+- **[07:08](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=428s)** — pumping out a lot of insulin and that insulin is making you fat. It's making the arteries
+- **[07:12](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=432s)** — constrict causing blood pressure to go up and that's caused by eating too many refined
+- **[07:17](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=437s)** — carbs and sugars and seed oils. So my philosophy is always it's not lose weight to get healthy.
+- **[07:22](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=442s)** — It's get healthy first to lose the weight. So focus on the health. The next one relates to
+- **[07:28](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=448s)** — maybe a recommendation you might get from a dietician and this would be you need to be
+- **[07:32](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=452s)** — more plant-based, right? Because plant-based is cleaner. If you take a look at some of the
+- **[07:38](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=458s)** — ingredients on these plant-based artificial fake meats, it's all alter processed food
+- **[07:45](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=465s)** — ingredients. We're talking about soy protein isolates. We're talking about hidden maltodextrin.
+- **[07:50](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=470s)** — It's not really healthy. Grass-fed, organic, free-range, pasture-raised eggs, much healthier.
+- **[07:55](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=475s)** — And this next one is really fascinating because it'll say that hypoglycemia is a complication of
+- **[08:00](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=480s)** — diabetes and so we have to manage it because it's one of the dangers of having diabetes is
+- **[08:05](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=485s)** — to have hypoglycemia. Well, what is hypoglycemia? Low blood sugar. What is diabetes? High blood
+- **[08:10](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=490s)** — sugar. So if diabetes is high blood sugar, shouldn't we lower the glucose and sugar
+- **[08:16](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=496s)** — and carbohydrates? Wouldn't that be the best thing to do? Well, guess what? Doctors don't
+- **[08:22](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=502s)** — really tell you to do that. Instead, they tell you to keep some glucose pills in your
+- **[08:27](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=507s)** — pocket or candy in case your blood sugars go too low because the medication you're taking
+- **[08:33](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=513s)** — is lowering your blood glucose. We don't want it to go too low. That's completely illogical.
+- **[08:38](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=518s)** — Why doesn't the doctor just tell you to lower the medication and take less candy? Because it's
+- **[08:44](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=524s)** — the carbohydrates that spike the insulin that drops the blood glucose. So anyone who has
+- **[08:50](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=530s)** — hypoglycemia or low blood sugar really has too much insulin. And thus the problem with
+- **[08:55](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=535s)** — the medical industry. There hasn't been any deep dive in evaluation into nutrients and
+- **[09:00](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=540s)** — what they do and how they can benefit someone. But what I will say is I have done a deep dive
+- **[09:06](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=546s)** — in many different aspects on nutrition. If you want more information on that,
+- **[09:10](https://www.youtube.com/watch?v=OiU1B6VNDvQ&t=550s)** — you should check out this video right here.

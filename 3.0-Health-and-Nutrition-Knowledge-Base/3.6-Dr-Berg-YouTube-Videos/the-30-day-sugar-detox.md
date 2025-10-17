@@ -1,0 +1,117 @@
+# The 30-Day Sugar Detox
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=e46xrn8c-eA](https://www.youtube.com/watch?v=e46xrn8c-eA)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=e46xrn8c-eA&t=0s)** — So why would anyone want to do a 30-day sugar detox? I mean, sugar is natural. It's what feeds our brain.
+- **[00:06](https://www.youtube.com/watch?v=e46xrn8c-eA&t=6s)** — I mean, what's going to happen to our brain if we detox sugar for 30 days? Can it survive?
+- **[00:11](https://www.youtube.com/watch?v=e46xrn8c-eA&t=11s)** — So let's dive into this topic. I have some new information I think you'll like,
+- **[00:14](https://www.youtube.com/watch?v=e46xrn8c-eA&t=14s)** — but it revolves around this one term called metabolic flexibility. That is your cell's
+- **[00:20](https://www.youtube.com/watch?v=e46xrn8c-eA&t=20s)** — ability to make this smooth transition between carbs and fat during a fasting state and then
+- **[00:28](https://www.youtube.com/watch?v=e46xrn8c-eA&t=28s)** — until you eat and then when you're eating and then going into a fasting state, how well can you
+- **[00:33](https://www.youtube.com/watch?v=e46xrn8c-eA&t=33s)** — switch fuels? Because when you're eating, sometimes you're living off the glucose, right? The sugar.
+- **[00:39](https://www.youtube.com/watch?v=e46xrn8c-eA&t=39s)** — But then when you fast, okay, that's no longer available. Can your body adapt to burning fat
+- **[00:45](https://www.youtube.com/watch?v=e46xrn8c-eA&t=45s)** — and ketones, which are kind of like little packaged pieces of fat? How smooth and efficient
+- **[00:50](https://www.youtube.com/watch?v=e46xrn8c-eA&t=50s)** — can this transition take place? As well as your cell's ability to utilize fat and carbs
+- **[00:57](https://www.youtube.com/watch?v=e46xrn8c-eA&t=57s)** — when you're metabolically inflexible, this transition is very, very dysfunctional.
+- **[01:03](https://www.youtube.com/watch?v=e46xrn8c-eA&t=63s)** — Your ability to burn fat when you go into a fasting state is very difficult. So this does
+- **[01:08](https://www.youtube.com/watch?v=e46xrn8c-eA&t=68s)** — explain what's really behind why people can't seem to lose any weight when they do this
+- **[01:13](https://www.youtube.com/watch?v=e46xrn8c-eA&t=73s)** — fasting. And then also when you exercise, let's say you're going to do some type of
+- **[01:17](https://www.youtube.com/watch?v=e46xrn8c-eA&t=77s)** — endurance type of exercise where you actually need glucose every so often, right? Your body just
+- **[01:23](https://www.youtube.com/watch?v=e46xrn8c-eA&t=83s)** — not seem to tap into this fat fuel when you're exercising. That means you're metabolically
+- **[01:30](https://www.youtube.com/watch?v=e46xrn8c-eA&t=90s)** — inflexible. So this metabolic inflexibility leads to diabetes, obesity, loss of muscle
+- **[01:38](https://www.youtube.com/watch?v=e46xrn8c-eA&t=98s)** — protein. That's called sarcopenia because instead of burning fat, the body sometimes will start
+- **[01:43](https://www.youtube.com/watch?v=e46xrn8c-eA&t=103s)** — using muscle protein as its fuel. So the whole determination of what fuel your body is
+- **[01:49](https://www.youtube.com/watch?v=e46xrn8c-eA&t=109s)** — is all dysfunctional. The fuel comes into the energy mitochondria and it doesn't get burned.
+- **[01:54](https://www.youtube.com/watch?v=e46xrn8c-eA&t=114s)** — And sometimes it doesn't get stored and it clogs things up. If you were to look at the
+- **[01:58](https://www.youtube.com/watch?v=e46xrn8c-eA&t=118s)** — mitochondria, as far as this little assembly line of turning food into energy, you'd find
+- **[02:03](https://www.youtube.com/watch?v=e46xrn8c-eA&t=123s)** — all sorts of bottlenecks and traffic jams. And this is what's really behind so many
+- **[02:09](https://www.youtube.com/watch?v=e46xrn8c-eA&t=129s)** — chronic illnesses, including cancer. So this really described what happened to me in my
+- **[02:15](https://www.youtube.com/watch?v=e46xrn8c-eA&t=135s)** — 20s. Boy, I could not go for any period of time without needing a snack or else I'd get
+- **[02:20](https://www.youtube.com/watch?v=e46xrn8c-eA&t=140s)** — highly irritable. Ask my wife. I remember one time we were doing all these things to try to
+- **[02:25](https://www.youtube.com/watch?v=e46xrn8c-eA&t=145s)** — get healthy and I decided to do a Colema. Okay, Colema. What's a Colema? It's a combination
+- **[02:32](https://www.youtube.com/watch?v=e46xrn8c-eA&t=152s)** — between a colonic and an enema. And it was developed by Bernard Jensen. And in this colon
+- **[02:36](https://www.youtube.com/watch?v=e46xrn8c-eA&t=156s)** — cleansing program, you don't eat any food. You're drinking this mixture of psyllium seed
+- **[02:43](https://www.youtube.com/watch?v=e46xrn8c-eA&t=163s)** — with certain vitamins, with apple juice. And I've never felt worse during that period of time.
+- **[02:50](https://www.youtube.com/watch?v=e46xrn8c-eA&t=170s)** — And when I was fasting for that week, I couldn't tap into my own fat. I was living off a
+- **[02:55](https://www.youtube.com/watch?v=e46xrn8c-eA&t=175s)** — little bit of sugar. I wasn't transitioning to the fat fuel because if I was, my appetite
+- **[03:00](https://www.youtube.com/watch?v=e46xrn8c-eA&t=180s)** — would go away. I would feel so much better mentally, but I felt so terribly and I was
+- **[03:06](https://www.youtube.com/watch?v=e46xrn8c-eA&t=186s)** — so irritable. It was just miserable. And so when you have metabolic inflexibility, you're
+- **[03:11](https://www.youtube.com/watch?v=e46xrn8c-eA&t=191s)** — going to be grouchy. You're going to have anxiety. You're going to be tired. You're
+- **[03:15](https://www.youtube.com/watch?v=e46xrn8c-eA&t=195s)** — not going to be able to go for a long period of time without eating. And when you try to go
+- **[03:18](https://www.youtube.com/watch?v=e46xrn8c-eA&t=198s)** — on a fast, you're not going to feel good. You're going to feel tired. You're not going
+- **[03:22](https://www.youtube.com/watch?v=e46xrn8c-eA&t=202s)** — to be able to lose much weight. You're not going to have all the benefits that you could
+- **[03:26](https://www.youtube.com/watch?v=e46xrn8c-eA&t=206s)** — if you adapted and you were actually metabolically flexible. What's at the core of
+- **[03:32](https://www.youtube.com/watch?v=e46xrn8c-eA&t=212s)** — this problem is insulin resistance. And insulin is what controls whether you burn fat or not.
+- **[03:38](https://www.youtube.com/watch?v=e46xrn8c-eA&t=218s)** — And so if someone is metabolically inflexible, what's really going on is insulin resistance.
+- **[03:43](https://www.youtube.com/watch?v=e46xrn8c-eA&t=223s)** — And so the insulin is pretty high. Even in a fasting state, you see this a lot with a
+- **[03:48](https://www.youtube.com/watch?v=e46xrn8c-eA&t=228s)** — diabetic as well as obesity. With certain obese people, they can have like three times as much
+- **[03:53](https://www.youtube.com/watch?v=e46xrn8c-eA&t=233s)** — insulin as someone who doesn't have that problem. And so the consequence of all this
+- **[03:57](https://www.youtube.com/watch?v=e46xrn8c-eA&t=237s)** — extra insulin is that it's the message of don't burn fat, store fat. So the person tries
+- **[04:03](https://www.youtube.com/watch?v=e46xrn8c-eA&t=243s)** — and tries and tries and just can't lose the weight. But there is a way to transition over to
+- **[04:09](https://www.youtube.com/watch?v=e46xrn8c-eA&t=249s)** — create this metabolic flexibility, which really is insulin sensitivity. And there's many benefits
+- **[04:15](https://www.youtube.com/watch?v=e46xrn8c-eA&t=255s)** — for this. You'll be able to go long periods of time without hunger, without cravings.
+- **[04:20](https://www.youtube.com/watch?v=e46xrn8c-eA&t=260s)** — You'll be able to actually burn fat, which would be a great thing. And also your efficiency
+- **[04:24](https://www.youtube.com/watch?v=e46xrn8c-eA&t=264s)** — of burning sugar will be better too. The sugar that comes in the mitochondria can finally
+- **[04:29](https://www.youtube.com/watch?v=e46xrn8c-eA&t=269s)** — be burned as well. And so occasionally if you go off your keto plan and you go on some carbs,
+- **[04:34](https://www.youtube.com/watch?v=e46xrn8c-eA&t=274s)** — your body can burn those fuels. So the ideal situation would be able to build up your body
+- **[04:39](https://www.youtube.com/watch?v=e46xrn8c-eA&t=279s)** — into a state of insulin sensitivity and metabolic flexibility. So I'm going to show
+- **[04:44](https://www.youtube.com/watch?v=e46xrn8c-eA&t=284s)** — you four ways to do that. And just so you know, if you did this for 30 days, chances are
+- **[04:48](https://www.youtube.com/watch?v=e46xrn8c-eA&t=288s)** — you would create a huge impact into this problem. Number one, you eat less frequently.
+- **[04:54](https://www.youtube.com/watch?v=e46xrn8c-eA&t=294s)** — This goes against what people tend to tell you to do, right? Eat often to prevent hunger. Like
+- **[05:00](https://www.youtube.com/watch?v=e46xrn8c-eA&t=300s)** — this hunger is a bad thing. Like you're starving. No, it's actually being hungry sometimes is a
+- **[05:05](https://www.youtube.com/watch?v=e46xrn8c-eA&t=305s)** — very healthy thing. It's in our genetics. We've been hungry for a very long time. And if we
+- **[05:11](https://www.youtube.com/watch?v=e46xrn8c-eA&t=311s)** — never let our body get hungry because we're constantly feeding it, we develop metabolic
+- **[05:16](https://www.youtube.com/watch?v=e46xrn8c-eA&t=316s)** — inflexibility. Number two, eat fewer carbs. All right, number three, and this may be a
+- **[05:22](https://www.youtube.com/watch?v=e46xrn8c-eA&t=322s)** — sufficient amount of fat, but don't eat excessive amounts of fat. If you are metabolically
+- **[05:29](https://www.youtube.com/watch?v=e46xrn8c-eA&t=329s)** — inflexible, why? Because not only can you not efficiently burn glucose, you also can't burn
+- **[05:36](https://www.youtube.com/watch?v=e46xrn8c-eA&t=336s)** — fat too well either. That's why you can't lose weight. So why would you want to add so
+- **[05:40](https://www.youtube.com/watch?v=e46xrn8c-eA&t=340s)** — much extra fat to the diet? That would be a mistake. I'm not telling you to go low fat,
+- **[05:45](https://www.youtube.com/watch?v=e46xrn8c-eA&t=345s)** — but just don't add all these additional fats that so many people add into a ketogenic diet.
+- **[05:50](https://www.youtube.com/watch?v=e46xrn8c-eA&t=350s)** — I'll never forget the story of a friend of mine that went on the ketogenic diet. First of all,
+- **[05:55](https://www.youtube.com/watch?v=e46xrn8c-eA&t=355s)** — his definition of keto was just a high fat diet, right? And he didn't want to do intermittent
+- **[05:59](https://www.youtube.com/watch?v=e46xrn8c-eA&t=359s)** — fasting. So he made these fat bombs. They're like pure fat, coconut oil, and butter and MCT
+- **[06:07](https://www.youtube.com/watch?v=e46xrn8c-eA&t=367s)** — oil, and maybe a little almond oil. And he was just down in these all day long. I think
+- **[06:12](https://www.youtube.com/watch?v=e46xrn8c-eA&t=372s)** — the first week he gained five pounds. The second week, I think he gained seven pounds.
+- **[06:17](https://www.youtube.com/watch?v=e46xrn8c-eA&t=377s)** — That is not what you want to do. So get your fat that normally comes with the meat,
+- **[06:21](https://www.youtube.com/watch?v=e46xrn8c-eA&t=381s)** — okay, or other things. But don't go low fat if you're doing cheese or something like that.
+- **[06:26](https://www.youtube.com/watch?v=e46xrn8c-eA&t=386s)** — But don't add additional fat. And that way we can get your body to tap into your own fat.
+- **[06:32](https://www.youtube.com/watch?v=e46xrn8c-eA&t=392s)** — That is the purpose of the fat. To provide for extra fuel during times when you're not
+- **[06:36](https://www.youtube.com/watch?v=e46xrn8c-eA&t=396s)** — eating. And so when you go on a fast and you eliminate glucose, now the body has no
+- **[06:43](https://www.youtube.com/watch?v=e46xrn8c-eA&t=403s)** — choice but to burn its own fat. And we can really screw this up if our meal is very high in fat.
+- **[06:48](https://www.youtube.com/watch?v=e46xrn8c-eA&t=408s)** — Because now we don't give the system a chance to tap into our own fat. So let's say you're
+- **[06:55](https://www.youtube.com/watch?v=e46xrn8c-eA&t=415s)** — doing two meals a day and you're adding this extra MCT oil and these extra fats. And even
+- **[07:00](https://www.youtube.com/watch?v=e46xrn8c-eA&t=420s)** — if you're going 18 hours, okay, all that fat that you ate in the last meal is still not
+- **[07:07](https://www.youtube.com/watch?v=e46xrn8c-eA&t=427s)** — used up. How do you expect to ever lose weight? So I just want to emphasize that one
+- **[07:11](https://www.youtube.com/watch?v=e46xrn8c-eA&t=431s)** — point. Okay, number four, exercise snacking. And this is probably a new word for you. It was
+- **[07:19](https://www.youtube.com/watch?v=e46xrn8c-eA&t=439s)** — coined by someone back, I think in 1970. And it's not eating while you're exercising. Okay,
+- **[07:27](https://www.youtube.com/watch?v=e46xrn8c-eA&t=447s)** — exercise snacking is basically short bouts of exercise through the day. Like doing this high
+- **[07:35](https://www.youtube.com/watch?v=e46xrn8c-eA&t=455s)** — intense interval training bout for five minutes before you eat. And then walking after you eat
+- **[07:41](https://www.youtube.com/watch?v=e46xrn8c-eA&t=461s)** — what they found was very interesting when they compare doing that to like a regular pattern
+- **[07:46](https://www.youtube.com/watch?v=e46xrn8c-eA&t=466s)** — of eating and doing this workout, maybe at a standard time during the day, is that when you
+- **[07:51](https://www.youtube.com/watch?v=e46xrn8c-eA&t=471s)** — have these short bursts of exercise throughout the day, that produces way more benefits to
+- **[07:56](https://www.youtube.com/watch?v=e46xrn8c-eA&t=476s)** — your blood sugars, to making insulin more sensitive, as well as to improving your
+- **[08:01](https://www.youtube.com/watch?v=e46xrn8c-eA&t=481s)** — metabolic flexibility better than the old pattern. So I recently mentioned this in a video,
+- **[08:07](https://www.youtube.com/watch?v=e46xrn8c-eA&t=487s)** — instead of sitting in front of the desk all day, break it up with maybe every hour or every two
+- **[08:12](https://www.youtube.com/watch?v=e46xrn8c-eA&t=492s)** — hours, you do a little short exercise, that's going to break up the pattern of sitting all
+- **[08:17](https://www.youtube.com/watch?v=e46xrn8c-eA&t=497s)** — day being sedentary. And it's also very doable because you're only spending like five minutes
+- **[08:22](https://www.youtube.com/watch?v=e46xrn8c-eA&t=502s)** — doing a workout. And if you want to take it to the next level, you can instead of doing
+- **[08:26](https://www.youtube.com/watch?v=e46xrn8c-eA&t=506s)** — high intensity interval training, you can do a version of that called SIT, which stands for
+- **[08:31](https://www.youtube.com/watch?v=e46xrn8c-eA&t=511s)** — sprinting interval training. So this is like the flat out full high intensity,
+- **[08:37](https://www.youtube.com/watch?v=e46xrn8c-eA&t=517s)** — using the maximum intensity type exercise you can do, which is sprinting. And you're only
+- **[08:42](https://www.youtube.com/watch?v=e46xrn8c-eA&t=522s)** — going to be doing it for 10 seconds, right? And you rest for a period of time, do it for
+- **[08:46](https://www.youtube.com/watch?v=e46xrn8c-eA&t=526s)** — another 10 seconds, rest for a period of time. And that produces some serious results. In fact,
+- **[08:51](https://www.youtube.com/watch?v=e46xrn8c-eA&t=531s)** — that's what I'm experimenting right now with. Actually, I'm doing it up a hill. I'm running
+- **[08:55](https://www.youtube.com/watch?v=e46xrn8c-eA&t=535s)** — or sprinting up a hill to add more resistance. And I can only go like 15 seconds and I'm done.
+- **[09:03](https://www.youtube.com/watch?v=e46xrn8c-eA&t=543s)** — And if you can combine this with intermittent fasting, not overdoing with your fat
+- **[09:07](https://www.youtube.com/watch?v=e46xrn8c-eA&t=547s)** — within 30 days, you're going to produce some serious results, not just with your weight
+- **[09:11](https://www.youtube.com/watch?v=e46xrn8c-eA&t=551s)** — for your overall health. Now, because of the censoring and the suppressing of the algorithms
+- **[09:16](https://www.youtube.com/watch?v=e46xrn8c-eA&t=556s)** — on YouTube, it's becoming more difficult to find my content. And there's a lot of content
+- **[09:21](https://www.youtube.com/watch?v=e46xrn8c-eA&t=561s)** — I cannot put on YouTube, unfortunately. So to make sure you have full access of all my
+- **[09:26](https://www.youtube.com/watch?v=e46xrn8c-eA&t=566s)** — information, go to drberg.com and subscribe to my newsletter by clicking the link down
+- **[09:32](https://www.youtube.com/watch?v=e46xrn8c-eA&t=572s)** — below in the description. I will see you on the other side.

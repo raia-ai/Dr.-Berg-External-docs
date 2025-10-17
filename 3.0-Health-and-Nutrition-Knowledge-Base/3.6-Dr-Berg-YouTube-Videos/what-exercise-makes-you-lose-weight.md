@@ -1,0 +1,199 @@
+# What Exercise Makes You LOSE WEIGHT?!
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=1CV8B82r5Sg](https://www.youtube.com/watch?v=1CV8B82r5Sg)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=0s)** — What is the highest burning calorie exercise or activity that ever existed on this planet?
+- **[00:06](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=6s)** — That's what we're going to talk about today.
+- **[00:07](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=7s)** — Now, this information is based on a person that weighs about 155 pounds.
+- **[00:11](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=11s)** — And all of these activities are based on one hour of doing them.
+- **[00:16](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=16s)** — A lot of these exercises cannot be performed for a whole hour.
+- **[00:20](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=20s)** — But just to give you a relative comparison per unit of time,
+- **[00:25](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=25s)** — I'm going to list everything by calories burned.
+- **[00:28](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=28s)** — And then when we're done, I want to clarify some really important points on calories
+- **[00:32](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=32s)** — because it's not all about burning calories.
+- **[00:35](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=35s)** — We start with sleeping.
+- **[00:37](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=37s)** — You'll burn 50 calories per hour when you're sleeping.
+- **[00:41](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=41s)** — And then we graduate to sitting, being sedentary, sitting on the couch.
+- **[00:45](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=45s)** — 65 calories per hour you can burn just by doing nothing.
+- **[00:50](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=50s)** — And just as a side note, if you chew gum, you can burn a few more calories an hour.
+- **[00:54](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=54s)** — If you laugh, you can burn a few more calories per hour.
+- **[00:58](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=58s)** — And if you fidget, you can burn a few more calories per hour.
+- **[01:02](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=62s)** — All very insignificant.
+- **[01:04](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=64s)** — So when you're sitting there watching TV at night eating popcorn,
+- **[01:07](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=67s)** — find a comedy, start laughing, fidget while you're chewing gum
+- **[01:10](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=70s)** — and eating the popcorn at the same time.
+- **[01:12](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=72s)** — Then we have standing. It takes a little more energy to stand.
+- **[01:15](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=75s)** — So we have 110 calories.
+- **[01:17](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=77s)** — Sex. It's not an exercise. I guess it could be.
+- **[01:21](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=81s)** — You'll burn about 200 calories an hour.
+- **[01:24](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=84s)** — But most people do not spend an hour performing that exercise.
+- **[01:27](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=87s)** — Probably more like, I don't know, four minutes, maybe 10 minutes.
+- **[01:32](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=92s)** — Then we have planks. If you did plank for an hour, you'd burn 240 calories.
+- **[01:36](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=96s)** — That seems pretty strange because it seems like a plank would burn way more calories.
+- **[01:40](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=100s)** — I'll have to double check that one.
+- **[01:42](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=102s)** — But I tell you one thing, I don't think most people can do a plank
+- **[01:45](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=105s)** — for more than, you know, five, ten minutes, let alone an hour.
+- **[01:50](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=110s)** — Okay, then we have walking.
+- **[01:51](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=111s)** — Moderate pace, about three miles an hour. You'll burn about 240 calories an hour.
+- **[01:55](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=115s)** — Bowling is 250 calories. House cleaning, vigorous effort, 250 calories.
+- **[02:00](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=120s)** — Gardening or yard work is 270 calories.
+- **[02:04](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=124s)** — Yoga, you can burn 280 calories walking briskly at four miles an hour.
+- **[02:10](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=130s)** — 340 calories. Golfing, 360 calories per hour.
+- **[02:14](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=134s)** — And then if you do the elliptical training moderately, it's about 400 calories an hour.
+- **[02:18](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=138s)** — Now a more high-end yoga, like a power yoga, you could burn about 400 calories.
+- **[02:25](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=145s)** — Okay, and then the next series of exercise all burn about, roughly about, 420 calories.
+- **[02:30](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=150s)** — Softball, baseball, rollerblading, roller skating, bicycling at 10 miles an hour,
+- **[02:36](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=156s)** — weightlifting, vigorous effort, Zumba, dance workout, and aerobics, moderate effort.
+- **[02:43](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=163s)** — All are 420 calories per hour.
+- **[02:46](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=166s)** — Then we have like aerobic dancing, vigorously, that's 440 calories per hour.
+- **[02:52](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=172s)** — Volleyball is 450 calories per hour.
+- **[02:56](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=176s)** — Hiking with a backpack, 450 calories per hour.
+- **[03:00](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=180s)** — Playing tennis, it's 450 calories.
+- **[03:02](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=182s)** — Rowing, 470.
+- **[03:05](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=185s)** — Bicycling, about 12 to 14 miles an hour, is about 470 calories.
+- **[03:09](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=189s)** — And then the next series of exercises all burn about 480 calories per hour.
+- **[03:14](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=194s)** — Basketball, soccer, running, 5 to 6 miles an hour.
+- **[03:19](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=199s)** — Elliptical training, vigorously, all 480 calories per hour.
+- **[03:24](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=204s)** — And then we have swimming, moderate effort is 510 calories.
+- **[03:29](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=209s)** — Cross-country skiing, I've done that.
+- **[03:31](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=211s)** — It's a pretty serious workout. That's 550 calories per hour.
+- **[03:36](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=216s)** — Then we have martial arts, judo, karate, etc.
+- **[03:39](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=219s)** — 560 calories an hour.
+- **[03:40](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=220s)** — Jumping rope, 560 calories an hour.
+- **[03:43](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=223s)** — I want to see you jump rope for an hour.
+- **[03:45](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=225s)** — Rock climbing, indoor and outdoor, 570 calories.
+- **[03:49](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=229s)** — And of course, that all depends on, you know, how many breaks that you're taking in between the rock climbing.
+- **[03:54](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=234s)** — I don't think anyone could rock climb for a straight one hour.
+- **[03:58](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=238s)** — Then you have rowing, vigorously, 570 calories.
+- **[04:02](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=242s)** — Kickboxing, 580 calories.
+- **[04:05](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=245s)** — Bicycling, vigorously, at 14 to 16 miles an hour, 590 calories.
+- **[04:11](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=251s)** — Then we have running at 6 to 7 miles per hour, 590 calories.
+- **[04:15](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=255s)** — Swimming, vigorously, high intensity interval training, CrossFit.
+- **[04:20](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=260s)** — All of them are 590 calories an hour.
+- **[04:22](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=262s)** — Now, of course, they're not factoring in the rest periods and all that.
+- **[04:27](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=267s)** — Because obviously when you're resting, you're going to burn those calories.
+- **[04:29](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=269s)** — Running up a hill, 800 calories per hour.
+- **[04:33](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=273s)** — Yeah, I like to see you run up a hill for an hour.
+- **[04:36](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=276s)** — I think I can make it about 15 to 20 seconds before I have to take a break.
+- **[04:42](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=282s)** — Now we have running at 10 miles an hour. That's pretty fast.
+- **[04:45](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=285s)** — Over 1126 calories. Of course, no one's going to be able to run an hour at that speed.
+- **[04:51](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=291s)** — But just to look at how many calories you would burn comparatively, it's quite a few.
+- **[04:55](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=295s)** — Oh, check this out. Chopping wood with an axe.
+- **[05:01](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=301s)** — 1196 calories per hour.
+- **[05:02](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=302s)** — And then we have the top exercise that burns the most calories.
+- **[05:06](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=306s)** — And that's a flat-out sprint. That's at 1200 calories per hour.
+- **[05:13](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=313s)** — We know that's ridiculous.
+- **[05:14](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=314s)** — But if you're doing a flat-out sprint and you're using every bit of energy,
+- **[05:19](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=319s)** — you're going to burn some serious calories.
+- **[05:22](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=322s)** — Now, that's all really interesting, but I need to explain some key things about burning calories.
+- **[05:28](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=328s)** — What is the purpose of burning calories? Why do you want to burn calories?
+- **[05:31](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=331s)** — Chances are, it's probably to lose weight, right?
+- **[05:33](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=333s)** — Now, we have to ask the question, what type of calories do you want to burn?
+- **[05:38](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=338s)** — Do you want to burn your sugar calories? Or do you want to burn your fat calories?
+- **[05:43](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=343s)** — Or do you want to burn your protein calories? Your muscle protein? Probably not.
+- **[05:47](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=347s)** — So you probably want to burn fat, right?
+- **[05:48](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=348s)** — So if you actually consume sugar, you're going to burn sugar.
+- **[05:52](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=352s)** — If you consume fat without sugar, you will burn fat.
+- **[05:56](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=356s)** — And when your body starts burning off your own protein, your muscle,
+- **[05:59](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=359s)** — that's in a situation where you are over training, you haven't slept.
+- **[06:06](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=366s)** — Maybe you're doing prolonged fasting.
+- **[06:08](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=368s)** — And in addition to that, you've tapped out like not just your glycogen reserve,
+- **[06:12](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=372s)** — but your fat reserves.
+- **[06:14](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=374s)** — And then now the muscle is going to be the last thing to be burned.
+- **[06:17](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=377s)** — And that's called starvation.
+- **[06:19](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=379s)** — With some of these long-distance runners, they have a bit of atrophy
+- **[06:22](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=382s)** — because they're generating so much energy and burning so many calories.
+- **[06:27](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=387s)** — It's very difficult to maintain a large volume of muscles
+- **[06:32](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=392s)** — because if you keep the intensity high and you increase duration,
+- **[06:36](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=396s)** — you also increase cortisol.
+- **[06:38](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=398s)** — Cortisol destroys the muscles.
+- **[06:40](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=400s)** — It's very important as we're talking about calories
+- **[06:42](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=402s)** — to make sure you never over train.
+- **[06:45](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=405s)** — So if we take a look at what's really happening inside yourselves
+- **[06:48](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=408s)** — when you exercise, you're using energy through the machine
+- **[06:53](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=413s)** — called the mitochondria.
+- **[06:54](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=414s)** — The amount of calories that you're burning really is dependent on how healthy
+- **[07:00](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=420s)** — that mitochondria is.
+- **[07:02](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=422s)** — How do you know if you have a good mitochondria?
+- **[07:03](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=423s)** — Well, take a look at your energy.
+- **[07:05](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=425s)** — How much energy do you have?
+- **[07:06](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=426s)** — Can you exercise and have more endurance and have more energy
+- **[07:10](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=430s)** — even after you work out to some degree?
+- **[07:12](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=432s)** — Certain medications destroy the mitochondria like statin drugs
+- **[07:15](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=435s)** — which block cholesterol.
+- **[07:17](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=437s)** — And one of the big reasons is because it depletes a very important nutrient
+- **[07:22](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=442s)** — that's needed by the mitochondria to make energy
+- **[07:24](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=444s)** — and that's called coenzyme Q10.
+- **[07:28](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=448s)** — Also, L-carnitine is another one as well.
+- **[07:30](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=450s)** — So there are several things that can help increase the number
+- **[07:34](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=454s)** — of mitochondria and the strength.
+- **[07:37](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=457s)** — Of course, exercise will do it,
+- **[07:39](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=459s)** — but only if you're resting between your exercise and you're fully recovering.
+- **[07:43](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=463s)** — Having a good thyroid can help the number of mitochondria.
+- **[07:47](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=467s)** — Increasing more muscle mass will automatically give you more mitochondria.
+- **[07:52](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=472s)** — And this is why it's important if you want to improve your metabolism
+- **[07:56](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=476s)** — to make sure you have sufficient muscle mass.
+- **[07:59](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=479s)** — And even people doing Ozempic, right?
+- **[08:01](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=481s)** — What they do is they lose weight, but they also lose muscle as a side effect.
+- **[08:07](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=487s)** — I mean sometimes people have this idea that
+- **[08:08](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=488s)** — oh yeah, I'll be on this medication the rest of my life.
+- **[08:10](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=490s)** — Really? I don't think so.
+- **[08:12](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=492s)** — So you might start out losing weight
+- **[08:14](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=494s)** — and then all of a sudden lose your mitochondria.
+- **[08:17](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=497s)** — Doing intermittent fasting can also stimulate the production of more mitochondria.
+- **[08:24](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=504s)** — But I want to say something.
+- **[08:25](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=505s)** — There's a fascinating test that can look into the mitochondria.
+- **[08:29](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=509s)** — It's called metabolomics and determine if you're getting enough fuel to even feed the mitochondria,
+- **[08:33](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=513s)** — especially if someone is exercising.
+- **[08:35](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=515s)** — It's very important to get enough fuel to feed the machine.
+- **[08:40](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=520s)** — One of the best fuels for the mitochondria is meat.
+- **[08:46](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=526s)** — Meat apparently has all the cofactors, the B vitamins, the trace minerals,
+- **[08:50](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=530s)** — and the most protein to feed that mitochondria and make it strong.
+- **[08:57](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=537s)** — Cold immersion therapy or cold showers can actually do some interesting things
+- **[09:02](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=542s)** — because it forces the mitochondria to generate a tremendous amount of energy from your food.
+- **[09:10](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=550s)** — There's been some data that resveratrol can help stimulate more mitochondria.
+- **[09:15](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=555s)** — If you have insulin resistance, which probably 90% of the population has,
+- **[09:21](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=561s)** — that can severely destroy your mitochondria.
+- **[09:25](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=565s)** — It can prevent you from using glucose.
+- **[09:29](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=569s)** — And if you keep eating glucose, we can't burn ketones.
+- **[09:34](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=574s)** — So in other words, to get into fat burning, you need to cut down your carbs.
+- **[09:38](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=578s)** — Now, the other topic is growth hormone.
+- **[09:41](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=581s)** — Growth hormone can also help reduce this insulin resistance.
+- **[09:45](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=585s)** — It can also help you build more muscle.
+- **[09:47](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=587s)** — It can help you burn more fat.
+- **[09:49](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=589s)** — Even though you might be sprinting for 10 to 15 seconds and then resting for four minutes,
+- **[09:56](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=596s)** — you might not be burning a lot of calories.
+- **[09:59](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=599s)** — But what's going to happen is you're going to increase growth hormone 24 to 48 hours later while you're sleeping.
+- **[10:06](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=606s)** — So you're going to be burning fat while you're sleeping.
+- **[10:09](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=609s)** — And this is why you have to look beyond just the mechanics of burning calories,
+- **[10:14](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=614s)** — because there's other factors involved.
+- **[10:16](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=616s)** — One other big mistake that a lot of exercisers do is when they try to burn calories with exercise,
+- **[10:22](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=622s)** — they're putting tremendous amounts of energy out at the gym and their diet is too high in carbs.
+- **[10:28](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=628s)** — So they'll end up burning off the sugar.
+- **[10:31](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=631s)** — Now they're hungry and they're craving sweets and sugar and they keep putting the carbs back in having these little snacks.
+- **[10:39](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=639s)** — So they never really lose a lot of weight because they're running their body on glucose and they're just putting it right back.
+- **[10:45](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=645s)** — So if we're talking about weight loss, exercise accounts for 15% of your gains,
+- **[10:51](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=651s)** — whereas the diet can be about 85% of your gains.
+- **[10:57](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=657s)** — Because regardless of how many calories you're burning,
+- **[11:00](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=660s)** — what if you could just focus on burning fat calories?
+- **[11:02](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=662s)** — Wouldn't that be a smart thing to do?
+- **[11:05](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=665s)** — Versus increasing the metabolism to burn off more sugar calories, which you then replace with sugar.
+- **[11:09](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=669s)** — Doesn't make sense.
+- **[11:11](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=671s)** — But if we're talking about exercise and we want to do an exercise that burns the most calories,
+- **[11:15](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=675s)** — you'd want to keep the intensity, the highest possible intensity you can do,
+- **[11:20](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=680s)** — and involve the most muscles, upper body and lower body.
+- **[11:25](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=685s)** — Recently I was doing a metabolomic test on my mitochondria.
+- **[11:29](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=689s)** — I exercise a lot. I run up hills. I do all sorts of things.
+- **[11:32](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=692s)** — I was over training.
+- **[11:34](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=694s)** — So I cut that back, got more sleep, and now the mitochondria is better.
+- **[11:40](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=700s)** — So that's why the metabolomic testing I think is going to be the wave of the future
+- **[11:43](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=703s)** — because you can predict things well before they become symptomatic.
+- **[11:49](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=709s)** — For more information on the best diet that you should be on,
+- **[11:53](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=713s)** — to be able to have really healthy mitochondria,
+- **[11:57](https://www.youtube.com/watch?v=1CV8B82r5Sg&t=717s)** — you should probably study this video right here.

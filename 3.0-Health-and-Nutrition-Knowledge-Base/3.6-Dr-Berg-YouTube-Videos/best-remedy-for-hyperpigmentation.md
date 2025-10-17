@@ -1,0 +1,91 @@
+# Best Remedy for Hyperpigmentation
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=KyRjO29yHBQ](https://www.youtube.com/watch?v=KyRjO29yHBQ)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=0s)** — I'm going to share the best remedy that you can use for hyperpigmentation.
+- **[00:04](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=4s)** — Dark spots on the face. There are bleaching agents that people are using on their skin
+- **[00:09](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=9s)** — that do get rid of these dark spots but they end up destroying the cells that make the pigment.
+- **[00:15](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=15s)** — The other big problem is we're blaming these dark spots or aging spots on the sun.
+- **[00:20](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=20s)** — This is why they tell you to completely avoid the sun to prevent this hyperpigmentation.
+- **[00:24](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=24s)** — Right now they actually put sun blocker SPF chemicals in literally all the moisturizers,
+- **[00:31](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=31s)** — facial creams to block this UV radiation. They'll tell you that you can get all your
+- **[00:35](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=35s)** — vitamin D from food or a few minutes in the sun. This is a complete lie. If you actually have
+- **[00:40](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=40s)** — a skin cream or a face cream that has this sunscreen in it, I wouldn't use it on your
+- **[00:45](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=45s)** — face. If you take a younger person and you compare them with an older person and you're
+- **[00:49](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=49s)** — looking at this hyperpigment issue, you basically don't even see it in younger people. You only
+- **[00:55](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=55s)** — see it in people over the age of maybe 35, 40, 50, 60. As we get older, it becomes more of
+- **[01:00](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=60s)** — a problem. In our skin, we have a pigment and it's called melanin. Melanin is made by cells
+- **[01:06](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=66s)** — called melanocytes. If you compare someone who's like 18 or 20 years old to someone that's 60,
+- **[01:12](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=72s)** — the concentration of these little melanocytes is much different. When we're younger,
+- **[01:17](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=77s)** — we have a lot more concentration. When we're older, we don't. What causes the melanocytes
+- **[01:24](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=84s)** — to produce melanin? Vitamin D. What's the primary trigger to make vitamin D? The sun.
+- **[01:29](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=89s)** — We're going to talk about what vitamin D does to melanin in a second, but I just wanted to
+- **[01:34](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=94s)** — show you this apple right here. You can see this apple on the left versus the apple on
+- **[01:39](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=99s)** — the right. Slightly different colored. Both of these apples are being oxidized by oxygen,
+- **[01:45](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=105s)** — but this one has protection. I put some lemon juice on it. It's an antioxidant. This one had
+- **[01:49](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=109s)** — no protection against oxidation, oxygen, so it's going brown. Same thing happens with the skin.
+- **[01:55](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=115s)** — The oxidation triggers melanin. There's other things too. There's environmental pollution,
+- **[02:01](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=121s)** — there's stress. The key factor that you need to know about is this word oxidation,
+- **[02:05](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=125s)** — because that gives you a clue on how to correct this problem. What's the opposite of oxidation?
+- **[02:09](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=129s)** — Anti-oxidation from antioxidants. What's interesting about antioxidants is that
+- **[02:16](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=136s)** — melanin is like the ultimate antioxidant to protect against DNA damage. What happens
+- **[02:22](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=142s)** — is you naturally expose yourself to the sun, you get a slight tan. The darker the skin,
+- **[02:27](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=147s)** — the more the filtering effect of the UV radiation. Also, we get more filtering of
+- **[02:33](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=153s)** — the production of vitamin D, because the way that you make vitamin D is from this UV
+- **[02:38](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=158s)** — radiation interaction on your skin with cholesterol. That's all interesting information,
+- **[02:43](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=163s)** — but what's really important about this topic is what vitamin D does to your melanocytes.
+- **[02:49](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=169s)** — Vitamin D helps protect against the oxidation factor. It's a very potent antioxidant. Is
+- **[02:57](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=177s)** — there research on this? Yes, there is, but it's mixed. But if you look at the research,
+- **[03:02](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=182s)** — I think the reason why it's mixed is because the dosage of vitamin D that they're using is
+- **[03:08](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=188s)** — way too low and way too infrequent because they're basing it on an outdated RDA for vitamin D.
+- **[03:15](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=195s)** — A lot of the confusion with vitamin D revolve around this RDA, what our bodies require each day
+- **[03:22](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=202s)** — to survive, right? And they have it at 600 IUs, which is a crazy low number. If we're
+- **[03:27](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=207s)** — basing our research on that number, and if we do a research project with low amounts of
+- **[03:31](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=211s)** — vitamin D, we're probably not going to see much result because the creative therapeutic
+- **[03:35](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=215s)** — need more than 600 IUs. I did a video recently on autoimmune diseases. One that pertains to this
+- **[03:42](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=222s)** — topic is on vitiligo. That is like the opposite condition that we're talking about. It's not
+- **[03:47](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=227s)** — a hyperpigmentation. It's a loss of pigment. You have areas around your skin that are kind
+- **[03:54](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=234s)** — of like bleached or white targeting the melanocytes. So we get these little areas of
+- **[03:59](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=239s)** — lack of pigment. Remember I talked about vitamin D helps modulate the melanocytes. It
+- **[04:04](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=244s)** — increases or decreases melanin. Well guess what? There's some fascinating information to show that
+- **[04:11](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=251s)** — you can actually greatly improve vitiligo by taking 20 to 30 thousand IUs of vitamin D3
+- **[04:17](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=257s)** — every single day. The bottom line is vitamin D greatly influences the cells that make melanin.
+- **[04:23](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=263s)** — If you have enough vitamin D in the skin, you will have protection against this over
+- **[04:29](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=269s)** — production of melanin. The problem is if you're following the main recommendation of avoiding
+- **[04:35](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=275s)** — the sun and using these sun blockers, you are going to be severely low in vitamin D. There's
+- **[04:41](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=281s)** — two things I'm going to recommend. Number one is kind of a quick fix and it's a very safe
+- **[04:46](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=286s)** — thing to do and it's a home remedy and it's very effective for many reasons which I'll get
+- **[04:51](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=291s)** — into. But number two, I would start working on building up your vitamin D levels consuming
+- **[04:57](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=297s)** — at least 10,000 maybe 20,000 IUs of vitamin D3 each day. In addition to that, I would start
+- **[05:03](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=303s)** — to build up antioxidant networks in the body. To make them you need high quality protein,
+- **[05:09](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=309s)** — high quality amino acids, fish, eggs, meat. These antioxidants also are made from trace
+- **[05:14](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=314s)** — minerals, zinc, copper, iodine. You can get that from shellfish as well as sea salt. Of
+- **[05:20](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=320s)** — course you need other nutrition too like the B vitamins, vitamin C, vitamin E. All of these
+- **[05:26](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=326s)** — will start building up your antioxidant networks. What would be a good remedy to use as kind of a
+- **[05:33](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=333s)** — quick fix to see change in the tone of our skin? The remedy is plain unsweetened yogurt. Of
+- **[05:41](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=341s)** — course I would get the grass-fed organic yogurt rubbing it all over the skin, leaving it on
+- **[05:46](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=346s)** — the face for five minutes, washing it off and just doing that once a week. Some people do it
+- **[05:51](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=351s)** — three times a week. It really depends on how bad your problem is. The first thing it has
+- **[05:55](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=355s)** — is a key ingredient called lactic acid. Lactic acid in yogurt is a lot more gentle than putting
+- **[06:03](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=363s)** — pure lactic acid on your skin. Lactic acid dissolves the bonds between dead skin cells that
+- **[06:10](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=370s)** — have this darkened pigment on them. The yogurt also adds another cool effect. It gives the
+- **[06:16](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=376s)** — skin more probiotics. You have this living ecosystem of this microbiome on your skin. Not
+- **[06:23](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=383s)** — just for this hyperpigmentation, but just to keep the skin healthy. If there's excess inflammation
+- **[06:29](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=389s)** — or redness, that will go away. If you have a real serious problem with this, you can always
+- **[06:34](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=394s)** — make it stronger by adding in just a pinch of turmeric to the yogurt. Mix it up, apply it on
+- **[06:42](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=402s)** — the face. Now we have the extra benefit of adding a more powerful antioxidant to this to
+- **[06:47](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=407s)** — speed it up. But it's not necessary. The yogurt is going to create a really nice effect
+- **[06:52](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=412s)** — over time. It's going to be safe, gradual, and it's going to make your skin feel really soft
+- **[06:58](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=418s)** — and very healthy. I know some people are saying, well, should we be putting acids on our face?
+- **[07:03](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=423s)** — And the answer is yes, because the pH of the skin is acidic. You don't want to alkalize it.
+- **[07:09](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=429s)** — You don't want to put a sunblocker on your face. You don't want to avoid the sun. You can
+- **[07:16](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=436s)** — be on the sun, just don't get burned. Regular exposure to the sun is extremely healthy,
+- **[07:21](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=441s)** — and our bodies were designed for that. Taking more vitamin D and building up the reserve of
+- **[07:26](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=446s)** — vitamin D is going to help modulate that little melanocyte so your body can get the
+- **[07:30](https://www.youtube.com/watch?v=KyRjO29yHBQ&t=450s)** — right amount of melanin. Thanks for watching, and I will see you in the next video.

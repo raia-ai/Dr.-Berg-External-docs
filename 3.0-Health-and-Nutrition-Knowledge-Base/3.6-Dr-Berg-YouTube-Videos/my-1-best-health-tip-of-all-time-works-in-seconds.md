@@ -1,0 +1,118 @@
+# My #1 BEST Health Tip of All Time (Works in SECONDS)
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=g0-F3nhHS-Q](https://www.youtube.com/watch?v=g0-F3nhHS-Q)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=0s)** — My number one best health hack or tip that ive ever done. I'm going to give you 11 tips.
+- **[00:06](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=6s)** — The last one I think is the most valuable. They don't cost anything and they work within seconds.
+- **[00:11](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=11s)** — You know how much I don't like fluff. So let's dive right in with number one.
+- **[00:15](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=15s)** — It's a brain fog eraser because it works really fast. The best way to handle brain fog,
+- **[00:20](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=20s)** — hands down, is consuming high quality protein. Red meat could be a hamburger. Nutrient dense
+- **[00:27](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=27s)** — meat will work. In fact, any animal protein will work, but it works better with the higher quality
+- **[00:32](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=32s)** — protein. Typically brain fog comes from a hypoglycemic situation where your blood sugar
+- **[00:37](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=37s)** — is low because you ate some carbohydrate previously and then today you have brain fog.
+- **[00:43](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=43s)** — Taking more vitamins is not going to help. You can consume high quality protein and within
+- **[00:48](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=48s)** — maybe a minute your brain is feeling good. Let's go to number two. Increase something
+- **[00:53](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=53s)** — called CO2. When you're stressed out, your breathing is going to be off. You're hyperventilating
+- **[00:58](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=58s)** — and you're getting a lot of oxygen. What allows oxygen to go deep into the cells to be utilized
+- **[01:04](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=64s)** — in the red blood cell is CO2. This is why someone in a panic attack will instantly calm
+- **[01:10](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=70s)** — down because they're actually getting more oxygen. Anytime you're in a state of panic,
+- **[01:15](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=75s)** — stress, especially anxiety, start breathing through your nose to restrict the oxygen.
+- **[01:20](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=80s)** — We're going to increase the ratio, add more CO2 to oxygen, and now that oxygen is going to go
+- **[01:25](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=85s)** — in there, it's going to start to pull you out of this panic attack. It's so simple.
+- **[01:29](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=89s)** — You should know about it and it can also help you go to sleep very quickly if you're
+- **[01:33](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=93s)** — stressed out. Number three is take your hands, okay, both fingers like this, and you press
+- **[01:39](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=99s)** — that underneath the right rib cage about an inch off the midline. You want to feel in around
+- **[01:46](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=106s)** — there until you find it. You're going to find like a kind of a knot and you're going to hold
+- **[01:50](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=110s)** — that pressure gently for about one to two minutes and you're going to feel like a
+- **[01:55](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=115s)** — draining effect because what you're doing is you're opening up the ducts from the pancreas,
+- **[01:59](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=119s)** — allowing for the food and the digestive juices to travel through. Chances are if you have like
+- **[02:04](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=124s)** — right shoulder pain, that will go away too because there's a connection between the gall
+- **[02:08](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=128s)** — bladder and the right shoulder. Also, you're going to breathe better because there's less
+- **[02:11](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=131s)** — pressure underneath your rib cage. We have kind of a traffic jam because maybe you ate
+- **[02:15](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=135s)** — something that your body has to really release a lot of bile salt or an enzyme or acid to break
+- **[02:20](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=140s)** — it down. I've done this for many years. It works great. You'll get so much relief.
+- **[02:25](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=145s)** — Let's go to number four. Let's say for example you have pain in your left thumb. What
+- **[02:29](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=149s)** — you want to do is you want to work on the opposite thumb, the mirror image location of where
+- **[02:34](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=154s)** — you have the most intense pain and you start to massage it. If you press on the mirror
+- **[02:38](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=158s)** — image exact opposite point, it'll be twice as tender. I know it's weird. You're going to
+- **[02:44](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=164s)** — find that real tender spot. You find it, hold that for a little bit of time and then maybe 20
+- **[02:49](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=169s)** — seconds, this pain completely gone. It really works. What about if you have pain on the
+- **[02:55](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=175s)** — front part of the body right here or even the back part? You can work on the front. What
+- **[02:59](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=179s)** — you want to do is you want to identify at the level of where it is in your back and draw
+- **[03:03](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=183s)** — a line right through the body. Just pretend there's like an arrow going through you.
+- **[03:08](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=188s)** — What you can do is you can press and massage on your sternum on the front part to help the back
+- **[03:15](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=195s)** — part. Number five. This is mainly for tight muscles. You stretch the opposite muscle.
+- **[03:21](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=201s)** — Let's say for example I'm trying to tilt my head back and it's stiff. Stretch the back
+- **[03:26](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=206s)** — part of the muscles just going forward. Stretch it like this and then you'll be able to go
+- **[03:31](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=211s)** — back. So you always stretch the opposite muscles. I don't just focus on the tight muscle. I work
+- **[03:36](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=216s)** — the opposite one too. Number six. Work specifically for a weak muscle but it can also work for
+- **[03:44](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=224s)** — fatigue. This simply is putting a little sea salt underneath your tongue. It gives you a lot of
+- **[03:49](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=229s)** — minerals including sodium and chloride. And sodium is the majority of sea salt. And when
+- **[03:54](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=234s)** — you're deficient in sodium, wow, your muscles will be weak. By putting it underneath the tongue,
+- **[03:58](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=238s)** — it goes right into the body really quickly. Now you could also dissolve some sea salt in
+- **[04:03](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=243s)** — water and drink that too. And you'll feel like an instant change with your muscles. They'll feel
+- **[04:07](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=247s)** — stronger. They feel more energetic and you will have more energy too. Number seven is to create
+- **[04:15](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=255s)** — instant relaxation when you're trying to sleep at night. You will not be able to sleep that
+- **[04:18](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=258s)** — well if your neck is stiff. There is a great technique to relax the neck. It just creates
+- **[04:24](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=264s)** — a instant full body relaxation to the point where you're just going to go to sleep. There's
+- **[04:32](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=272s)** — can have someone do this to you. I'm going to show you a little demo on it right now. Check
+- **[04:38](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=278s)** — it out. In order to sleep, you have to have a very relaxed neck. And if you fell in your
+- **[04:44](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=284s)** — tailbone or had a neck injury, you definitely want to do this. But these specific points,
+- **[04:49](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=289s)** — they're right here and here, are points that are very, very relaxing. And if you press into
+- **[04:55](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=295s)** — them, you can just press like this right into those little spots there. It's going to release
+- **[05:00](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=300s)** — a lot of stress. You can do it yourself. So go ahead and put your arms, your hands in the
+- **[05:05](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=305s)** — right place there. Okay, good. So you see how she interlocks her fingers and then she wants
+- **[05:10](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=310s)** — to put her thumbs. I want to straighten the thumb out and we want the pad right there
+- **[05:16](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=316s)** — and right here. Okay. So you're going to hold that right there and press into that spot.
+- **[05:22](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=322s)** — Okay. And keep your elbows out here. Yeah. Okay. She's going to hold that for, I would
+- **[05:27](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=327s)** — say about two minutes. And it's a little bit easier if she's laying on down her back,
+- **[05:33](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=333s)** — because she can have gravity put the pressure in there. But this, you can do it sitting fine,
+- **[05:38](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=338s)** — but as long as the shoulders are okay. Sometimes if the shoulders are too stiff,
+- **[05:41](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=341s)** — you can't do it. Number eight, take about a tablespoon of apple cider vinegar in maybe
+- **[05:47](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=347s)** — three to four ounces of water, drink it down, wait, I don't know, maybe two minutes
+- **[05:52](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=352s)** — and do another one of those. The acid, which is very strong, it's going to go into
+- **[05:56](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=356s)** — your stomach and it's going to help you digest. It's not just going to help the stomach.
+- **[06:01](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=361s)** — It's going to trigger both the pancreas and the gallbladder to release their juices. But
+- **[06:07](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=367s)** — I do want to add one additional thing, butane, how the chloride and it's an acidifier.
+- **[06:12](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=372s)** — You would have to take like five, six, seven, eight at a time. Wow. That really helps
+- **[06:18](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=378s)** — get rid of the bloating to the point where you're going to feel more comfortable.
+- **[06:22](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=382s)** — Number nine, this technique involves your joints. Usually the joint pain is coming from
+- **[06:28](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=388s)** — a problem with your fascia. Fascia is the wetsuit that is covering everything. It's all
+- **[06:35](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=395s)** — connected. There's some really amazing stretches that you can do on the opposite side of your
+- **[06:41](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=401s)** — body to give yourself some relief. You're going to scissors your legs and come right down
+- **[06:46](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=406s)** — and keep your upper body as straight as possible. And then take your left leg
+- **[06:54](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=414s)** — and straighten out your knee if possible. Okay. So now I'm squatting down with my right leg,
+- **[06:59](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=419s)** — do this for 10 seconds, and then you're going to do the opposite side or which muscle is
+- **[07:04](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=424s)** — tighter left or right. And obviously you're going to spend a little more time on the
+- **[07:08](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=428s)** — area that's tight. Then what you do is do step two, which is simply you're raising your
+- **[07:13](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=433s)** — arm. Okay. Now what we're going to do is we're going to stretch all the muscles and ligaments
+- **[07:18](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=438s)** — that are in the fascia that's connected to the opposite side. Okay. So you'll do that for 10
+- **[07:26](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=446s)** — seconds. Okay. And then do the opposite side. Number 10, people would come in with these
+- **[07:31](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=451s)** — headaches all the time, right? And I would locate where the headache is. And then I would
+- **[07:35](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=455s)** — ask them this one question. Have you ever in your life had a head injury? And they're like,
+- **[07:41](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=461s)** — yes, I have. Okay. What happened? I was in a car. I hit another car and a box flew off and it
+- **[07:49](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=469s)** — hit me right on the head. And I'm like, wow. Okay. A lot of people have had head injuries.
+- **[07:52](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=472s)** — What happens is that tends to create an impact and create some type of stuck energy
+- **[07:57](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=477s)** — that then can give them a headache years later. What you do is you press into it from
+- **[08:04](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=484s)** — the outside, maybe straw circle, you know, an inch around it or two inches around it,
+- **[08:10](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=490s)** — but towards it. It seems to release that energy. For example, if it's right here,
+- **[08:15](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=495s)** — you're going to press into it or up around it. And you're going to come around and back into it.
+- **[08:19](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=499s)** — If it's on the forehead right here, you can press into it like this, into it like that.
+- **[08:25](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=505s)** — That releases that tension and creates an instant headache relief. Number 11,
+- **[08:31](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=511s)** — sinus problems, any type of breathing problems, whether it's sleep apnea,
+- **[08:35](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=515s)** — deviated septum, sinus issue, you are about to give them a tremendous amount of relief,
+- **[08:41](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=521s)** — treating it like an injury. You press in there and you're just going to hold that pressure
+- **[08:45](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=525s)** — while you're going into the nose. They're going to go, wow, I can breathe better. But
+- **[08:49](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=529s)** — let's say, for example, they never had an injury to the nose. Then you can go the
+- **[08:53](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=533s)** — opposite side. You can take the, these sutures that are right connect and you can press in and out
+- **[08:58](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=538s)** — this way. So you're basically taking the traction and you bring it outward right here,
+- **[09:02](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=542s)** — right there. I'm not flipping off. So you just take that out and you just pull it out this way,
+- **[09:07](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=547s)** — gives you a lot of relief through the sinuses. There you have it. 11 of my favorite health hacks.
+- **[09:13](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=553s)** — Please comment below on any of the ones that you applied that you were successful with.
+- **[09:18](https://www.youtube.com/watch?v=g0-F3nhHS-Q&t=558s)** — And I will see you in the next video.

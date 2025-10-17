@@ -1,0 +1,137 @@
+# The Secret to Increasing the Diversity of Gut Microbes
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=Vl_bzEBBnZA](https://www.youtube.com/watch?v=Vl_bzEBBnZA)
+
+---
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=0s)** — Now, out of all the things that can improve your health, this one thing is pretty much at the top
+- **[00:06](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=6s)** — of the list. But I found out recently, I've never done a video on this one specific topic. And that
+- **[00:12](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=12s)** — has to do with diversity of your microbes in your gut. And how to increase your own diversity of
+- **[00:21](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=21s)** — the microbiome. So first of all, what is this word diversity? Well, it's the number of different
+- **[00:26](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=26s)** — species that you have in your gut. And you also have a factor of richness, which is the total amount
+- **[00:32](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=32s)** — of microbes. So ideally, you want a rich microbiome with a lot of different species. And this kind of
+- **[00:39](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=39s)** — goes against this idea of like health is being clean, free of germs. Well, apparently, it's
+- **[00:45](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=45s)** — just the opposite of that. You want a lot of germs in your body, but inside, and you want
+- **[00:49](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=49s)** — them friendly. If you don't have this diversity, believe it or not, you actually get more unfriendly
+- **[00:56](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=56s)** — pathogens. I'm talking about like salmonella, H. pylori, C. diff, E. coli. You know, all these
+- **[01:04](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=64s)** — microbes do live in your body in a healthy environment, and they don't bother you until
+- **[01:09](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=69s)** — the relationship changes because of the environmental changes. But if you're missing
+- **[01:14](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=74s)** — all sorts of issues can happen. Diarrhea, inflammation in your gut. You get more toxins,
+- **[01:21](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=81s)** — obesity, your metabolism slows down, your mood is lowered. And this all relates to something
+- **[01:27](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=87s)** — called dysbiosis. In fact, dysbiosis is pretty much involved or associated with every single
+- **[01:34](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=94s)** — illness out there. Even Alzheimer's, Parkinson's, ADHD, schizophrenia, bipolar,
+- **[01:41](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=101s)** — having anxiety, depression. So I think this topic is really, really important. Even cancer. Yes,
+- **[01:48](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=108s)** — there's usually always dysbiosis when you have cancer. So it's so important to have a wide
+- **[01:54](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=114s)** — variety of these species to make vitamins for immune protection, to keep your inflammation
+- **[02:01](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=121s)** — down, to feed your colon cells, to help you produce amino acids and neurotransmitters and
+- **[02:05](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=125s)** — proteins, to keep your energy high, all sorts of health-related things. Now you have to also
+- **[02:13](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=133s)** — realize that in your gut, 99% of all the microorganisms are bacteria, but you do have
+- **[02:19](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=139s)** — 1% left. And that kind of makes up friendly fungus, friendly yeast, friendly mold, and other
+- **[02:28](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=148s)** — friendly microorganisms. So it's not all bacteria. And then if we look at the bacteria,
+- **[02:34](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=154s)** — there's two categories of bacteria. And they're both what's called anaerobes, which they
+- **[02:40](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=160s)** — survive without oxygen. One is called obligate anaerobes. And these are the type of microbes
+- **[02:47](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=167s)** — that they die if you expose them to oxygen. So they can only live without oxygen. And then
+- **[02:55](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=175s)** — you have another category of anaerobic bacteria called facultative. This type of bacteria
+- **[03:02](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=182s)** — can live, even though it's called an anaerobic bacteria, it can live without oxygen. And it
+- **[03:10](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=190s)** — also can live with oxygen. So it can do both. And out of the majority of research that's out
+- **[03:15](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=195s)** — there, it's the facultative anaerobic microbes that are studied. Not these other microbes
+- **[03:23](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=203s)** — that hate oxygen, right? They die with oxygen. And those specific bacteria make up 99% of all
+- **[03:29](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=209s)** — bacteria. Only 1% is the other ones which actually can live with oxygen or without.
+- **[03:37](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=217s)** — And it's interesting because most of the research is on that 1% only. So in other words,
+- **[03:42](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=222s)** — there's a lot we don't know. Because it's hard to culture those microbes that are only
+- **[03:48](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=228s)** — dependent on an environment without oxygen. So there's a tremendous amount of things we just
+- **[03:53](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=233s)** — don't know. But what we do know for sure is the more diversity, the more health you're
+- **[03:57](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=237s)** — going to have. But even if we're talking about like nutrient dense foods, okay?
+- **[04:03](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=243s)** — Nutrient dense foods are dependent on the diversity of microbes in the soil. So if you
+- **[04:07](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=247s)** — want nutrient dense foods, you have to make sure that the soil has a great wide range
+- **[04:14](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=254s)** — of microbes. If we want health, we need to make sure that we have a wide range of microbes
+- **[04:21](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=261s)** — in our gut. It's the diversity of microbes in the gut that gives the plant immune protection,
+- **[04:26](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=266s)** — that gives the plant vitamins and minerals and phytonutrients and disease resistance.
+- **[04:34](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=274s)** — And then that plant becomes stronger and it too is filled with microbes because plants also
+- **[04:39](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=279s)** — have their own microbiome. And so that relates to the animals that eat the plants, right?
+- **[04:44](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=284s)** — The health of that animal is dependent on the health of the plant. Now this is going
+- **[04:48](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=288s)** — to relate to the next topic of how do we increase the diversity of microbes in our gut?
+- **[04:54](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=294s)** — The first way is to eat food that has been grown on soil that has diversity, okay? So buying your
+- **[05:00](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=300s)** — salad and vegetables at the farmers market is going to be better than buying vegetables at
+- **[05:05](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=305s)** — the grocery store that you have no idea where it came from. But you pretty much know if you
+- **[05:09](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=309s)** — eat the food because it's like tasteless. If you have more flavor, you're going to have more
+- **[05:13](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=313s)** — nutrients and you can be rest assured that they were grown on a really good diverse microbiome
+- **[05:19](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=319s)** — Another way is to start eating more of a diversified types of plants, okay? So in your
+- **[05:28](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=328s)** — salad and I'm totally guilty of this. I usually have had the same type of lettuce over and over
+- **[05:34](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=334s)** — for a very long time. And so what I've done recently after I'm studying all this is I
+- **[05:40](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=340s)** — started to diversify the types of plants that I eat in my salad. So I'm putting things in
+- **[05:46](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=346s)** — my salad that I've never ate before. And then when I go in the grocery store, I just basically try
+- **[05:51](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=351s)** — several different new plants. And so I put them in my salad and I eat them and I definitely
+- **[05:56](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=356s)** — will tell you I noticed a big difference. Another thing that can increase diversity is
+- **[06:00](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=360s)** — actually exercise. The exercise stress, which is a positive stress, creates more diversity in
+- **[06:05](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=365s)** — your gut. Also better sleep will do it. And intermittent fasting. Yeah, it adds a positive
+- **[06:13](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=373s)** — stress that increases diversity of microbes in your gut versus snacking through the day,
+- **[06:21](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=381s)** — which basically creates a lot of lazy microbes. It's very similar to the animals on my farm.
+- **[06:26](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=386s)** — If I feed them like snacks all day, they get overweight, they get sluggish, they don't really
+- **[06:33](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=393s)** — do much. So for example, my pigs, I have them on an intermittent fasting schedule. They
+- **[06:43](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=403s)** — twice a day so they can fast for 18 hours. And the same thing with my dogs, but I don't give my
+- **[06:48](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=408s)** — dogs a lot of snacks in between little treats because that breaks the fast. The next thing that
+- **[06:55](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=415s)** — can increase diversity is consuming more phenols. Okay, phenols. What are phenols? Well,
+- **[07:01](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=421s)** — it's those phytonutrients like the flavonoids in different plants and lemons and limes
+- **[07:08](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=428s)** — and berries, things like that. And also the tannins in different herbs, like eating different
+- **[07:13](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=433s)** — teas. Coumanin in turmeric is a phenol, but phenols are a wide category of a lot of different
+- **[07:21](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=441s)** — types of phenols. And if you're consuming a wide range of vegetables and maybe berries
+- **[07:27](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=447s)** — and other plants, you're going to get a lot of phenols. And that's going to stimulate
+- **[07:31](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=451s)** — a wide range of different species in your gut. A really good way to increase diversity is to
+- **[07:38](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=458s)** — consume sprouts or microgreens that are grown on soil because sprouts normally aren't grown on
+- **[07:45](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=465s)** — soil. But when you start getting into microgreens, not grown on like coconut fiber, I'm talking
+- **[07:51](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=471s)** — about actual soil. It's a bit hard to find, but you can grow your own. But those microgreens
+- **[07:58](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=478s)** — are loaded with not just friendly microbes in the plant itself, but phytonutrients,
+- **[08:06](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=486s)** — including a lot of polyphenols and fiber that your microbes will really love. So when
+- **[08:11](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=491s)** — you're eating microgreens, you're really supporting your gut health in a big way.
+- **[08:15](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=495s)** — And the cool thing is you don't need a lot of them. You just need a little bit because
+- **[08:18](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=498s)** — they're so concentrated with these phytonutrients. The next thing is probiotic foods,
+- **[08:24](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=504s)** — kefir, sauerkraut, essential. They have such a wide range of different microbes. You talk about
+- **[08:34](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=514s)** — diversity of microbes in sauerkraut and kimchi and even kefir. I mean, there's just a lot
+- **[08:40](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=520s)** — of different microbes. So when you eat those foods that are diversified, you get the benefit
+- **[08:46](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=526s)** — of that. I mean, let's just take one microbe, the lactobacillus microbe. Certain
+- **[08:52](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=532s)** — lactobacillus microbes help you make dopamine, which can help support and even potentially prevent
+- **[09:02](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=542s)** — ADHD, depression, anxiety, and many other similar disorders. And then also, raw food,
+- **[09:09](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=549s)** — more raw food is better. So if you're going to eat vegetables and you eat them all just
+- **[09:13](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=553s)** — completely cooked to death, well, that's not going to support the microbiome as much as
+- **[09:17](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=557s)** — I think a balance of steamed and cooked and raw is a good thing. Now, it's very important also to
+- **[09:23](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=563s)** — talk about the flip side. What lowers this microbiome diversity? Okay. Number one, broad
+- **[09:31](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=571s)** — spectrum antibiotics. It's a killer. Anytime you take an antibiotic and try to take them
+- **[09:37](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=577s)** — sparingly, always take a probiotic at the same time or start consuming probiotic foods at
+- **[09:43](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=583s)** — very important. There are other things that are antibiotics that you probably are not aware of,
+- **[09:49](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=589s)** — like glyphosate, which is in the GMO foods because they spray this glyphosate on the soil
+- **[09:55](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=595s)** — and that actually is classified as an antibiotic. And unfortunately, that chemical is
+- **[10:03](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=603s)** — so many foods. It's, I mean, it's just, it's almost everything, which means we need to kind
+- **[10:07](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=607s)** — of actively work on building up our gut. Now, animals that are fed on a monoculture, like only
+- **[10:13](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=613s)** — one or two or three foods, whether it's grains or even grasses have less microbes to work with.
+- **[10:19](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=619s)** — And they themselves have a lower amount of diversity because the animal gets its diversity
+- **[10:25](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=625s)** — from the wide range of plants. And this is why when I entered in my beef and the study
+- **[10:31](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=631s)** — that I did, I don't know if you saw the video on it, but I'll put a link down below,
+- **[10:34](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=634s)** — I have a very diverse pasture of not just grasses, but weeds. I mean, it's like,
+- **[10:40](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=640s)** — like probably over 40 or 50 different plants that these animals have a chance to eat. And
+- **[10:47](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=647s)** — it's their smorgasbord of all sorts of things they can eat. And when I entered in my beef,
+- **[10:53](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=653s)** — and we compare that to a lot of the other farms around the country, I mean, talk about
+- **[10:58](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=658s)** — I mean, even the phytonutrients in the beef was like three times higher than most other farms.
+- **[11:06](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=666s)** — That's right. There are plant based chemicals in animals. That's right. So now you can get
+- **[11:11](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=671s)** — your antioxidants by eating beef, right? You just have to make sure that it's
+- **[11:15](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=675s)** — really, really healthy. So another thing that will lower the diversity is stress,
+- **[11:20](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=680s)** — artificial sweeteners, inflammation will do it, a fatty liver. In fact, any liver problem,
+- **[11:26](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=686s)** — because the liver makes bile and without the quantities of bile, then we get an imbalance
+- **[11:33](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=693s)** — in our microbes, we get this dysbiosis. So bile is actually made by your microbes,
+- **[11:40](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=700s)** — but also bile controls the ratios of certain microbes. So we need a healthy liver to have
+- **[11:46](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=706s)** — this diversity. Too many sterilized foods, pasteurized food, radiated food, overly processed
+- **[11:53](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=713s)** — food, really bad for your gut. Like I said before, also less variety of foods, right? So
+- **[11:59](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=719s)** — the next time you go to the grocery store is just start picking out different
+- **[12:03](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=723s)** — vegetable varieties and start to build out your salad and try new things. Now another
+- **[12:09](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=729s)** — couple points, if you're pregnant or going to have a child is breastfeeding. Because if
+- **[12:14](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=734s)** — you're not breastfeeding, you're not going to be able to inoculate with the microbes,
+- **[12:19](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=739s)** — as well as the colostrum into that infant. And that can be a problem later in life with their
+- **[12:26](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=746s)** — microbiome, the diversity of microbiome. And of course, that also goes with the C-section.
+- **[12:30](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=750s)** — Having a natural birth enhances the diversity of your microbes. So I wanted to shine a very
+- **[12:36](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=756s)** — bright light and focus in on this diversity, because I think it's a really important thing.
+- **[12:40](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=760s)** — And if you haven't seen my more comprehensive video on digestion, okay, that's a real
+- **[12:47](https://www.youtube.com/watch?v=Vl_bzEBBnZA&t=767s)** — interesting one. I put that up right here. Check it out.
