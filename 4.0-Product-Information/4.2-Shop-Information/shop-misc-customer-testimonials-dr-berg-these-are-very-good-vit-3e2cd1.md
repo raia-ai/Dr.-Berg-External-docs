@@ -1,0 +1,4 @@
+# [SHOP_MISC] # Customer Testimonials – Dr. Berg These are very good vitamins. Thank you I enjoy Dr Be
+
+[SHOP_MISC] # Customer Testimonials – Dr. Berg These are very good vitamins. Thank you I enjoy Dr Bergs videos on healthy living and the purchasing process is easy and I can buy direct or from Amazon. Always helpful! Love your products Always helpful! Love your products and advice! Have learned sooo much from you. I love Dr. Berg and all his excellent high quality products Gratitude for Dr. Eric Berg ~ I am grateful for Dr. Berg, his products and his professional staff, as it is a pleasure to do business with the Doc as well as learn so much from his exhaustive work and videos! He is a gift from God, truly! Great product and fast shipping Great product and fast shipping
+Learn more: https://shop.drberg.com/pages/product-and-service-reviews
