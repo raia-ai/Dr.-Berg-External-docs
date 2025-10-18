@@ -1,3 +1,0 @@
-# Can I take magnesium and berberine if I’m on a statin?
-
-Yes, you can take magnesium and berberine while on a statin. However, it's crucial to supplement with Coenzyme Q10 in its reduced form, known as ubiquinol. Ubiquinol supports mitochondrial function and helps mitigate potential muscle issues associated with statin use, as it follows similar biochemical pathways affected by statins' inhibition of cholesterol production.

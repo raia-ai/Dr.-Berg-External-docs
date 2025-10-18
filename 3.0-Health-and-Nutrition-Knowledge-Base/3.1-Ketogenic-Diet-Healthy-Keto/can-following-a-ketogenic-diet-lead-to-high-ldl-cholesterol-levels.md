@@ -1,3 +1,0 @@
-# Can following a ketogenic diet lead to high LDL cholesterol levels?
-
-LDL (low-density lipoprotein) serves as a transporter for cholesterol, delivering it where needed, while HDL (high-density lipoprotein) functions as a cholesterol scavenger, returning it to the liver. Cholesterol is essential for bodily functions. On keto, fat cells initially hold onto cholesterol, leading to a temporary spike in LDL. However, over time, stored cholesterol is released and processed. Increased dietary fat on keto can elevate cholesterol levels. LDL comes in two types: Type A (large and harmless) and Type B (small and inflammatory). Keto may promote more Type A LDL. To manage LDL, focus on fiber-rich veggies and moderate fat intake.

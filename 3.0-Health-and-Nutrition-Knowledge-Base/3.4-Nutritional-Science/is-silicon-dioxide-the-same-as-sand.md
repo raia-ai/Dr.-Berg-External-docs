@@ -1,3 +1,0 @@
-# Is Silicon Dioxide the same as sand?
-
-While it might sound similar, silicon dioxide is not the same as the sand on the beach. Also known as silica, this naturally occurring compound has the chemical formula SiO2. You'll find it in surprising places – like leafy greens, beets, brown rice, alfalfa, and even in the mineral quartz. In food products, it's used in a dry, fluffy form to prevent ingredients from clumping and spoiling due to moisture.

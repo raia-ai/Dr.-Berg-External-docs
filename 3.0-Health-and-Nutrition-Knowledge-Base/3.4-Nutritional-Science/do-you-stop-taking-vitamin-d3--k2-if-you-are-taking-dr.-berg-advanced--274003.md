@@ -1,3 +1,0 @@
-# Do you stop taking Vitamin D3 & K2 if you are taking Dr. Berg Advanced Immune Support?
-
-Advanced Immune Support is a blend of nutrients designed to support your body's natural defenses. It can be taken daily for ongoing immune support or when you feel your immune system needs a boost. For comprehensive immune support, consider taking Advanced Immune Support with Vitamin D3 & K2, as these nutrients provide additional cofactors that contribute to a healthy immune response.

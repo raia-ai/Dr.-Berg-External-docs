@@ -1,5 +1,0 @@
-# If I have inherited fatty liver, is it advisable to take choline alongside other supplements and food?
-
-When considering hereditary issues related to fatty liver, various metabolic problems can contribute to fat accumulation in the liver. If you suspect this is the case, you’re on the right path, as choline is essential for liver health. A deficiency in choline can lead to the development of fatty liver, so it's beneficial that you are supplementing it. Whether you take choline with meals is a minor consideration; however, taking all vitamins with meals can enhance their absorption.
-
-In addition to choline, there are three other important strategies to consider. First, incorporate probiotic-rich foods, such as sauerkraut, into your diet. These foods support the growth of beneficial microbes, which play a role in bile salt production. Adequate bile salts are crucial for breaking down cholesterol processed by the liver, as the primary method of cholesterol elimination is through the bile ducts. Ensuring sufficient bile salt production can greatly benefit liver function.

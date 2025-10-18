@@ -1,3 +1,0 @@
-# Can excessive intake of niacin have detrimental effects on liver function, and what are the potential risks associated with high-dose niacin supplementation?
-
-Excessive niacin intake, especially in high doses, can pose risks to liver health. While moderate use, typically under 500 milligrams, is generally safe and beneficial, it is crucial to monitor dosages to avoid potential liver damage. Niacin supports various bodily functions, including the Krebs cycle and mental health.

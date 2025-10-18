@@ -1,3 +1,0 @@
-# What should people with an ovary body type eat?
-
-Hormones play a huge role in weight gain for an ovary body type. Look for organic dairy products and consume organic, grass-fed meats to avoid consuming synthetic hormones. You should consume organic berries and vegetables to avoid endocrine disruptors like glyphosate. Try adding cruciferous vegetables and iodine to your diet to combat high levels of estrogen.

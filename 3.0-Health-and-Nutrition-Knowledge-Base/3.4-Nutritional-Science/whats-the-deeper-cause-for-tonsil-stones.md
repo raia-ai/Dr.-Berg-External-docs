@@ -1,3 +1,0 @@
-# What's the deeper cause for tonsil stones?
-
-Tonsil stones can cause bad breath and frustration. Understanding their cause is key to prevention. Tonsils play a vital role in your immune system by capturing information about germs. Quick fixes like tonsil removal or antibiotics don't address the root issues effectively. Strengthening your immune system is crucial. Research suggests vitamin D, zinc, and iron deficiencies may contribute to tonsil inflammation. Ensure adequate intake of these nutrients through diet or supplements to support immune health and reduce the likelihood of tonsil problems.

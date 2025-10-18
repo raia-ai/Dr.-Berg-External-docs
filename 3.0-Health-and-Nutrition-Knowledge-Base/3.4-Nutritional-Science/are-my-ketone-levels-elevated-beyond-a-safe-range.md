@@ -1,3 +1,0 @@
-# Are my ketone levels elevated beyond a safe range?
-
-Ketone levels become a concern when they reach 9 or 10 mmol/L, which is typically only seen in individuals with diabetes who may neglect their insulin regimen. For most individuals, normal ketone levels range from 0.5 to 3 mmol/L. Engaging in fasting can elevate ketone levels, often reaching around 4 mmol/L, while exercise can push levels to approximately 5 or 6 mmol/L. However, it is unlikely for levels to exceed this range in healthy individuals. If you have concerns about your ketone levels, it is advisable to consult a healthcare professional for personalized guidance.

@@ -1,3 +1,0 @@
-# Does the Electrolyte Powder contain microplastics?
-
-Dr. Berg’s Electrolyte Powder does not contain any known sources of microplastics. The formula is made with mineral salts and natural flavors, not plastic-derived ingredients. It's packaged in HDPE plastic, which is food-safe and widely used to prevent leaching or contamination. The product is made in GMP-certified facilities with strict quality control to ensure purity and safety.

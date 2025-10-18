@@ -1,3 +1,0 @@
-# Is allulose a good alternative sweetener?
-
-Allulose is an excellent sweetener, as it has a zero glycemic index and is not classified as a sugar alcohol. Erythritol is another good option, while xylitol, though effective, is not glycemic-index-free. Avoid sweeteners like maltitol, maltose, mannitol, sorbitol, Splenda, and synthetic sugars like maltodextrin, which is commonly found in keto-friendly products but may not be ideal.

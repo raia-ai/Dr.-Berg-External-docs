@@ -1,3 +1,0 @@
-# How can I fall asleep in 60 seconds?
-
-If you want to know how to fall asleep instantly, try this simple sleep technique! You’re going to breathe in a way that synchronizes your heartbeat and blood pressure to the rhythm of your breathing. This will help stimulate the parasympathetic nervous system, inducing sleep very quickly. Try practicing with a timer first! Breathe in for 5 ½ seconds and breathe out for 5 ½ seconds. This will give you about 5 ½ breaths per minute. When doing this technique, breathe through your nose, and within minutes you will fall asleep.

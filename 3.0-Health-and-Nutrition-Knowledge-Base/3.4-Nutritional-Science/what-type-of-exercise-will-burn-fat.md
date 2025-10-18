@@ -1,3 +1,0 @@
-# What type of exercise will burn fat?
-
-Short-duration, high-intensity interval training (HIIT) is effective for heart health and weight loss. Examples include spin biking, slamball, plyometrics, and sprinting. HIIT can boost VO2 max, growth hormone, and testosterone levels. The key is to alternate brief, intense exercise intervals with adequate recovery periods to stimulate the parasympathetic nervous system. A recommended HIIT routine involves 20-second intense workouts followed by 2 to 4 minutes of rest, repeated for 3 to 7 sets. Incorporating HIIT into your routine for 20 to 40 minutes can yield fat-burning effects lasting up to 48 hours post-workout.

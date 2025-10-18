@@ -1,3 +1,0 @@
-# What is a potential cause for bloodshot eyes?
-
-Experiencing bloodshot, itchy, or watery eyes? These discomforts may point to a vitamin B2 deficiency, also known as riboflavin. Vitamin B2 is crucial for eye health as it protects against free radical damage, supports glutathione production—a potent antioxidant—and prevents conditions like cataracts. Common symptoms of vitamin B2 deficiency include bloodshot eyes, itchiness, watery eyes, and sensitivity to light. Insufficient vitamin B2 can harm the cornea, leading to irritation and inflammation. Adequate intake is essential to avoid vision issues such as cataracts.

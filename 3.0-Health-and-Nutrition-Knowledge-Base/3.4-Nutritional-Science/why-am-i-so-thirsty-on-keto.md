@@ -1,3 +1,0 @@
-# Why am I so thirsty on keto?
-
-You probably are not producing enough saliva. On keto specifically, you are not taking any starches (hopefully), and they make the body produce saliva. But another factor is electrolytes. To prevent thirst on keto: increase the amount of vegetables or take a good electrolyte powder and make sure to increase the amount of sea salt because it will help you establish a better hydration.

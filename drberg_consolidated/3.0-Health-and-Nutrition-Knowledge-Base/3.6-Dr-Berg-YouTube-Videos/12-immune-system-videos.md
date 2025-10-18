@@ -1,0 +1,994 @@
+# Immune System Videos
+
+*This document contains 5 YouTube videos with full timestamped transcripts. Click any timestamp to jump to that exact moment in the video.*
+
+---
+
+
+## Video 1: DEVASTATING!
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=PwNXDrXjOY8](https://www.youtube.com/watch?v=PwNXDrXjOY8)
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=0s)** — We normally don't do a video like this. This is a little different.
+- **[00:03](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=3s)** — But I had to say something because there's a situation going on in
+- **[00:07](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=7s)** — North Carolina that I want to bring to your attention. And it's pretty scary.
+- **[00:11](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=11s)** — I live in southern Virginia, right across the border from North Carolina.
+- **[00:16](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=16s)** — I had a neighbor of mine
+- **[00:18](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=18s)** — go down after the floods to help. And he had a company that had
+- **[00:23](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=23s)** — helicopters.
+- **[00:25](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=25s)** — And they sent him home.
+- **[00:27](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=27s)** — So I'm like, what?
+- **[00:28](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=28s)** — Isn't FEMA down there? He goes, no, not where I am.
+- **[00:31](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=31s)** — So then I had another neighbor, Bill Sanpere. He has a woodworking shop.
+- **[00:35](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=35s)** — We did a video before. And Bill came up to me and he said,
+- **[00:38](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=38s)** — you know what's happening in North Carolina? I said, no.
+- **[00:40](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=40s)** — I brought Bill on to share what's going on, because this is a situation
+- **[00:44](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=44s)** — I want to bring to everyone's attention.
+- **[00:47](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=47s)** — Bill, thanks for coming on.
+- **[00:48](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=48s)** — Yeah, you bet.
+- **[00:51](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=51s)** — So what's going on in North Carolina?
+- **[00:56](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=56s)** — Well, obviously they got hit with a major disaster,
+- **[00:59](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=59s)** — something that I've never seen in my lifetime.
+- **[01:02](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=62s)** — I went down about a week and a half after the storm.
+- **[01:07](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=67s)** — I put out a little thing on my Facebook page to see if I could do something.
+- **[01:10](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=70s)** — I have an excavator. I have a business that I run here in Floyd,
+- **[01:13](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=73s)** — but I knew I could slip away for a few days and go down and do a little something.
+- **[01:17](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=77s)** — When I got there, I couldn't believe what I saw.
+- **[01:19](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=79s)** — I couldn't believe the devastation.
+- **[01:21](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=81s)** — I couldn't believe the homes that were demolished by the flood,
+- **[01:25](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=85s)** — the roads, the stores.
+- **[01:28](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=88s)** — Everything was just in shambles.
+- **[01:30](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=90s)** — At that time, the Army National Guard was coming in,
+- **[01:34](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=94s)** — bringing in food and materials and generators out to people that they couldn't get to.
+- **[01:38](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=98s)** — And they were flying it in.
+- **[01:40](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=100s)** — There was a lot of people that you could get to, but yet they had no homes.
+- **[01:45](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=105s)** — And their homes were washed away.
+- **[01:47](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=107s)** — And everything and everyone that I talked to, they didn't know what to do.
+- **[01:51](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=111s)** — These people don't like to ask for much.
+- **[01:53](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=113s)** — They don't want anything.
+- **[01:56](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=116s)** — But when your home is completely destroyed and you have no flood insurance,
+- **[02:01](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=121s)** — why would you have flood insurance when your house is on the side of a mountain?
+- **[02:06](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=126s)** — Or FEMA was down there.
+- **[02:08](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=128s)** — Everybody that I talked to did not see FEMA.
+- **[02:12](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=132s)** — Some people that did get to go, they had to go to the FEMA office, and they did.
+- **[02:17](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=137s)** — But they were only offered very little money.
+- **[02:20](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=140s)** — That wouldn't even do cleanup.
+- **[02:22](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=142s)** — Well, what they're telling me, and this isn't things that I'm saying,
+- **[02:25](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=145s)** — this is what these people are telling me.
+- **[02:27](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=147s)** — If they were to build, they have to carry flood insurance.
+- **[02:31](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=151s)** — Or FEMA wants their money back.
+- **[02:33](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=153s)** — Well, some of these families were getting quotes on flood insurance.
+- **[02:36](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=156s)** — That was $7, $800 a month.
+- **[02:38](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=158s)** — They can't afford that.
+- **[02:40](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=160s)** — And it was just devastation.
+- **[02:43](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=163s)** — No place to haul all the debris.
+- **[02:46](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=166s)** — No place to get materials.
+- **[02:47](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=167s)** — You couldn't get into the quarries to get gravel for driveways,
+- **[02:50](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=170s)** — because the dump trucks were lined up for a half a mile,
+- **[02:53](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=173s)** — hauling to all the state roads.
+- **[02:55](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=175s)** — It was an area that was not designed for a hurricane.
+- **[02:58](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=178s)** — And they got a major, major hurricane,
+- **[03:02](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=182s)** — 20 some odd inches of rain in just a day or two.
+- **[03:04](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=184s)** — And it just unleashed on them.
+- **[03:06](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=186s)** — And now they're all in shambles and they don't know what to do.
+- **[03:09](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=189s)** — I guess I was initially under the impression that there are crews down there.
+- **[03:13](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=193s)** — It's organized. FEMA's down there.
+- **[03:15](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=195s)** — The Red Cross is down there. Everything's being handled.
+- **[03:18](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=198s)** — I mean, I haven't seen much in the news.
+- **[03:20](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=200s)** — But that's not really what's happening.
+- **[03:22](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=202s)** — And I was trying to be careful on my social media.
+- **[03:24](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=204s)** — I wasn't picking sides.
+- **[03:26](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=206s)** — But when I'm down there and I'm actually talking to these people,
+- **[03:29](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=209s)** — yes, FEMA was down there.
+- **[03:31](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=211s)** — Yes, the Red Cross was down there.
+- **[03:35](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=215s)** — But when you're talking thousands and thousands of people without homes,
+- **[03:39](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=219s)** — their kids have nothing.
+- **[03:41](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=221s)** — And when you didn't just lose your home, you lost your clothing.
+- **[03:45](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=225s)** — You lost your vehicle. You lost your wallet.
+- **[03:48](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=228s)** — You lost your keys. You lost your identity.
+- **[03:51](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=231s)** — You lost everything.
+- **[03:53](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=233s)** — And when they go to FEMA and they don't have these things,
+- **[03:56](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=236s)** — they don't have a social security card.
+- **[03:58](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=238s)** — They don't even have a piece of mail that they can prove that they're a US citizen.
+- **[04:03](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=243s)** — So to get everything done, to cut through all the red tape,
+- **[04:07](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=247s)** — some of these people are being offered, you know, I mean, for instance,
+- **[04:11](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=251s)** — one family I've been working with were offered $3,000.
+- **[04:17](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=257s)** — It's probably going to cost them at least $200,000 plus just to rebuild
+- **[04:21](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=261s)** — their house stood, but just to rebuild the damage to their home.
+- **[04:25](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=265s)** — Another family that I'm helping did get what they call me the maximum FEMA check,
+- **[04:30](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=270s)** — which was $30,000.
+- **[04:33](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=273s)** — So one of the families did receive $30,000,
+- **[04:36](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=276s)** — but we have to tear their house down, clean up the site,
+- **[04:40](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=280s)** — which we're doing for free.
+- **[04:42](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=282s)** — And most everybody down there is doing a lot of the work for free.
+- **[04:45](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=285s)** — Unfortunately, the contractors now are having to start charging something
+- **[04:48](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=288s)** — because they can't do this forever.
+- **[04:50](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=290s)** — But $30,000 isn't going to build you a new home.
+- **[04:54](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=294s)** — It's not even going to clean up the home that you have destroyed,
+- **[04:56](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=296s)** — which is now a half a mile downstream.
+- **[04:59](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=299s)** — And then the homes that were half a mile upstream are now on your property.
+- **[05:04](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=304s)** — So I'm not seeing a whole lot of help from the government.
+- **[05:08](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=308s)** — Nobody has seen the governor.
+- **[05:09](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=309s)** — Nobody has seen a president.
+- **[05:11](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=311s)** — Nobody has seen anybody.
+- **[05:13](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=313s)** — And it's almost like a third world country.
+- **[05:16](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=316s)** — I've been working in Ash County, in and around Boone and Jefferson,
+- **[05:20](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=320s)** — North Carolina, and I'm not even in the hardest hit areas.
+- **[05:24](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=324s)** — You know, these areas were pretty well devastated,
+- **[05:26](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=326s)** — but you get down near Asheville and, you know,
+- **[05:29](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=329s)** — some of these towns that were basically almost wiped off the map.
+- **[05:32](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=332s)** — And when the media comes in, they show the town,
+- **[05:35](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=335s)** — but they don't go out on the side roads and they don't go up into the valleys
+- **[05:38](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=338s)** — where these homes are just completely gone.
+- **[05:40](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=340s)** — And it's just a little overwhelming.
+- **[05:43](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=343s)** — It's hard on all the people down there working.
+- **[05:46](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=346s)** — You're talking to these people.
+- **[05:49](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=349s)** — You're you're, you know, trying to help them.
+- **[05:51](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=351s)** — They have nothing.
+- **[05:53](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=353s)** — I've just never seen anything like this in our country.
+- **[05:56](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=356s)** — I've never seen anything like this.
+- **[05:58](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=358s)** — Yeah, it's the strangest thing, because I've been watching other videos
+- **[06:01](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=361s)** — people are posting, and apparently some people are getting
+- **[06:04](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=364s)** — acid burns on their body from chemicals in the rivers and water.
+- **[06:09](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=369s)** — Like there's a lot of weird going on down there right now.
+- **[06:13](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=373s)** — The septic systems that a few of the homes I was working on,
+- **[06:16](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=376s)** — you could smell the septic because it was just overwhelmed.
+- **[06:20](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=380s)** — Septic tanks were broken
+- **[06:22](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=382s)** — and are now all downstream and just washing up in people's wells, shallow wells.
+- **[06:28](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=388s)** — So some people are having their their wells tested so that they can use them.
+- **[06:33](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=393s)** — But if you think about it, yeah,
+- **[06:35](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=395s)** — why wouldn't all that stuff be contaminated?
+- **[06:38](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=398s)** — Of course, it's contaminated.
+- **[06:39](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=399s)** — There's like thousands of people that are not being helped right now,
+- **[06:43](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=403s)** — probably more in even close to where you are. Is that true?
+- **[06:47](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=407s)** — I would drive down on some of these roads and count,
+- **[06:50](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=410s)** — you know, 20, 30 homes just destroyed.
+- **[06:54](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=414s)** — Maybe their porches were just ripped off,
+- **[06:57](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=417s)** — but the water got up into their homes.
+- **[06:59](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=419s)** — They've had to go in and completely got the whole house out.
+- **[07:01](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=421s)** — And that's just the area that I'm in.
+- **[07:03](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=423s)** — This was a big area.
+- **[07:05](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=425s)** — This hurricane hit between Northwest,
+- **[07:08](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=428s)** — North Carolina, Kentucky, Tennessee, Southern Virginia.
+- **[07:12](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=432s)** — Some people may have got help.
+- **[07:13](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=433s)** — Maybe they did.
+- **[07:14](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=434s)** — But everyone that I've talked to and have been working with are getting nothing.
+- **[07:18](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=438s)** — I was basically raising money on my Venmo when I first got there
+- **[07:23](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=443s)** — because we needed dumpsters, which were overpriced by a thousand dollars.
+- **[07:27](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=447s)** — We needed gravel. We needed culverts.
+- **[07:29](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=449s)** — And these people didn't have the money even for that.
+- **[07:32](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=452s)** — They couldn't do it.
+- **[07:33](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=453s)** — Thankfully, we've had so many people behind us and behind me
+- **[07:38](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=458s)** — in our county here in Floyd County, Virginia, given me culverts,
+- **[07:42](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=462s)** — given me whatever I need to go down there and help these people out,
+- **[07:45](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=465s)** — because it's not our job to do this.
+- **[07:48](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=468s)** — You know, we shouldn't have to worry about this.
+- **[07:51](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=471s)** — But I'm starting to second guess the insurance on my home here
+- **[07:54](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=474s)** — in Floyd, Virginia, on top of a mountaintop,
+- **[07:57](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=477s)** — because whatever our system is, it's not working.
+- **[08:00](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=480s)** — Wow. There are people helping down there.
+- **[08:01](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=481s)** — It's kind of a makeshift cruise here and there, right?
+- **[08:04](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=484s)** — It's not necessarily coordinated.
+- **[08:07](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=487s)** — It's not coordinated.
+- **[08:08](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=488s)** — And at first, it was just a free for all.
+- **[08:10](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=490s)** — It was just, you know, where can I go to help somebody
+- **[08:13](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=493s)** — get their car out of their driveway?
+- **[08:15](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=495s)** — Where can I go to help somebody pull a few trees out of their living room
+- **[08:19](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=499s)** — so that maybe they could start putting their lives back together?
+- **[08:22](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=502s)** — And we were all doing it for free,
+- **[08:26](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=506s)** — whether it was me coming out of Floyd, Virginia,
+- **[08:28](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=508s)** — companies coming out of Pennsylvania, people coming up from Florida.
+- **[08:31](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=511s)** — Another problem was all these people that didn't have homes
+- **[08:34](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=514s)** — were now trying to stay in hotel rooms.
+- **[08:36](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=516s)** — They couldn't because they were only letting the workers stay there.
+- **[08:40](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=520s)** — So all these people, thousands of people that were coming in to help
+- **[08:43](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=523s)** — were now in these hotel rooms or in sleeping in their pickup trucks
+- **[08:48](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=528s)** — or tents out beside the road.
+- **[08:51](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=531s)** — It was... I don't know.
+- **[08:53](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=533s)** — I just... it's frustrating for all of us to be down there
+- **[08:57](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=537s)** — and to be working with nothing.
+- **[09:00](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=540s)** — And using our own funds.
+- **[09:03](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=543s)** — But then again, it's rewarding to help these families.
+- **[09:06](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=546s)** — And you can't just walk away from it.
+- **[09:08](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=548s)** — Me as an individual, I can't even load my excavator on the trailer and leave,
+- **[09:14](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=554s)** — you know, for a week.
+- **[09:16](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=556s)** — You know, I hate to leave them.
+- **[09:18](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=558s)** — I don't want to leave them down there.
+- **[09:20](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=560s)** — And they're being left.
+- **[09:22](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=562s)** — Yeah, I really appreciate what you're doing.
+- **[09:24](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=564s)** — You're basically going down there every week.
+- **[09:27](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=567s)** — You're spending days. I appreciate that.
+- **[09:29](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=569s)** — How can someone help if they wanted to help donate or whatever?
+- **[09:33](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=573s)** — So I do have a GoFundMe.
+- **[09:35](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=575s)** — With the GoFundMe, they do take a very small percentage.
+- **[09:38](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=578s)** — We have to keep receipts on everything that we spend the money on.
+- **[09:42](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=582s)** — And I hope that when I get done with this GoFundMe
+- **[09:46](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=586s)** — and I build these two and a half homes,
+- **[09:48](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=588s)** — that there's money left over that I can give these people to rebuild their lives
+- **[09:52](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=592s)** — because they need everything.
+- **[09:54](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=594s)** — I have brought five loads of food and water and clothing and tools.
+- **[09:58](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=598s)** — Also down to North Carolina, which we've gathered here in Floyd, Virginia.
+- **[10:03](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=603s)** — But they need money now.
+- **[10:05](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=605s)** — It's they have all the clothes. They have stuff.
+- **[10:08](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=608s)** — If they don't have it, they can go to the distribution centers and get it.
+- **[10:12](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=612s)** — Some distribution centers are overwhelmed with stuff,
+- **[10:14](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=614s)** — but they're sharing with others now.
+- **[10:16](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=616s)** — You know, Christmas is coming.
+- **[10:17](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=617s)** — Cold weather is coming.
+- **[10:19](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=619s)** — And the key now is to get homes built, get these people back on their feet.
+- **[10:23](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=623s)** — And the way to do that is with money.
+- **[10:25](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=625s)** — I will definitely support that and donate as well.
+- **[10:30](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=630s)** — So if anyone else would like to donate, I will put a link down below.
+- **[10:34](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=634s)** — Do what you can. But definitely people are in need.
+- **[10:37](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=637s)** — It's unfortunate that we're not getting the help we want from the government.
+- **[10:42](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=642s)** — You know what? We're just going to do it as a grassroots thing.
+- **[10:45](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=645s)** — And I'll put that link down below.
+- **[10:46](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=646s)** — Just the stress alone, everything they worked for, everything that they had
+- **[10:50](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=650s)** — and they thought they were they were done working and they thought they could
+- **[10:53](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=653s)** — settle down and they completely lost everything and is all they can do is rely on other people.
+- **[10:58](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=658s)** — Yeah, it's it's really overwhelming.
+- **[11:01](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=661s)** — It's emotional. It's just it's just ridiculous.
+- **[11:05](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=665s)** — Wow. OK.
+- **[11:07](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=667s)** — Well, I really appreciate what you're doing.
+- **[11:08](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=668s)** — Let's see if we can all come together and help and support these people down there.
+- **[11:14](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=674s)** — Thanks very much. And let's roll in some footage that you gave me.
+- **[11:19](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=679s)** — And I'll put that in the rest of the video.
+- **[11:21](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=681s)** — I'm here with Chris and Angela.
+- **[11:22](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=682s)** — I'm here with Jimmy, Kaden, Darlene at the house that I've been doing some work on,
+- **[11:28](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=688s)** — trying to get the mud and stuff clean up our back.
+- **[11:30](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=690s)** — And this is the home that we're going to be taking down to rebuild for them.
+- **[11:33](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=693s)** — Financially, we have zero help.
+- **[11:35](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=695s)** — We've been denied by insurance twice.
+- **[11:37](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=697s)** — We've been denied by FEMA twice.
+- **[11:40](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=700s)** — They did get a little bit of FEMA money, but not even close to what they need to rebuild.
+- **[11:45](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=705s)** — We're depending on just the generosity and kindness of other folks.
+- **[11:49](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=709s)** — So we will be rebuilding this family a new home.
+- **[11:52](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=712s)** — They've been through hell here shortly after the storm, did what I could at the time.
+- **[11:57](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=717s)** — Your house was condemned.
+- **[11:59](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=719s)** — The mountain basically came down behind this house and just went right through it.
+- **[12:02](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=722s)** — This is now a flood zone. We're going to take this house down.
+- **[12:05](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=725s)** — We're going to build up a new house and we need your support.
+- **[12:09](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=729s)** — And these people do not have the money to rebuild these homes.
+- **[12:12](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=732s)** — This is a this is a couple hundred thousand dollar hit right here.
+- **[12:15](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=735s)** — So help us out on GoFundMe.
+- **[12:18](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=738s)** — I've got people behind me that are thinking of you guys.
+- **[12:21](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=741s)** — And we're going to make this happen.
+- **[12:23](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=743s)** — Thank you to all the people that have been helping on this project and all the other projects around.
+- **[12:27](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=747s)** — I'm not the only one down here doing this.
+- **[12:29](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=749s)** — Help these families down here in Boone, North Carolina and all over, you know, North Carolina,
+- **[12:34](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=754s)** — Western North Carolina, Tennessee, Kentucky, because they're not getting the help.
+- **[12:39](https://www.youtube.com/watch?v=PwNXDrXjOY8&t=759s)** — So let's let's let's give them some support.
+
+
+---
+
+
+## Video 2: STOP Doing THIS for Low Back Pain
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=fWFetC50qWc](https://www.youtube.com/watch?v=fWFetC50qWc)
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=fWFetC50qWc&t=0s)** — There is no lifestyle safe enough to avoid breakdown and re-injury.
+- **[00:05](https://www.youtube.com/watch?v=fWFetC50qWc&t=5s)** — I became very aware quickly of this gap of conservative treatment for the spine
+- **[00:10](https://www.youtube.com/watch?v=fWFetC50qWc&t=10s)** — and building back from injury is only focused on everything in your core except for the low back.
+- **[00:17](https://www.youtube.com/watch?v=fWFetC50qWc&t=17s)** — Today we are going to show you some amazing things to fix your lower back.
+- **[00:22](https://www.youtube.com/watch?v=fWFetC50qWc&t=22s)** — I had a history of low back pain for many, many years, ever since college.
+- **[00:26](https://www.youtube.com/watch?v=fWFetC50qWc&t=26s)** — I did something really stupid. I tried to squat 425 pounds and blew my disc out.
+- **[00:32](https://www.youtube.com/watch?v=fWFetC50qWc&t=32s)** — And ever since then I have been struggling with a low back in sciatica type pain.
+- **[00:35](https://www.youtube.com/watch?v=fWFetC50qWc&t=35s)** — I recently stumbled on some really cool information by a man named Brendan Backstrom.
+- **[00:42](https://www.youtube.com/watch?v=fWFetC50qWc&t=42s)** — He found something that I never really looked at or really considered
+- **[00:45](https://www.youtube.com/watch?v=fWFetC50qWc&t=45s)** — and I wanted to bring him on to show you this information
+- **[00:48](https://www.youtube.com/watch?v=fWFetC50qWc&t=48s)** — because if you have low back pain you need to know this.
+- **[00:51](https://www.youtube.com/watch?v=fWFetC50qWc&t=51s)** — Welcome Brendan. Thanks for coming on.
+- **[00:53](https://www.youtube.com/watch?v=fWFetC50qWc&t=53s)** — Thank you so much. I appreciate you shared the story of your back history
+- **[01:00](https://www.youtube.com/watch?v=fWFetC50qWc&t=60s)** — and the deadlift it took for you to become aware of that potential for pain.
+- **[01:05](https://www.youtube.com/watch?v=fWFetC50qWc&t=65s)** — I only needed about 300 pounds to end up in the same story.
+- **[01:09](https://www.youtube.com/watch?v=fWFetC50qWc&t=69s)** — So yours is a little bit more impressive. But it's an honor.
+- **[01:12](https://www.youtube.com/watch?v=fWFetC50qWc&t=72s)** — You kind of were in a situation with a lot of people.
+- **[01:15](https://www.youtube.com/watch?v=fWFetC50qWc&t=75s)** — You were basically, they were told, well you know, you can't ever really get to a point where it's fully resolved.
+- **[01:20](https://www.youtube.com/watch?v=fWFetC50qWc&t=80s)** — You have to just kind of cope with it and do the best you can.
+- **[01:24](https://www.youtube.com/watch?v=fWFetC50qWc&t=84s)** — So just kind of just accept that, right?
+- **[01:25](https://www.youtube.com/watch?v=fWFetC50qWc&t=85s)** — And you said, no, I'm going to see if I could figure this out, right?
+- **[01:30](https://www.youtube.com/watch?v=fWFetC50qWc&t=90s)** — Yeah. So I thought I was in an isolated situation, an isolated case in being...
+- **[01:38](https://www.youtube.com/watch?v=fWFetC50qWc&t=98s)** — I only knew I had a low back once I hurt my low back.
+- **[01:41](https://www.youtube.com/watch?v=fWFetC50qWc&t=101s)** — And then as I went to the doctors I started to become very familiar with
+- **[01:45](https://www.youtube.com/watch?v=fWFetC50qWc&t=105s)** — what is the current culture and mindset around the low back.
+- **[01:51](https://www.youtube.com/watch?v=fWFetC50qWc&t=111s)** — And that it's something really to protect, not something to build.
+- **[01:54](https://www.youtube.com/watch?v=fWFetC50qWc&t=114s)** — And it's a fact of age. And as you get older, back pain is just something that comes with life.
+- **[02:00](https://www.youtube.com/watch?v=fWFetC50qWc&t=120s)** — So what does that mean if you're 21 and you started to have chronic back issues?
+- **[02:04](https://www.youtube.com/watch?v=fWFetC50qWc&t=124s)** — That just means you got the unlucky draw.
+- **[02:07](https://www.youtube.com/watch?v=fWFetC50qWc&t=127s)** — And now you started this spiral early.
+- **[02:10](https://www.youtube.com/watch?v=fWFetC50qWc&t=130s)** — So you better buckle up and learn how to be careful.
+- **[02:12](https://www.youtube.com/watch?v=fWFetC50qWc&t=132s)** — And I was in the field a little bit. I was training to try to become a physical therapist.
+- **[02:17](https://www.youtube.com/watch?v=fWFetC50qWc&t=137s)** — And I thought I had a really good grasp of how to be as careful as you can be as mechanically safe.
+- **[02:24](https://www.youtube.com/watch?v=fWFetC50qWc&t=144s)** — And it turns out there's no lifestyle safe enough to avoid breakdown and re-injury.
+- **[02:29](https://www.youtube.com/watch?v=fWFetC50qWc&t=149s)** — And so I became very aware quickly of this gap of the sophisticated science that has a lot of merit.
+- **[02:39](https://www.youtube.com/watch?v=fWFetC50qWc&t=159s)** — And it works well for getting people out of the initial injuries and the initial pain.
+- **[02:45](https://www.youtube.com/watch?v=fWFetC50qWc&t=165s)** — Many people end up in this loop that I did, which is where you become more sensitive and more vulnerable.
+- **[02:51](https://www.youtube.com/watch?v=fWFetC50qWc&t=171s)** — And then you just feel disempowered and lost.
+- **[02:54](https://www.youtube.com/watch?v=fWFetC50qWc&t=174s)** — And I thought it was just me. I only found out through sharing on the Internet and people surprising, to my surprise, resonating.
+- **[03:00](https://www.youtube.com/watch?v=fWFetC50qWc&t=180s)** — That it turns out there's lots of people of all ages in this sort of state.
+- **[03:05](https://www.youtube.com/watch?v=fWFetC50qWc&t=185s)** — And they just want to know there's any hope to build the back.
+- **[03:10](https://www.youtube.com/watch?v=fWFetC50qWc&t=190s)** — I mean, if you look up low back pain, it's all about, well, if you've injured your back, you have to protect it, right?
+- **[03:16](https://www.youtube.com/watch?v=fWFetC50qWc&t=196s)** — You have to squat down very carefully. Make sure you don't re-injure it.
+- **[03:20](https://www.youtube.com/watch?v=fWFetC50qWc&t=200s)** — Tell us a little bit about the point where you said, wait a second, there's something neglected here. There's something missing.
+- **[03:26](https://www.youtube.com/watch?v=fWFetC50qWc&t=206s)** — Yeah, so it's a very standard approach to view the core as the protection for the low back.
+- **[03:34](https://www.youtube.com/watch?v=fWFetC50qWc&t=214s)** — And I completely agree. And we do well with that.
+- **[03:37](https://www.youtube.com/watch?v=fWFetC50qWc&t=217s)** — I don't know what led me to this sort of questioning, but I started to view the core as like the core of an apple.
+- **[03:44](https://www.youtube.com/watch?v=fWFetC50qWc&t=224s)** — It's the center point of everything that's meant to protect you and so much vital organs in the spine.
+- **[03:50](https://www.youtube.com/watch?v=fWFetC50qWc&t=230s)** — But when you are in sports medicine, the core is mainly talked about with the things in front, with your abs.
+- **[03:56](https://www.youtube.com/watch?v=fWFetC50qWc&t=236s)** — With the sides, with the obliques and deeper, maybe transverse abdominis.
+- **[04:00](https://www.youtube.com/watch?v=fWFetC50qWc&t=240s)** — These muscles that are known to stabilize you, which is important.
+- **[04:05](https://www.youtube.com/watch?v=fWFetC50qWc&t=245s)** — But then I started to see, I've never gotten hurt my oblique.
+- **[04:09](https://www.youtube.com/watch?v=fWFetC50qWc&t=249s)** — I've never gotten hurt on the side. I keep getting hurt at the direct weak shank in my armor, which is my low back directly.
+- **[04:17](https://www.youtube.com/watch?v=fWFetC50qWc&t=257s)** — So when I started to look at the core through just a textbook without the teaching of how to train it,
+- **[04:23](https://www.youtube.com/watch?v=fWFetC50qWc&t=263s)** — but just anatomy wise, it seemed like a more fitting concept of the core is a 360 barrel.
+- **[04:30](https://www.youtube.com/watch?v=fWFetC50qWc&t=270s)** — Also with the ceiling and also with the floor.
+- **[04:32](https://www.youtube.com/watch?v=fWFetC50qWc&t=272s)** — So you have the front of the abs, which we train a lot of in gym culture and lifting.
+- **[04:36](https://www.youtube.com/watch?v=fWFetC50qWc&t=276s)** — We've all done sit ups. We have the obliques.
+- **[04:39](https://www.youtube.com/watch?v=fWFetC50qWc&t=279s)** — We have some of the deeper side muscles, the stabilizers.
+- **[04:43](https://www.youtube.com/watch?v=fWFetC50qWc&t=283s)** — But then in the spine, there's this wall of tissue.
+- **[04:46](https://www.youtube.com/watch?v=fWFetC50qWc&t=286s)** — You have layers with the big ones, spinal erectors that keep you upright.
+- **[04:51](https://www.youtube.com/watch?v=fWFetC50qWc&t=291s)** — But then you also have segment by segment, little musculature that almost hugs the bones of the spine and gives you true stability and circulation close to all the problem area.
+- **[05:03](https://www.youtube.com/watch?v=fWFetC50qWc&t=303s)** — So majority of conservative treatment for the spine and building back from injury is only focused on everything in your core except for the low back.
+- **[05:15](https://www.youtube.com/watch?v=fWFetC50qWc&t=315s)** — I understand why. It's the most scary. It's the most frightening to touch because it's the most sensitive.
+- **[05:21](https://www.youtube.com/watch?v=fWFetC50qWc&t=321s)** — So it's actually very safe advice in the short term to just not touch it.
+- **[05:26](https://www.youtube.com/watch?v=fWFetC50qWc&t=326s)** — But then in the long term, it guarantees an acceleration of breakdown and decay.
+- **[05:32](https://www.youtube.com/watch?v=fWFetC50qWc&t=332s)** — So that's how I ended up to that sort of mindset.
+- **[05:35](https://www.youtube.com/watch?v=fWFetC50qWc&t=335s)** — If anyone's watching, basically, he's stumbled on the back part of this core, which is part of the spine.
+- **[05:41](https://www.youtube.com/watch?v=fWFetC50qWc&t=341s)** — The back part of the spine is basically just very, very, very weak and it's going to keep you very fragile.
+- **[05:46](https://www.youtube.com/watch?v=fWFetC50qWc&t=346s)** — So his program is pretty cool because he found a way to get the back really strong on a really nice gradual way.
+- **[05:56](https://www.youtube.com/watch?v=fWFetC50qWc&t=356s)** — As you said in your video, you could very easily overdo it.
+- **[05:59](https://www.youtube.com/watch?v=fWFetC50qWc&t=359s)** — So here's another principle I want you to talk about.
+- **[06:02](https://www.youtube.com/watch?v=fWFetC50qWc&t=362s)** — When you rehab the lower back, if you want to call it that, or you want to strengthen or balance it out, there's a right way to do it and a wrong way.
+- **[06:11](https://www.youtube.com/watch?v=fWFetC50qWc&t=371s)** — So just kind of talk a little bit about that because that's kind of like an underlying principle of your whole program.
+- **[06:16](https://www.youtube.com/watch?v=fWFetC50qWc&t=376s)** — As far as you don't, you do this on a very gradual level so you don't re-injure yourself.
+- **[06:21](https://www.youtube.com/watch?v=fWFetC50qWc&t=381s)** — Right. So one of the most delicate processes is going to be reestablishing communication with an area of the body that you have either masked or avoided for so long.
+- **[06:34](https://www.youtube.com/watch?v=fWFetC50qWc&t=394s)** — So we don't know what a productive low back stimulus may feel like.
+- **[06:40](https://www.youtube.com/watch?v=fWFetC50qWc&t=400s)** — And so what that means practically is many of us have gone to the gym and done bicep curls and we know what that feels like.
+- **[06:48](https://www.youtube.com/watch?v=fWFetC50qWc&t=408s)** — We may go and train our legs and feel a pump in the quads and we know what that feels like.
+- **[06:53](https://www.youtube.com/watch?v=fWFetC50qWc&t=413s)** — But after many re-injuries and becoming more sensitive and having more breakdown in that area of the back,
+- **[06:59](https://www.youtube.com/watch?v=fWFetC50qWc&t=419s)** — when you go to train your low back, you have to be slower than you think.
+- **[07:05](https://www.youtube.com/watch?v=fWFetC50qWc&t=425s)** — Not training to the level of the strength of the muscles.
+- **[07:08](https://www.youtube.com/watch?v=fWFetC50qWc&t=428s)** — You have to train to a concept which I've tried to teach people of tissue tolerance.
+- **[07:14](https://www.youtube.com/watch?v=fWFetC50qWc&t=434s)** — Lowest sensitivity of your most fragile tissue, that's what's going to set the pace for this sort of training.
+- **[07:21](https://www.youtube.com/watch?v=fWFetC50qWc&t=441s)** — And so if we go to the back training I show, a lot of times I may show the further stages because I'm proud of what I've built to
+- **[07:28](https://www.youtube.com/watch?v=fWFetC50qWc&t=448s)** — and I want to inspire others who are starting from an injured place.
+- **[07:31](https://www.youtube.com/watch?v=fWFetC50qWc&t=451s)** — But the starting point is actually scaled back to something that almost doesn't look like training.
+- **[07:37](https://www.youtube.com/watch?v=fWFetC50qWc&t=457s)** — It could just be holding your torso up at a certain angle for 30 seconds
+- **[07:42](https://www.youtube.com/watch?v=fWFetC50qWc&t=462s)** — and you're just squeezing the low back muscles gently without any motion.
+- **[07:46](https://www.youtube.com/watch?v=fWFetC50qWc&t=466s)** — And then you see almost through a bit of survivorship bias.
+- **[07:50](https://www.youtube.com/watch?v=fWFetC50qWc&t=470s)** — Did you make it through that with no pain?
+- **[07:52](https://www.youtube.com/watch?v=fWFetC50qWc&t=472s)** — Is the next day do you have any increase of symptoms?
+- **[07:55](https://www.youtube.com/watch?v=fWFetC50qWc&t=475s)** — If not, that's your current capacity.
+- **[07:57](https://www.youtube.com/watch?v=fWFetC50qWc&t=477s)** — You now got a little bit more familiarized that your back can handle that.
+- **[08:02](https://www.youtube.com/watch?v=fWFetC50qWc&t=482s)** — And so it's not all or nothing.
+- **[08:04](https://www.youtube.com/watch?v=fWFetC50qWc&t=484s)** — I think the mindset I really try to get people out of is this light switch mentality versus turning dials.
+- **[08:12](https://www.youtube.com/watch?v=fWFetC50qWc&t=492s)** — It's not avoid the back or train the back.
+- **[08:14](https://www.youtube.com/watch?v=fWFetC50qWc&t=494s)** — It's all spectrum, slightly more this week than last week.
+- **[08:18](https://www.youtube.com/watch?v=fWFetC50qWc&t=498s)** — And the truth of it is you may sometimes go into a flare-up, which is you overdid it, you crossed the line,
+- **[08:24](https://www.youtube.com/watch?v=fWFetC50qWc&t=504s)** — and now you're in a little bit of pain.
+- **[08:26](https://www.youtube.com/watch?v=fWFetC50qWc&t=506s)** — And this is actually sometimes useful for people as well.
+- **[08:29](https://www.youtube.com/watch?v=fWFetC50qWc&t=509s)** — It's not fun to go through, but sometimes you have to cross the line to know where the line is.
+- **[08:34](https://www.youtube.com/watch?v=fWFetC50qWc&t=514s)** — And you go, that's my true capacity level.
+- **[08:38](https://www.youtube.com/watch?v=fWFetC50qWc&t=518s)** — Most people avoid all sensation in their back, good or bad.
+- **[08:43](https://www.youtube.com/watch?v=fWFetC50qWc&t=523s)** — And the only time they feel their low back is in an awkward tweak.
+- **[08:47](https://www.youtube.com/watch?v=fWFetC50qWc&t=527s)** — When they reach for something and they get that spasm or that realization, that reminder, your low back is vulnerable.
+- **[08:53](https://www.youtube.com/watch?v=fWFetC50qWc&t=533s)** — So I try to teach people to meet their low back and get some experience and evidence.
+- **[08:59](https://www.youtube.com/watch?v=fWFetC50qWc&t=539s)** — And it's a very slow process.
+- **[09:01](https://www.youtube.com/watch?v=fWFetC50qWc&t=541s)** — So you're basically going from this complete disconnect from your lower back to fully in communication with your back.
+- **[09:07](https://www.youtube.com/watch?v=fWFetC50qWc&t=547s)** — And you're really kind of aware of what's happening.
+- **[09:10](https://www.youtube.com/watch?v=fWFetC50qWc&t=550s)** — You're doing it. Why don't you go through some of these exercises to show people what you're talking about?
+- **[09:15](https://www.youtube.com/watch?v=fWFetC50qWc&t=555s)** — The most direct stimulus we could try to get to the low back is simply anything that moves our shoulders
+- **[09:22](https://www.youtube.com/watch?v=fWFetC50qWc&t=562s)** — in front of our hips. The muscles in our low back just keep us upright.
+- **[09:27](https://www.youtube.com/watch?v=fWFetC50qWc&t=567s)** — They're called spinal erectors. Erect means upright.
+- **[09:30](https://www.youtube.com/watch?v=fWFetC50qWc&t=570s)** — If you didn't have low back muscles, you would just collapse.
+- **[09:33](https://www.youtube.com/watch?v=fWFetC50qWc&t=573s)** — So what we're going to do, instead of going into a range of something that's scary,
+- **[09:39](https://www.youtube.com/watch?v=fWFetC50qWc&t=579s)** — you can get on this machine and just hold the position.
+- **[09:42](https://www.youtube.com/watch?v=fWFetC50qWc&t=582s)** — And it may not look like much, but even 30 seconds on this for a lot of people
+- **[09:48](https://www.youtube.com/watch?v=fWFetC50qWc&t=588s)** — could cause extreme pain the next day if they overdo it.
+- **[09:52](https://www.youtube.com/watch?v=fWFetC50qWc&t=592s)** — So this isn't even the most bare starting point.
+- **[09:55](https://www.youtube.com/watch?v=fWFetC50qWc&t=595s)** — You could start lower. You could put the pad very high.
+- **[09:58](https://www.youtube.com/watch?v=fWFetC50qWc&t=598s)** — And you could have it up to your chest.
+- **[10:01](https://www.youtube.com/watch?v=fWFetC50qWc&t=601s)** — You could start lower and it could be up to the shoulders.
+- **[10:04](https://www.youtube.com/watch?v=fWFetC50qWc&t=604s)** — Pretty much the more body weight that you're holding,
+- **[10:07](https://www.youtube.com/watch?v=fWFetC50qWc&t=607s)** — the more that's hanging off the machine,
+- **[10:09](https://www.youtube.com/watch?v=fWFetC50qWc&t=609s)** — the more weight your low back is holding yourself up.
+- **[10:12](https://www.youtube.com/watch?v=fWFetC50qWc&t=612s)** — So you find any level within that spectrum and you'll hold for 30 seconds.
+- **[10:17](https://www.youtube.com/watch?v=fWFetC50qWc&t=617s)** — Calm, trying to get your nervous system relaxed,
+- **[10:20](https://www.youtube.com/watch?v=fWFetC50qWc&t=620s)** — deep breathing, trying to keep your system in this most...
+- **[10:25](https://www.youtube.com/watch?v=fWFetC50qWc&t=625s)** — away from the fight or flight state.
+- **[10:28](https://www.youtube.com/watch?v=fWFetC50qWc&t=628s)** — And then over time, you can increase the time,
+- **[10:31](https://www.youtube.com/watch?v=fWFetC50qWc&t=631s)** — so maybe a minute, two minutes.
+- **[10:34](https://www.youtube.com/watch?v=fWFetC50qWc&t=634s)** — This is what I call making daily deposits.
+- **[10:36](https://www.youtube.com/watch?v=fWFetC50qWc&t=636s)** — You're investing. It's almost as if you're in back debt.
+- **[10:39](https://www.youtube.com/watch?v=fWFetC50qWc&t=639s)** — You have very little money to invest.
+- **[10:42](https://www.youtube.com/watch?v=fWFetC50qWc&t=642s)** — You have the micro dose.
+- **[10:44](https://www.youtube.com/watch?v=fWFetC50qWc&t=644s)** — And then after three, four months,
+- **[10:46](https://www.youtube.com/watch?v=fWFetC50qWc&t=646s)** — the person that was extremely sensitive to even do 10 seconds
+- **[10:50](https://www.youtube.com/watch?v=fWFetC50qWc&t=650s)** — may work up to two minutes.
+- **[10:52](https://www.youtube.com/watch?v=fWFetC50qWc&t=652s)** — And at that point, then you start to actually work range.
+- **[10:55](https://www.youtube.com/watch?v=fWFetC50qWc&t=655s)** — And you can start to use the vertebrae piece by piece,
+- **[10:59](https://www.youtube.com/watch?v=fWFetC50qWc&t=659s)** — going through half the range.
+- **[11:01](https://www.youtube.com/watch?v=fWFetC50qWc&t=661s)** — Usually these machines have handles
+- **[11:04](https://www.youtube.com/watch?v=fWFetC50qWc&t=664s)** — and you could go and just do 10
+- **[11:06](https://www.youtube.com/watch?v=fWFetC50qWc&t=666s)** — with a slight round in the back.
+- **[11:10](https://www.youtube.com/watch?v=fWFetC50qWc&t=670s)** — Give it a few months, give it eight weeks,
+- **[11:12](https://www.youtube.com/watch?v=fWFetC50qWc&t=672s)** — and then you could go further
+- **[11:13](https://www.youtube.com/watch?v=fWFetC50qWc&t=673s)** — and see can you actually go inverted.
+- **[11:18](https://www.youtube.com/watch?v=fWFetC50qWc&t=678s)** — And then you reach a point where you're getting
+- **[11:19](https://www.youtube.com/watch?v=fWFetC50qWc&t=679s)** — decompression of the spine,
+- **[11:21](https://www.youtube.com/watch?v=fWFetC50qWc&t=681s)** — which many people know is great for relief.
+- **[11:24](https://www.youtube.com/watch?v=fWFetC50qWc&t=684s)** — But then what's missing is the recompression.
+- **[11:26](https://www.youtube.com/watch?v=fWFetC50qWc&t=686s)** — So if you're at the bottom inverted,
+- **[11:29](https://www.youtube.com/watch?v=fWFetC50qWc&t=689s)** — my discs are actually starting to separate in space.
+- **[11:31](https://www.youtube.com/watch?v=fWFetC50qWc&t=691s)** — The vertebrae are giving more space.
+- **[11:34](https://www.youtube.com/watch?v=fWFetC50qWc&t=694s)** — But as I piece my back together
+- **[11:36](https://www.youtube.com/watch?v=fWFetC50qWc&t=696s)** — with all the small muscles,
+- **[11:37](https://www.youtube.com/watch?v=fWFetC50qWc&t=697s)** — now I'm getting the strength to recompress.
+- **[11:40](https://www.youtube.com/watch?v=fWFetC50qWc&t=700s)** — And so that's what you start to build
+- **[11:44](https://www.youtube.com/watch?v=fWFetC50qWc&t=704s)** — direct stimulus to the spine,
+- **[11:46](https://www.youtube.com/watch?v=fWFetC50qWc&t=706s)** — the muscles all around those intraspinal
+- **[11:49](https://www.youtube.com/watch?v=fWFetC50qWc&t=709s)** — little muscles I was describing earlier.
+- **[11:51](https://www.youtube.com/watch?v=fWFetC50qWc&t=711s)** — And you create piece by piece stability again
+- **[11:54](https://www.youtube.com/watch?v=fWFetC50qWc&t=714s)** — that you may have lost for a decade.
+- **[11:56](https://www.youtube.com/watch?v=fWFetC50qWc&t=716s)** — So this journey alone,
+- **[11:58](https://www.youtube.com/watch?v=fWFetC50qWc&t=718s)** — I just showed it in three minutes.
+- **[12:00](https://www.youtube.com/watch?v=fWFetC50qWc&t=720s)** — Most people, if they're starting from a chronic place of pain,
+- **[12:03](https://www.youtube.com/watch?v=fWFetC50qWc&t=723s)** — it's going to take about two years.
+- **[12:06](https://www.youtube.com/watch?v=fWFetC50qWc&t=726s)** — To go from gentle holds to what I showed,
+- **[12:10](https://www.youtube.com/watch?v=fWFetC50qWc&t=730s)** — 30 reps is a very good bodyweight goal
+- **[12:12](https://www.youtube.com/watch?v=fWFetC50qWc&t=732s)** — for anyone who wants to get to an active lifestyle,
+- **[12:15](https://www.youtube.com/watch?v=fWFetC50qWc&t=735s)** — sports, even just have longevity
+- **[12:19](https://www.youtube.com/watch?v=fWFetC50qWc&t=739s)** — well into your 50s and 60s and onwards,
+- **[12:21](https://www.youtube.com/watch?v=fWFetC50qWc&t=741s)** — the strong back.
+- **[12:22](https://www.youtube.com/watch?v=fWFetC50qWc&t=742s)** — This is the best protection that you could get directly
+- **[12:26](https://www.youtube.com/watch?v=fWFetC50qWc&t=746s)** — for anything that you may get in an injury,
+- **[12:28](https://www.youtube.com/watch?v=fWFetC50qWc&t=748s)** — picking up stuff, anything that gives you fear.
+- **[12:31](https://www.youtube.com/watch?v=fWFetC50qWc&t=751s)** — This is going to be your best measure
+- **[12:32](https://www.youtube.com/watch?v=fWFetC50qWc&t=752s)** — of how protected is my low back.
+- **[12:36](https://www.youtube.com/watch?v=fWFetC50qWc&t=756s)** — You can build your own back brace.
+- **[12:37](https://www.youtube.com/watch?v=fWFetC50qWc&t=757s)** — That's my slogan.
+- **[12:40](https://www.youtube.com/watch?v=fWFetC50qWc&t=760s)** — See, when you're doing this,
+- **[12:41](https://www.youtube.com/watch?v=fWFetC50qWc&t=761s)** — what you're doing is you're creating a whole bunch of things.
+- **[12:44](https://www.youtube.com/watch?v=fWFetC50qWc&t=764s)** — In addition, just a stronger muscle.
+- **[12:46](https://www.youtube.com/watch?v=fWFetC50qWc&t=766s)** — You're pumping blood flow.
+- **[12:48](https://www.youtube.com/watch?v=fWFetC50qWc&t=768s)** — You're getting your discs to get circulation.
+- **[12:50](https://www.youtube.com/watch?v=fWFetC50qWc&t=770s)** — You're also stretching out the fascia.
+- **[12:53](https://www.youtube.com/watch?v=fWFetC50qWc&t=773s)** — Fascia is like the wetsuit around your body,
+- **[12:55](https://www.youtube.com/watch?v=fWFetC50qWc&t=775s)** — but you also have fascia around the nerves,
+- **[12:57](https://www.youtube.com/watch?v=fWFetC50qWc&t=777s)** — the nerve roots.
+- **[12:58](https://www.youtube.com/watch?v=fWFetC50qWc&t=778s)** — And I think even with me,
+- **[13:01](https://www.youtube.com/watch?v=fWFetC50qWc&t=781s)** — there's a lot of scar tissue in the fascia
+- **[13:03](https://www.youtube.com/watch?v=fWFetC50qWc&t=783s)** — that every time I would move or bend over,
+- **[13:06](https://www.youtube.com/watch?v=fWFetC50qWc&t=786s)** — it would just pull on that nerve.
+- **[13:08](https://www.youtube.com/watch?v=fWFetC50qWc&t=788s)** — So it's not necessarily a disc on a nerve directly,
+- **[13:12](https://www.youtube.com/watch?v=fWFetC50qWc&t=792s)** — an impingement,
+- **[13:13](https://www.youtube.com/watch?v=fWFetC50qWc&t=793s)** — because you can even look on an MRI.
+- **[13:14](https://www.youtube.com/watch?v=fWFetC50qWc&t=794s)** — It's like, oh, no,
+- **[13:15](https://www.youtube.com/watch?v=fWFetC50qWc&t=795s)** — the disc is not pressing on it.
+- **[13:17](https://www.youtube.com/watch?v=fWFetC50qWc&t=797s)** — It's the soft tissue that doesn't show up.
+- **[13:20](https://www.youtube.com/watch?v=fWFetC50qWc&t=800s)** — And with these stretches and strengthening exercises
+- **[13:23](https://www.youtube.com/watch?v=fWFetC50qWc&t=803s)** — done on a real nice level,
+- **[13:25](https://www.youtube.com/watch?v=fWFetC50qWc&t=805s)** — I think what you said in your video,
+- **[13:27](https://www.youtube.com/watch?v=fWFetC50qWc&t=807s)** — it starts to now glide.
+- **[13:29](https://www.youtube.com/watch?v=fWFetC50qWc&t=809s)** — You start creating more less friction
+- **[13:31](https://www.youtube.com/watch?v=fWFetC50qWc&t=811s)** — around that nerve root, right?
+- **[13:34](https://www.youtube.com/watch?v=fWFetC50qWc&t=814s)** — Especially someone that's dietic.
+- **[13:35](https://www.youtube.com/watch?v=fWFetC50qWc&t=815s)** — Yes, dietic is very tricky
+- **[13:36](https://www.youtube.com/watch?v=fWFetC50qWc&t=816s)** — because it's exactly that.
+- **[13:38](https://www.youtube.com/watch?v=fWFetC50qWc&t=818s)** — We immediately assume that the original cause
+- **[13:42](https://www.youtube.com/watch?v=fWFetC50qWc&t=822s)** — of our pain is the same exact source
+- **[13:45](https://www.youtube.com/watch?v=fWFetC50qWc&t=825s)** — of our chronic problems.
+- **[13:47](https://www.youtube.com/watch?v=fWFetC50qWc&t=827s)** — And many times it's not.
+- **[13:49](https://www.youtube.com/watch?v=fWFetC50qWc&t=829s)** — The original disc herniation,
+- **[13:51](https://www.youtube.com/watch?v=fWFetC50qWc&t=831s)** — disc herniations are more common
+- **[13:52](https://www.youtube.com/watch?v=fWFetC50qWc&t=832s)** — than the flu sometimes.
+- **[13:55](https://www.youtube.com/watch?v=fWFetC50qWc&t=835s)** — About 60, 70% of people around on the street
+- **[13:57](https://www.youtube.com/watch?v=fWFetC50qWc&t=837s)** — may have some form of bulge over the age of 30.
+- **[14:00](https://www.youtube.com/watch?v=fWFetC50qWc&t=840s)** — Now, the reason it becomes chronic back pain
+- **[14:03](https://www.youtube.com/watch?v=fWFetC50qWc&t=843s)** — is the secondary dysfunction,
+- **[14:04](https://www.youtube.com/watch?v=fWFetC50qWc&t=844s)** — the breakdown of the supporting muscles,
+- **[14:07](https://www.youtube.com/watch?v=fWFetC50qWc&t=847s)** — the memory of fascia.
+- **[14:09](https://www.youtube.com/watch?v=fWFetC50qWc&t=849s)** — Fascia basically can hold your tissue
+- **[14:13](https://www.youtube.com/watch?v=fWFetC50qWc&t=853s)** — in the position it was in when it was injured.
+- **[14:15](https://www.youtube.com/watch?v=fWFetC50qWc&t=855s)** — You take away that disc bulge,
+- **[14:16](https://www.youtube.com/watch?v=fWFetC50qWc&t=856s)** — you take away that inflammation,
+- **[14:18](https://www.youtube.com/watch?v=fWFetC50qWc&t=858s)** — but the fascia, if you don't move,
+- **[14:19](https://www.youtube.com/watch?v=fWFetC50qWc&t=859s)** — it just becomes stuck.
+- **[14:21](https://www.youtube.com/watch?v=fWFetC50qWc&t=861s)** — It can even continue to remodel in that stuck position.
+- **[14:24](https://www.youtube.com/watch?v=fWFetC50qWc&t=864s)** — So now your body learns
+- **[14:25](https://www.youtube.com/watch?v=fWFetC50qWc&t=865s)** — at this segment of the spine,
+- **[14:27](https://www.youtube.com/watch?v=fWFetC50qWc&t=867s)** — we are extra tight,
+- **[14:28](https://www.youtube.com/watch?v=fWFetC50qWc&t=868s)** — and the fascia reflects that.
+- **[14:30](https://www.youtube.com/watch?v=fWFetC50qWc&t=870s)** — So the only way that we have
+- **[14:33](https://www.youtube.com/watch?v=fWFetC50qWc&t=873s)** — holistic control of that
+- **[14:35](https://www.youtube.com/watch?v=fWFetC50qWc&t=875s)** — is what we do with our body.
+- **[14:37](https://www.youtube.com/watch?v=fWFetC50qWc&t=877s)** — And so sciatica is a tough one
+- **[14:40](https://www.youtube.com/watch?v=fWFetC50qWc&t=880s)** — because it's a tissue
+- **[14:42](https://www.youtube.com/watch?v=fWFetC50qWc&t=882s)** — that when it's working right,
+- **[14:43](https://www.youtube.com/watch?v=fWFetC50qWc&t=883s)** — we don't feel it.
+- **[14:44](https://www.youtube.com/watch?v=fWFetC50qWc&t=884s)** — We don't want to feel nerves.
+- **[14:46](https://www.youtube.com/watch?v=fWFetC50qWc&t=886s)** — That's kind of the goal.
+- **[14:48](https://www.youtube.com/watch?v=fWFetC50qWc&t=888s)** — So we can work the entire path of the nerve
+- **[14:51](https://www.youtube.com/watch?v=fWFetC50qWc&t=891s)** — and basically from the nerve root of the spine
+- **[14:54](https://www.youtube.com/watch?v=fWFetC50qWc&t=894s)** — down the glute,
+- **[14:56](https://www.youtube.com/watch?v=fWFetC50qWc&t=896s)** — down the back of the leg,
+- **[14:57](https://www.youtube.com/watch?v=fWFetC50qWc&t=897s)** — through the calf, to the big toe.
+- **[14:59](https://www.youtube.com/watch?v=fWFetC50qWc&t=899s)** — In the program, I teach people
+- **[15:00](https://www.youtube.com/watch?v=fWFetC50qWc&t=900s)** — to very gradually strengthen
+- **[15:02](https://www.youtube.com/watch?v=fWFetC50qWc&t=902s)** — and try to reactivate muscle
+- **[15:04](https://www.youtube.com/watch?v=fWFetC50qWc&t=904s)** — all the way along the path
+- **[15:06](https://www.youtube.com/watch?v=fWFetC50qWc&t=906s)** — that the sciatic nerve can branch off to.
+- **[15:08](https://www.youtube.com/watch?v=fWFetC50qWc&t=908s)** — I like even in your program because you get into
+- **[15:11](https://www.youtube.com/watch?v=fWFetC50qWc&t=911s)** — you do not want to put yourself
+- **[15:13](https://www.youtube.com/watch?v=fWFetC50qWc&t=913s)** — into a painful position.
+- **[15:16](https://www.youtube.com/watch?v=fWFetC50qWc&t=916s)** — You're working on this to the point
+- **[15:17](https://www.youtube.com/watch?v=fWFetC50qWc&t=917s)** — you'll know when to go more
+- **[15:19](https://www.youtube.com/watch?v=fWFetC50qWc&t=919s)** — because there will be no pain.
+- **[15:21](https://www.youtube.com/watch?v=fWFetC50qWc&t=921s)** — You have to.
+- **[15:23](https://www.youtube.com/watch?v=fWFetC50qWc&t=923s)** — Because that's where
+- **[15:24](https://www.youtube.com/watch?v=fWFetC50qWc&t=924s)** — I'm trying to do a more thorough and better job
+- **[15:27](https://www.youtube.com/watch?v=fWFetC50qWc&t=927s)** — of educating this with longer videos
+- **[15:30](https://www.youtube.com/watch?v=fWFetC50qWc&t=930s)** — because if you give me 60 seconds
+- **[15:32](https://www.youtube.com/watch?v=fWFetC50qWc&t=932s)** — to explain how to get into this
+- **[15:34](https://www.youtube.com/watch?v=fWFetC50qWc&t=934s)** — it's going to be very difficult
+- **[15:36](https://www.youtube.com/watch?v=fWFetC50qWc&t=936s)** — because there's so much nuance
+- **[15:38](https://www.youtube.com/watch?v=fWFetC50qWc&t=938s)** — that depends on your sensitivity
+- **[15:40](https://www.youtube.com/watch?v=fWFetC50qWc&t=940s)** — and your level.
+- **[15:42](https://www.youtube.com/watch?v=fWFetC50qWc&t=942s)** — And the same thing,
+- **[15:43](https://www.youtube.com/watch?v=fWFetC50qWc&t=943s)** — it's like all of health and medicine
+- **[15:45](https://www.youtube.com/watch?v=fWFetC50qWc&t=945s)** — it's the dosage that's the devil.
+- **[15:48](https://www.youtube.com/watch?v=fWFetC50qWc&t=948s)** — It's like the application
+- **[15:49](https://www.youtube.com/watch?v=fWFetC50qWc&t=949s)** — and how you do it.
+- **[15:51](https://www.youtube.com/watch?v=fWFetC50qWc&t=951s)** — Low back is very tricky
+- **[15:52](https://www.youtube.com/watch?v=fWFetC50qWc&t=952s)** — given the neurology of it.
+- **[15:54](https://www.youtube.com/watch?v=fWFetC50qWc&t=954s)** — There's so much potential
+- **[15:57](https://www.youtube.com/watch?v=fWFetC50qWc&t=957s)** — to feel nerve issues
+- **[15:58](https://www.youtube.com/watch?v=fWFetC50qWc&t=958s)** — and the innervation of it
+- **[16:00](https://www.youtube.com/watch?v=fWFetC50qWc&t=960s)** — versus an elbow.
+- **[16:02](https://www.youtube.com/watch?v=fWFetC50qWc&t=962s)** — So you have to be very in tune
+- **[16:04](https://www.youtube.com/watch?v=fWFetC50qWc&t=964s)** — and very slow.
+- **[16:05](https://www.youtube.com/watch?v=fWFetC50qWc&t=965s)** — Never just push past the pain
+- **[16:08](https://www.youtube.com/watch?v=fWFetC50qWc&t=968s)** — because your body is going to learn
+- **[16:09](https://www.youtube.com/watch?v=fWFetC50qWc&t=969s)** — this is actually worse for me.
+- **[16:11](https://www.youtube.com/watch?v=fWFetC50qWc&t=971s)** — When it could be the best thing you need
+- **[16:13](https://www.youtube.com/watch?v=fWFetC50qWc&t=973s)** — the most potent healer
+- **[16:15](https://www.youtube.com/watch?v=fWFetC50qWc&t=975s)** — I say something is potent as an exercise
+- **[16:17](https://www.youtube.com/watch?v=fWFetC50qWc&t=977s)** — as a high potential to heal
+- **[16:19](https://www.youtube.com/watch?v=fWFetC50qWc&t=979s)** — or a high potential to harm
+- **[16:21](https://www.youtube.com/watch?v=fWFetC50qWc&t=981s)** — depending on how you do it.
+- **[16:23](https://www.youtube.com/watch?v=fWFetC50qWc&t=983s)** — Here you have a person who injures the back
+- **[16:26](https://www.youtube.com/watch?v=fWFetC50qWc&t=986s)** — and then they get scar tissue.
+- **[16:27](https://www.youtube.com/watch?v=fWFetC50qWc&t=987s)** — One of the worst things you can do for fascia
+- **[16:29](https://www.youtube.com/watch?v=fWFetC50qWc&t=989s)** — is inactivity.
+- **[16:31](https://www.youtube.com/watch?v=fWFetC50qWc&t=991s)** — Just like a person in a nursing home
+- **[16:33](https://www.youtube.com/watch?v=fWFetC50qWc&t=993s)** — they get stuck in this position
+- **[16:36](https://www.youtube.com/watch?v=fWFetC50qWc&t=996s)** — because they're not moving.
+- **[16:37](https://www.youtube.com/watch?v=fWFetC50qWc&t=997s)** — And then on top of that
+- **[16:38](https://www.youtube.com/watch?v=fWFetC50qWc&t=998s)** — as you're not moving or you're maybe stuck in
+- **[16:41](https://www.youtube.com/watch?v=fWFetC50qWc&t=1001s)** — a certain position
+- **[16:42](https://www.youtube.com/watch?v=fWFetC50qWc&t=1002s)** — you end up getting atrophy
+- **[16:45](https://www.youtube.com/watch?v=fWFetC50qWc&t=1005s)** — of all the spinal erectate muscles.
+- **[16:47](https://www.youtube.com/watch?v=fWFetC50qWc&t=1007s)** — Here you are maybe doing your
+- **[16:49](https://www.youtube.com/watch?v=fWFetC50qWc&t=1009s)** — abdomen, your six pack ab program
+- **[16:52](https://www.youtube.com/watch?v=fWFetC50qWc&t=1012s)** — or your other exercises
+- **[16:54](https://www.youtube.com/watch?v=fWFetC50qWc&t=1014s)** — and that back muscle is the weak link.
+- **[16:56](https://www.youtube.com/watch?v=fWFetC50qWc&t=1016s)** — I mean, yeah, that's a really
+- **[16:58](https://www.youtube.com/watch?v=fWFetC50qWc&t=1018s)** — good observation that
+- **[16:59](https://www.youtube.com/watch?v=fWFetC50qWc&t=1019s)** — we don't ever end up with pain in our abdomen
+- **[17:02](https://www.youtube.com/watch?v=fWFetC50qWc&t=1022s)** — or our sides. It's always in the back.
+- **[17:04](https://www.youtube.com/watch?v=fWFetC50qWc&t=1024s)** — And just to really strengthen that
+- **[17:06](https://www.youtube.com/watch?v=fWFetC50qWc&t=1026s)** — back muscle. It was so severe
+- **[17:08](https://www.youtube.com/watch?v=fWFetC50qWc&t=1028s)** — for you, right? You had constant pain
+- **[17:10](https://www.youtube.com/watch?v=fWFetC50qWc&t=1030s)** — didn't you when you were at your worst?
+- **[17:12](https://www.youtube.com/watch?v=fWFetC50qWc&t=1032s)** — If we were doing this interview three years ago
+- **[17:13](https://www.youtube.com/watch?v=fWFetC50qWc&t=1033s)** — you would have saw me actually turn the chair
+- **[17:16](https://www.youtube.com/watch?v=fWFetC50qWc&t=1036s)** — and sit on this glute
+- **[17:18](https://www.youtube.com/watch?v=fWFetC50qWc&t=1038s)** — and then sit on this glute
+- **[17:19](https://www.youtube.com/watch?v=fWFetC50qWc&t=1039s)** — because I had this chronic SI joint pain
+- **[17:22](https://www.youtube.com/watch?v=fWFetC50qWc&t=1042s)** — which is right where the base of the spine
+- **[17:24](https://www.youtube.com/watch?v=fWFetC50qWc&t=1044s)** — meets the pelvis, your sacrum.
+- **[17:26](https://www.youtube.com/watch?v=fWFetC50qWc&t=1046s)** — It wasn't even at the side of my
+- **[17:28](https://www.youtube.com/watch?v=fWFetC50qWc&t=1048s)** — disc problem anymore. It spread.
+- **[17:31](https://www.youtube.com/watch?v=fWFetC50qWc&t=1051s)** — And so
+- **[17:32](https://www.youtube.com/watch?v=fWFetC50qWc&t=1052s)** — your body becomes so avoidant
+- **[17:34](https://www.youtube.com/watch?v=fWFetC50qWc&t=1054s)** — of certain positions
+- **[17:35](https://www.youtube.com/watch?v=fWFetC50qWc&t=1055s)** — that it compensates and my hips move to one side
+- **[17:38](https://www.youtube.com/watch?v=fWFetC50qWc&t=1058s)** — and now I had this
+- **[17:40](https://www.youtube.com/watch?v=fWFetC50qWc&t=1060s)** — chronic constant pain
+- **[17:42](https://www.youtube.com/watch?v=fWFetC50qWc&t=1062s)** — just deep in the glutes on that joint
+- **[17:44](https://www.youtube.com/watch?v=fWFetC50qWc&t=1064s)** — and it actually led to me sitting
+- **[17:46](https://www.youtube.com/watch?v=fWFetC50qWc&t=1066s)** — all the time off one side
+- **[17:48](https://www.youtube.com/watch?v=fWFetC50qWc&t=1068s)** — so my hips became set in this
+- **[17:50](https://www.youtube.com/watch?v=fWFetC50qWc&t=1070s)** — lateral hip shift
+- **[17:51](https://www.youtube.com/watch?v=fWFetC50qWc&t=1071s)** — and I'm still lifting. I'm still trying to
+- **[17:54](https://www.youtube.com/watch?v=fWFetC50qWc&t=1074s)** — exercise better than inactivity
+- **[17:56](https://www.youtube.com/watch?v=fWFetC50qWc&t=1076s)** — so what happens when I squat?
+- **[17:57](https://www.youtube.com/watch?v=fWFetC50qWc&t=1077s)** — I'm squatting like this
+- **[17:59](https://www.youtube.com/watch?v=fWFetC50qWc&t=1079s)** — and then I got hip impingement
+- **[18:01](https://www.youtube.com/watch?v=fWFetC50qWc&t=1081s)** — in my right hip so because it wasn't
+- **[18:04](https://www.youtube.com/watch?v=fWFetC50qWc&t=1084s)** — properly aligned the ball in the socket
+- **[18:06](https://www.youtube.com/watch?v=fWFetC50qWc&t=1086s)** — was now grinding weird
+- **[18:08](https://www.youtube.com/watch?v=fWFetC50qWc&t=1088s)** — and then I got a sports hernia
+- **[18:10](https://www.youtube.com/watch?v=fWFetC50qWc&t=1090s)** — on that same side
+- **[18:11](https://www.youtube.com/watch?v=fWFetC50qWc&t=1091s)** — which turns out
+- **[18:13](https://www.youtube.com/watch?v=fWFetC50qWc&t=1093s)** — studies and people
+- **[18:15](https://www.youtube.com/watch?v=fWFetC50qWc&t=1095s)** — they got surgeries for sports hernias that
+- **[18:17](https://www.youtube.com/watch?v=fWFetC50qWc&t=1097s)** — about 70% of them when they were in there
+- **[18:20](https://www.youtube.com/watch?v=fWFetC50qWc&t=1100s)** — operating they just look at the hip
+- **[18:21](https://www.youtube.com/watch?v=fWFetC50qWc&t=1101s)** — capsule and they see signs of hip impingement
+- **[18:24](https://www.youtube.com/watch?v=fWFetC50qWc&t=1104s)** — so many people at this
+- **[18:26](https://www.youtube.com/watch?v=fWFetC50qWc&t=1106s)** — lineage of disc problem
+- **[18:27](https://www.youtube.com/watch?v=fWFetC50qWc&t=1107s)** — hip imbalance, hip socket
+- **[18:30](https://www.youtube.com/watch?v=fWFetC50qWc&t=1110s)** — problem, ab tear
+- **[18:32](https://www.youtube.com/watch?v=fWFetC50qWc&t=1112s)** — the sports hernia, I get comments
+- **[18:34](https://www.youtube.com/watch?v=fWFetC50qWc&t=1114s)** — from dozens of people. I've had that exact
+- **[18:37](https://www.youtube.com/watch?v=fWFetC50qWc&t=1117s)** — lineage
+- **[18:38](https://www.youtube.com/watch?v=fWFetC50qWc&t=1118s)** — so it was so severe it
+- **[18:40](https://www.youtube.com/watch?v=fWFetC50qWc&t=1120s)** — became a whole body problem. Again I thought
+- **[18:42](https://www.youtube.com/watch?v=fWFetC50qWc&t=1122s)** — I was alone in this until I shared it.
+- **[18:43](https://www.youtube.com/watch?v=fWFetC50qWc&t=1123s)** — If you look at some of his videos
+- **[18:46](https://www.youtube.com/watch?v=fWFetC50qWc&t=1126s)** — he'll do that back extension
+- **[18:48](https://www.youtube.com/watch?v=fWFetC50qWc&t=1128s)** — with weights. I'm talking like
+- **[18:50](https://www.youtube.com/watch?v=fWFetC50qWc&t=1130s)** — is that two 45
+- **[18:52](https://www.youtube.com/watch?v=fWFetC50qWc&t=1132s)** — pound weights on and you're
+- **[18:55](https://www.youtube.com/watch?v=fWFetC50qWc&t=1135s)** — basically bending over
+- **[18:56](https://www.youtube.com/watch?v=fWFetC50qWc&t=1136s)** — on your back. So to do that
+- **[18:58](https://www.youtube.com/watch?v=fWFetC50qWc&t=1138s)** — you have to really
+- **[19:00](https://www.youtube.com/watch?v=fWFetC50qWc&t=1140s)** — build up that back muscle in your
+- **[19:02](https://www.youtube.com/watch?v=fWFetC50qWc&t=1142s)** — extensors. I mean that's like crazy
+- **[19:04](https://www.youtube.com/watch?v=fWFetC50qWc&t=1144s)** — amount of weight. So to go from can't even do
+- **[19:06](https://www.youtube.com/watch?v=fWFetC50qWc&t=1146s)** — it at all to do that much weight and
+- **[19:08](https://www.youtube.com/watch?v=fWFetC50qWc&t=1148s)** — plus I think you
+- **[19:10](https://www.youtube.com/watch?v=fWFetC50qWc&t=1150s)** — if I'm not mistaken you also do some squats
+- **[19:12](https://www.youtube.com/watch?v=fWFetC50qWc&t=1152s)** — as well right? Yep.
+- **[19:13](https://www.youtube.com/watch?v=fWFetC50qWc&t=1153s)** — I do lift traditionally. I just made
+- **[19:16](https://www.youtube.com/watch?v=fWFetC50qWc&t=1156s)** — sure that
+- **[19:18](https://www.youtube.com/watch?v=fWFetC50qWc&t=1158s)** — I never skipped a low back
+- **[19:20](https://www.youtube.com/watch?v=fWFetC50qWc&t=1160s)** — ever again. And so
+- **[19:22](https://www.youtube.com/watch?v=fWFetC50qWc&t=1162s)** — I wanted to be a product of the product
+- **[19:24](https://www.youtube.com/watch?v=fWFetC50qWc&t=1164s)** — and it's actually the best
+- **[19:26](https://www.youtube.com/watch?v=fWFetC50qWc&t=1166s)** — compliment sometimes are comments of
+- **[19:28](https://www.youtube.com/watch?v=fWFetC50qWc&t=1168s)** — people saying you never had a back injury
+- **[19:29](https://www.youtube.com/watch?v=fWFetC50qWc&t=1169s)** — because there's no way you could get back to that
+- **[19:32](https://www.youtube.com/watch?v=fWFetC50qWc&t=1172s)** — point. It's ironic but it's such
+- **[19:34](https://www.youtube.com/watch?v=fWFetC50qWc&t=1174s)** — a good feeling when you have such a
+- **[19:36](https://www.youtube.com/watch?v=fWFetC50qWc&t=1176s)** — good low back
+- **[19:37](https://www.youtube.com/watch?v=fWFetC50qWc&t=1177s)** — and that was the worst aspect
+- **[19:40](https://www.youtube.com/watch?v=fWFetC50qWc&t=1180s)** — of your body for many years. It's just
+- **[19:42](https://www.youtube.com/watch?v=fWFetC50qWc&t=1182s)** — our health is remarkably in our
+- **[19:44](https://www.youtube.com/watch?v=fWFetC50qWc&t=1184s)** — control. Amazing.
+- **[19:47](https://www.youtube.com/watch?v=fWFetC50qWc&t=1187s)** — So just to kind of
+- **[19:48](https://www.youtube.com/watch?v=fWFetC50qWc&t=1188s)** — summarize there's a series of exercises
+- **[19:50](https://www.youtube.com/watch?v=fWFetC50qWc&t=1190s)** — that was one of them that you
+- **[19:52](https://www.youtube.com/watch?v=fWFetC50qWc&t=1192s)** — put people through on
+- **[19:54](https://www.youtube.com/watch?v=fWFetC50qWc&t=1194s)** — a nice gradual
+- **[19:56](https://www.youtube.com/watch?v=fWFetC50qWc&t=1196s)** — level from where
+- **[19:57](https://www.youtube.com/watch?v=fWFetC50qWc&t=1197s)** — they're at to where they need to be
+- **[20:00](https://www.youtube.com/watch?v=fWFetC50qWc&t=1200s)** — over time and you have
+- **[20:03](https://www.youtube.com/watch?v=fWFetC50qWc&t=1203s)** — information on like
+- **[20:04](https://www.youtube.com/watch?v=fWFetC50qWc&t=1204s)** — the principles of why you're doing that.
+- **[20:06](https://www.youtube.com/watch?v=fWFetC50qWc&t=1206s)** — Exactly. Every single exercise
+- **[20:08](https://www.youtube.com/watch?v=fWFetC50qWc&t=1208s)** — is a journey of step
+- **[20:10](https://www.youtube.com/watch?v=fWFetC50qWc&t=1210s)** — one through ten. So every exercise has a level
+- **[20:12](https://www.youtube.com/watch?v=fWFetC50qWc&t=1212s)** — that you take your grandmother through
+- **[20:14](https://www.youtube.com/watch?v=fWFetC50qWc&t=1214s)** — and then you can take your friend
+- **[20:16](https://www.youtube.com/watch?v=fWFetC50qWc&t=1216s)** — who's trying to be an Olympian
+- **[20:18](https://www.youtube.com/watch?v=fWFetC50qWc&t=1218s)** — and you find where you are on that
+- **[20:20](https://www.youtube.com/watch?v=fWFetC50qWc&t=1220s)** — gradient. And then alongside we have
+- **[20:22](https://www.youtube.com/watch?v=fWFetC50qWc&t=1222s)** — these education modules. I didn't
+- **[20:24](https://www.youtube.com/watch?v=fWFetC50qWc&t=1224s)** — want to make a course
+- **[20:26](https://www.youtube.com/watch?v=fWFetC50qWc&t=1226s)** — and have to
+- **[20:28](https://www.youtube.com/watch?v=fWFetC50qWc&t=1228s)** — teach too much. I like the
+- **[20:30](https://www.youtube.com/watch?v=fWFetC50qWc&t=1230s)** — XYZOO do this blueprint. However
+- **[20:32](https://www.youtube.com/watch?v=fWFetC50qWc&t=1232s)** — the context matters a lot for every
+- **[20:34](https://www.youtube.com/watch?v=fWFetC50qWc&t=1234s)** — exercise. So I alongside teach
+- **[20:36](https://www.youtube.com/watch?v=fWFetC50qWc&t=1236s)** — people how do you train these exercises.
+- **[20:38](https://www.youtube.com/watch?v=fWFetC50qWc&t=1238s)** — This isn't a six week
+- **[20:40](https://www.youtube.com/watch?v=fWFetC50qWc&t=1240s)** — get lean program. This is a one to
+- **[20:42](https://www.youtube.com/watch?v=fWFetC50qWc&t=1242s)** — two year re-model the deepest
+- **[20:44](https://www.youtube.com/watch?v=fWFetC50qWc&t=1244s)** — part of your body program.
+- **[20:47](https://www.youtube.com/watch?v=fWFetC50qWc&t=1247s)** — So the roadmap of
+- **[20:48](https://www.youtube.com/watch?v=fWFetC50qWc&t=1248s)** — exercise is very thorough with all
+- **[20:50](https://www.youtube.com/watch?v=fWFetC50qWc&t=1250s)** — the regressions. The education
+- **[20:52](https://www.youtube.com/watch?v=fWFetC50qWc&t=1252s)** — side of it tries to match
+- **[20:54](https://www.youtube.com/watch?v=fWFetC50qWc&t=1254s)** — any problem you may come in with
+- **[20:56](https://www.youtube.com/watch?v=fWFetC50qWc&t=1256s)** — and give you the nuance
+- **[20:58](https://www.youtube.com/watch?v=fWFetC50qWc&t=1258s)** — that would make all the difference.
+- **[21:00](https://www.youtube.com/watch?v=fWFetC50qWc&t=1260s)** — We also have a really good community with thousands of people
+- **[21:02](https://www.youtube.com/watch?v=fWFetC50qWc&t=1262s)** — in a chat that are just sharing their stories
+- **[21:04](https://www.youtube.com/watch?v=fWFetC50qWc&t=1264s)** — and just uplifting and so
+- **[21:06](https://www.youtube.com/watch?v=fWFetC50qWc&t=1266s)** — try to give what people may need
+- **[21:08](https://www.youtube.com/watch?v=fWFetC50qWc&t=1268s)** — only from thinking of what would I have
+- **[21:11](https://www.youtube.com/watch?v=fWFetC50qWc&t=1271s)** — desperately needed
+- **[21:12](https://www.youtube.com/watch?v=fWFetC50qWc&t=1272s)** — five years ago that didn't exist.
+- **[21:15](https://www.youtube.com/watch?v=fWFetC50qWc&t=1275s)** — And I think the most impressive
+- **[21:17](https://www.youtube.com/watch?v=fWFetC50qWc&t=1277s)** — thing is what you charge.
+- **[21:19](https://www.youtube.com/watch?v=fWFetC50qWc&t=1279s)** — It's basically whatever the person
+- **[21:20](https://www.youtube.com/watch?v=fWFetC50qWc&t=1280s)** — feels they want to pay.
+- **[21:22](https://www.youtube.com/watch?v=fWFetC50qWc&t=1282s)** — The slogan is pay what you want.
+- **[21:25](https://www.youtube.com/watch?v=fWFetC50qWc&t=1285s)** — The entire model people sign up and
+- **[21:26](https://www.youtube.com/watch?v=fWFetC50qWc&t=1286s)** — it's a monthly subscription. You can cancel whenever.
+- **[21:29](https://www.youtube.com/watch?v=fWFetC50qWc&t=1289s)** — You can pay two dollars. Some people
+- **[21:30](https://www.youtube.com/watch?v=fWFetC50qWc&t=1290s)** — have paid two hundred. It's what it means to you
+- **[21:33](https://www.youtube.com/watch?v=fWFetC50qWc&t=1293s)** — and you can also change it. I don't expect you
+- **[21:35](https://www.youtube.com/watch?v=fWFetC50qWc&t=1295s)** — to trust an internet stranger
+- **[21:38](https://www.youtube.com/watch?v=fWFetC50qWc&t=1298s)** — to charge you
+- **[21:39](https://www.youtube.com/watch?v=fWFetC50qWc&t=1299s)** — thousands. That was a thing.
+- **[21:41](https://www.youtube.com/watch?v=fWFetC50qWc&t=1301s)** — I tried to find stuff I could do years ago
+- **[21:43](https://www.youtube.com/watch?v=fWFetC50qWc&t=1303s)** — but it was behind a paywall of
+- **[21:44](https://www.youtube.com/watch?v=fWFetC50qWc&t=1304s)** — thousands of dollars.
+- **[21:46](https://www.youtube.com/watch?v=fWFetC50qWc&t=1306s)** — Your exchange between the person
+- **[21:48](https://www.youtube.com/watch?v=fWFetC50qWc&t=1308s)** — is so nice and even because
+- **[21:52](https://www.youtube.com/watch?v=fWFetC50qWc&t=1312s)** — so many programs
+- **[21:53](https://www.youtube.com/watch?v=fWFetC50qWc&t=1313s)** — you don't even know if it's going to work
+- **[21:54](https://www.youtube.com/watch?v=fWFetC50qWc&t=1314s)** — paying all this money. I think that's a great way
+- **[21:57](https://www.youtube.com/watch?v=fWFetC50qWc&t=1317s)** — to keep your level of exchange
+- **[21:59](https://www.youtube.com/watch?v=fWFetC50qWc&t=1319s)** — in with people because they would appreciate it.
+- **[22:01](https://www.youtube.com/watch?v=fWFetC50qWc&t=1321s)** — Yeah. It's anti-marketing
+- **[22:03](https://www.youtube.com/watch?v=fWFetC50qWc&t=1323s)** — for sure which some would say is great marketing
+- **[22:06](https://www.youtube.com/watch?v=fWFetC50qWc&t=1326s)** — but me and my
+- **[22:07](https://www.youtube.com/watch?v=fWFetC50qWc&t=1327s)** — business partner joke about it all the time
+- **[22:10](https://www.youtube.com/watch?v=fWFetC50qWc&t=1330s)** — that you're taught
+- **[22:11](https://www.youtube.com/watch?v=fWFetC50qWc&t=1331s)** — a lot of times to price something
+- **[22:13](https://www.youtube.com/watch?v=fWFetC50qWc&t=1333s)** — very high because that changes the perceived
+- **[22:15](https://www.youtube.com/watch?v=fWFetC50qWc&t=1335s)** — value. It's like well that must be a great
+- **[22:17](https://www.youtube.com/watch?v=fWFetC50qWc&t=1337s)** — program if it's thousands of dollars and
+- **[22:20](https://www.youtube.com/watch?v=fWFetC50qWc&t=1340s)** — when you really have something
+- **[22:21](https://www.youtube.com/watch?v=fWFetC50qWc&t=1341s)** — that is authentic and there's nothing
+- **[22:23](https://www.youtube.com/watch?v=fWFetC50qWc&t=1343s)** — hidden and you're not
+- **[22:25](https://www.youtube.com/watch?v=fWFetC50qWc&t=1345s)** — afraid to just put it out there. The people
+- **[22:27](https://www.youtube.com/watch?v=fWFetC50qWc&t=1347s)** — will tell you what it's worth.
+- **[22:29](https://www.youtube.com/watch?v=fWFetC50qWc&t=1349s)** — People often times message me
+- **[22:31](https://www.youtube.com/watch?v=fWFetC50qWc&t=1351s)** — hey I was skeptical but after 8 weeks
+- **[22:33](https://www.youtube.com/watch?v=fWFetC50qWc&t=1353s)** — I'm just in awe. I'm going to up the
+- **[22:35](https://www.youtube.com/watch?v=fWFetC50qWc&t=1355s)** — subscription because they want to support me
+- **[22:38](https://www.youtube.com/watch?v=fWFetC50qWc&t=1358s)** — supporting people.
+- **[22:41](https://www.youtube.com/watch?v=fWFetC50qWc&t=1361s)** — There's a lot of bells and whistles out there.
+- **[22:44](https://www.youtube.com/watch?v=fWFetC50qWc&t=1364s)** — When you have something real
+- **[22:45](https://www.youtube.com/watch?v=fWFetC50qWc&t=1365s)** — I don't think you have to rely on that.
+- **[22:48](https://www.youtube.com/watch?v=fWFetC50qWc&t=1368s)** — I never thought I'd be in this position
+- **[22:49](https://www.youtube.com/watch?v=fWFetC50qWc&t=1369s)** — to even help people for free let alone
+- **[22:51](https://www.youtube.com/watch?v=fWFetC50qWc&t=1371s)** — make money from it. For me
+- **[22:53](https://www.youtube.com/watch?v=fWFetC50qWc&t=1373s)** — I just want this gap
+- **[22:55](https://www.youtube.com/watch?v=fWFetC50qWc&t=1375s)** — of ignorance to be bridged.
+- **[22:58](https://www.youtube.com/watch?v=fWFetC50qWc&t=1378s)** — That's my main long game is
+- **[22:59](https://www.youtube.com/watch?v=fWFetC50qWc&t=1379s)** — to get as many people in this shift
+- **[23:02](https://www.youtube.com/watch?v=fWFetC50qWc&t=1382s)** — as they can and leave the hopelessness
+- **[23:04](https://www.youtube.com/watch?v=fWFetC50qWc&t=1384s)** — of the back loop.
+- **[23:05](https://www.youtube.com/watch?v=fWFetC50qWc&t=1385s)** — That's awesome. I'm going to put your link down below
+- **[23:07](https://www.youtube.com/watch?v=fWFetC50qWc&t=1387s)** — I highly recommend everyone
+- **[23:09](https://www.youtube.com/watch?v=fWFetC50qWc&t=1389s)** — sign up for it. You'll get a download
+- **[23:11](https://www.youtube.com/watch?v=fWFetC50qWc&t=1391s)** — videos. I think this is awesome.
+- **[23:13](https://www.youtube.com/watch?v=fWFetC50qWc&t=1393s)** — A game changer. And then put down your
+- **[23:15](https://www.youtube.com/watch?v=fWFetC50qWc&t=1395s)** — comments on how this program has helped
+- **[23:17](https://www.youtube.com/watch?v=fWFetC50qWc&t=1397s)** — you because I don't
+- **[23:19](https://www.youtube.com/watch?v=fWFetC50qWc&t=1399s)** — do these interviews very often with people
+- **[23:21](https://www.youtube.com/watch?v=fWFetC50qWc&t=1401s)** — but when I see something that I really
+- **[23:23](https://www.youtube.com/watch?v=fWFetC50qWc&t=1403s)** — think would work I'm definitely
+- **[23:25](https://www.youtube.com/watch?v=fWFetC50qWc&t=1405s)** — going to promote it. So thank you so
+- **[23:27](https://www.youtube.com/watch?v=fWFetC50qWc&t=1407s)** — much for taking your time to be on this
+
+*[Transcript continues... watch full video for more]*
+
+
+---
+
+
+## Video 3: The #1 Remedy for Cataracts
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=K114ptQ1oUQ](https://www.youtube.com/watch?v=K114ptQ1oUQ)
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=0s)** — So I'm always researching different body problems.
+- **[00:03](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=3s)** — And I've done several videos on gout and uric acid.
+- **[00:07](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=7s)** — And I found a remedy that I think you should know about if you have gout.
+- **[00:11](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=11s)** — We take a look at the mechanism of how certain gout medications work.
+- **[00:17](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=17s)** — Most of them work by inhibiting an enzyme that goes from purine into uric acid.
+- **[00:23](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=23s)** — Okay. So they block this enzyme called xanthine oxidase.
+- **[00:27](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=27s)** — So of course the question is, is there any natural thing that can do the same thing?
+- **[00:32](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=32s)** — And the answer is yes.
+- **[00:35](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=35s)** — I'm assuming that you know that you have to get off alcohol, beer, fructose, right?
+- **[00:40](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=40s)** — To help get rid of this condition.
+- **[00:42](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=42s)** — But there's a lot of people who do that that still have gout.
+- **[00:45](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=45s)** — And gout can be devastating, especially trying to walk because it affects your foot.
+- **[00:50](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=50s)** — I mean, it can affect the entire body because you're limping and shuffling along.
+- **[00:54](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=54s)** — And all because of this one joint in your toe.
+- **[00:58](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=58s)** — Humans have lost the enzyme to help break down uric acid.
+- **[01:03](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=63s)** — What have we gained?
+- **[01:05](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=65s)** — Well, we've gained a survival mechanism to help us store fat during times of starvation,
+- **[01:11](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=71s)** — which is probably not exciting you, but that's what happened.
+- **[01:15](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=75s)** — But I don't want to get into that topic.
+- **[01:17](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=77s)** — I want to just get into this natural remedy that is quite fascinating.
+- **[01:21](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=81s)** — And that remedy is a plant chemical, let's say polyphenol, called sulfurophane.
+- **[01:27](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=87s)** — Maybe you've heard of this from the work of John Hopkins,
+- **[01:31](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=91s)** — where they did studies and found that it helps with cancer.
+- **[01:34](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=94s)** — And they try to get the patents on broccoli sprouts.
+- **[01:36](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=96s)** — They couldn't get it.
+- **[01:37](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=97s)** — And so they apparently dropped it like hot potato because you don't see a lot of research by them in this area.
+- **[01:42](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=102s)** — Apparently, if you can't patent it, that organization is not going to invest a lot of money into promoting it,
+- **[01:47](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=107s)** — because it's something that anyone can actually grow in their garden.
+- **[01:50](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=110s)** — Broccoli sprouts, but you can also get them in pill form, but they're mostly in broccoli sprouts and radish sprouts.
+- **[01:57](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=117s)** — There's several interesting things about sulfurophane.
+- **[01:59](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=119s)** — Number one, its bioavailability.
+- **[02:03](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=123s)** — I mean, it really gets absorbed way more than any other polyphenol.
+- **[02:08](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=128s)** — It has like an 80% bioavailability.
+- **[02:11](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=131s)** — Look at the chart that I have up here.
+- **[02:13](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=133s)** — Silly Marin, 0.73% bioavailable.
+- **[02:18](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=138s)** — Curcumin, that's in the temeric, right?
+- **[02:20](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=140s)** — 1% bioavailability.
+- **[02:22](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=142s)** — Quercetin, which is only 4% sulfurophane, 80%.
+- **[02:27](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=147s)** — So apparently it goes in the body like a rocket ship.
+- **[02:30](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=150s)** — There's not a lot of barriers.
+- **[02:31](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=151s)** — Another thing that's really interesting about the sulfurophane is that it has the ability to activate other genes and enzymes
+- **[02:42](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=162s)** — to get rid of poisons in the body and to take a poisonous carcinogen and turn it into something that's no longer cancer causing.
+- **[02:49](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=169s)** — It can activate over a hundred defense genes, genes that protect itself against certain things.
+- **[02:57](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=177s)** — But relating to gout, these studies were not done on humans.
+- **[03:00](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=180s)** — However, it's definitely worth it to try it out.
+- **[03:03](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=183s)** — And the cool thing about it is that the side effects are virtually nil compared to medications.
+- **[03:11](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=191s)** — So they found that it helps restore the nephron.
+- **[03:14](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=194s)** — This is the kidney cell's ability to filter because uric acid is made by our body and filtered out through the kidneys.
+- **[03:24](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=204s)** — So many times a person will have a problem at the kidney level and the kidneys are not able to deal with this uric acid and they just kind of dump it into the tissues.
+- **[03:35](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=215s)** — So sulfurophane helps this filter filter better.
+- **[03:41](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=221s)** — It also helps up regulate antioxidants to help reduce free radical damage, which relates to reducing inflammation.
+- **[03:52](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=232s)** — I mean, just think about these crystals that are forming in your big toe and how much free radical damage that's going on.
+- **[04:00](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=240s)** — Massive. It's a war with your immune system.
+- **[04:03](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=243s)** — So sulfurophane helps to regulate the reaction of the immune system to the crystals and the inflammation from many different angles.
+- **[04:14](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=254s)** — It also increases microbial diversity, which can also take a load of this uric acid out of your body because your microbes help to dismantle and degrade uric acid.
+- **[04:26](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=266s)** — So sulfurophane looks very promising. It's not that expensive.
+- **[04:30](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=270s)** — Virtually zero side effects and it could be just that missing puzzle piece that you've been looking for.
+- **[04:36](https://www.youtube.com/watch?v=K114ptQ1oUQ&t=276s)** — Now, if you haven't seen my other video on uric acid and gout, I put it up right here. Check it out.
+
+
+---
+
+
+## Video 4: The #1 Remedy for Sinus Mucus / Pressure / Postnasal Drip
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=PKF0954tfxs](https://www.youtube.com/watch?v=PKF0954tfxs)
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=PKF0954tfxs&t=0s)** — I have a lot of videos on what to do for mucus, especially upper respiratory mucus, sinuses.
+- **[00:06](https://www.youtube.com/watch?v=PKF0954tfxs&t=6s)** — But this video is going to give you another tip that is very, very powerful.
+- **[00:11](https://www.youtube.com/watch?v=PKF0954tfxs&t=11s)** — And I think you'll like it and it's very effective.
+- **[00:14](https://www.youtube.com/watch?v=PKF0954tfxs&t=14s)** — So if you have post-nasal drip, chronic rhinitis or sinusitis or sinus pressure or
+- **[00:21](https://www.youtube.com/watch?v=PKF0954tfxs&t=21s)** — sinus headaches or cluster headaches or even sinus allergies, okay, this can apply to you.
+- **[00:28](https://www.youtube.com/watch?v=PKF0954tfxs&t=28s)** — An average person might do the steroids, they might do medication, which always creates more
+- **[00:33](https://www.youtube.com/watch?v=PKF0954tfxs&t=33s)** — side effects, or they might do the surgery and the complications from that are pretty huge.
+- **[00:38](https://www.youtube.com/watch?v=PKF0954tfxs&t=38s)** — But there's another thing you can do that is very powerful and you can either do it
+- **[00:44](https://www.youtube.com/watch?v=PKF0954tfxs&t=44s)** — as a nasal spray or you can consume this food. And I'm talking about like hot peppers,
+- **[00:52](https://www.youtube.com/watch?v=PKF0954tfxs&t=52s)** — like cayenne or other hot spicy peppers. Now, there's this thing called pepper spray,
+- **[00:59](https://www.youtube.com/watch?v=PKF0954tfxs&t=59s)** — which is kind of like a weapon against people and you spray it in their eyes.
+- **[01:04](https://www.youtube.com/watch?v=PKF0954tfxs&t=64s)** — We're not talking about that concentration. We're talking about a very, very diluted
+- **[01:09](https://www.youtube.com/watch?v=PKF0954tfxs&t=69s)** — cayenne pepper or it could be horseradish or other types of pepper in a spray that can
+- **[01:17](https://www.youtube.com/watch?v=PKF0954tfxs&t=77s)** — improve your sonesis. And I'm going to talk about this. The main phytonutrient in these
+- **[01:23](https://www.youtube.com/watch?v=PKF0954tfxs&t=83s)** — peppers that is doing all the magic is called capsaicin. You know, when you eat these hot
+- **[01:30](https://www.youtube.com/watch?v=PKF0954tfxs&t=90s)** — peppers, it's that phytonutrient that creates this hot sensation. It has nothing to do with
+- **[01:36](https://www.youtube.com/watch?v=PKF0954tfxs&t=96s)** — increasing the temperature. It's all a chemical signal that tells the brain that it's very
+- **[01:43](https://www.youtube.com/watch?v=PKF0954tfxs&t=103s)** — hot. And it's the plant's defense mechanism to get predators to not eat that plant.
+- **[01:50](https://www.youtube.com/watch?v=PKF0954tfxs&t=110s)** — And so there's different levels of hot. Okay. But what's interesting is that the tarantula
+- **[01:56](https://www.youtube.com/watch?v=PKF0954tfxs&t=116s)** — venom uses the same pathway. And so that would make sense because there are peppers
+- **[02:02](https://www.youtube.com/watch?v=PKF0954tfxs&t=122s)** — that are so hot that will literally like burn your mouth and can create a serious problem
+- **[02:09](https://www.youtube.com/watch?v=PKF0954tfxs&t=129s)** — your breathing and everything else. You're sweating and some people can tolerate them,
+- **[02:13](https://www.youtube.com/watch?v=PKF0954tfxs&t=133s)** — some people don't. But there's some great research on what capsaicin can do for your
+- **[02:21](https://www.youtube.com/watch?v=PKF0954tfxs&t=141s)** — sonesis. Other people get it as a cream and they put it on their body for pain and
+- **[02:25](https://www.youtube.com/watch?v=PKF0954tfxs&t=145s)** — arthritis and like rheumatoid or osteo or even gout. But there's actually nasal sprays that have
+- **[02:32](https://www.youtube.com/watch?v=PKF0954tfxs&t=152s)** — some cayenne pepper, very diluted or a concentrated extract giving you this capsaicin.
+- **[02:39](https://www.youtube.com/watch?v=PKF0954tfxs&t=159s)** — That you can spray into your sonesis. And so if you look at the research,
+- **[02:43](https://www.youtube.com/watch?v=PKF0954tfxs&t=163s)** — it can definitely help purge mucus from your sonesis. It will help drain off this mucus
+- **[02:50](https://www.youtube.com/watch?v=PKF0954tfxs&t=170s)** — versus some of the medications that suppress the mucus. This one kind of purges it out,
+- **[02:57](https://www.youtube.com/watch?v=PKF0954tfxs&t=177s)** — but it then reduces the nasal hyper reactivity. So you're going to find that your
+- **[03:03](https://www.youtube.com/watch?v=PKF0954tfxs&t=183s)** — mucus membranes are not reacting nearly as much as they were before to the environment,
+- **[03:09](https://www.youtube.com/watch?v=PKF0954tfxs&t=189s)** — whether it's an allergy or something else that's creating this mucus. So it can help
+- **[03:15](https://www.youtube.com/watch?v=PKF0954tfxs&t=195s)** — open the sonesis, drain the sonesis, and it can help desensitize the mucus membranes.
+- **[03:23](https://www.youtube.com/watch?v=PKF0954tfxs&t=203s)** — Okay, so they, like I said before, now they're not as sensitive. So that irritation,
+- **[03:29](https://www.youtube.com/watch?v=PKF0954tfxs&t=209s)** — that redness, that inflammation goes away. Not to mention having another property of
+- **[03:34](https://www.youtube.com/watch?v=PKF0954tfxs&t=214s)** — antimicrobial. So many people who have a chronic sinus problems, chronic rhinitis,
+- **[03:40](https://www.youtube.com/watch?v=PKF0954tfxs&t=220s)** — have like a fungus growing in their sinuses or even a bacterial infection.
+- **[03:45](https://www.youtube.com/watch?v=PKF0954tfxs&t=225s)** — Now you have a couple choices. You can use it as a nasal spray or you can start consuming
+- **[03:51](https://www.youtube.com/watch?v=PKF0954tfxs&t=231s)** — these peppers. Okay, and it will create a very similar effect. I tried an experiment long
+- **[03:57](https://www.youtube.com/watch?v=PKF0954tfxs&t=237s)** — ago, which I will never repeat. I actually drank 12 ounces of daikon radish juice. Okay.
+- **[04:05](https://www.youtube.com/watch?v=PKF0954tfxs&t=245s)** — And I had so much mucus drainage. I didn't even know that much mucus could be drained out of
+- **[04:12](https://www.youtube.com/watch?v=PKF0954tfxs&t=252s)** — your sinuses, but it just came out. And then I noticed about an hour later, boy, it just
+- **[04:17](https://www.youtube.com/watch?v=PKF0954tfxs&t=257s)** — dried right up. So radishes can be used too. They're pretty spicy. And any peppers that are
+- **[04:22](https://www.youtube.com/watch?v=PKF0954tfxs&t=262s)** — will do the trick. Now, sometimes when people consume these peppers,
+- **[04:28](https://www.youtube.com/watch?v=PKF0954tfxs&t=268s)** — it's so hot, they have to neutralize this, this hot burning in their mouth. So they start
+- **[04:32](https://www.youtube.com/watch?v=PKF0954tfxs&t=272s)** — drinking more water. Water is just going to intensify this hot sensation. Another remedy,
+- **[04:40](https://www.youtube.com/watch?v=PKF0954tfxs&t=280s)** — which is even better than milk, but milk will help neutralize it. Okay. Some people use ice
+- **[04:45](https://www.youtube.com/watch?v=PKF0954tfxs&t=285s)** — cream, but I recommend milk, but there's something even better than milk, because it's
+- **[04:51](https://www.youtube.com/watch?v=PKF0954tfxs&t=291s)** — casein, the milk protein that is the antidote. Okay. To this burning sensation in the receptors.
+- **[05:00](https://www.youtube.com/watch?v=PKF0954tfxs&t=300s)** — So what has the most casein? And the answer is cottage cheese. That's right. Cottage cheese
+- **[05:08](https://www.youtube.com/watch?v=PKF0954tfxs&t=308s)** — is just loaded with casein. But I wanted to give you another remedy that you can do. If
+- **[05:12](https://www.youtube.com/watch?v=PKF0954tfxs&t=312s)** — you have this chronic sinus problem, that's pretty easy and it's pretty highly effective.
+- **[05:17](https://www.youtube.com/watch?v=PKF0954tfxs&t=317s)** — I've done another video on mucus, not just in the sonuses, but mucus that can drain onto the
+- **[05:23](https://www.youtube.com/watch?v=PKF0954tfxs&t=323s)** — lungs. And that actually got a lot of views. If you haven't seen that, I put it up right here.
+- **[05:29](https://www.youtube.com/watch?v=PKF0954tfxs&t=329s)** — Check it out.
+
+
+---
+
+
+## Video 5: The Amazing Properties of Wormwood
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=jIvFURdGEVE](https://www.youtube.com/watch?v=jIvFURdGEVE)
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=jIvFURdGEVE&t=0s)** — So here we have this natural herb called wormwood or it's called artemisinin. Okay,
+- **[00:06](https://www.youtube.com/watch?v=jIvFURdGEVE&t=6s)** — now it's been used for well over 2,000 years as part of Chinese medicine. It's been very,
+- **[00:12](https://www.youtube.com/watch?v=jIvFURdGEVE&t=12s)** — very effective with a lot of different things. Antimicrobial, especially anti-malaria. But then
+- **[00:18](https://www.youtube.com/watch?v=jIvFURdGEVE&t=18s)** — they found a way to synthesize it and to make it synthetically. And then all of a sudden the
+- **[00:24](https://www.youtube.com/watch?v=jIvFURdGEVE&t=24s)** — effectiveness of this natural herb went way down as far as using the natural version.
+- **[00:29](https://www.youtube.com/watch?v=jIvFURdGEVE&t=29s)** — They'll say that it's not very bioavailable, expensive, it doesn't work as good as a drug,
+- **[00:34](https://www.youtube.com/watch?v=jIvFURdGEVE&t=34s)** — which it may not work as good as a drug, but it's been used for over 2,000 years.
+- **[00:41](https://www.youtube.com/watch?v=jIvFURdGEVE&t=41s)** — So it's stood the test of time. And today I want to talk about how amazing this plant is.
+- **[00:46](https://www.youtube.com/watch?v=jIvFURdGEVE&t=46s)** — And if you're going to grow your own natural pharmacy, this is definitely one to put on the
+- **[00:50](https://www.youtube.com/watch?v=jIvFURdGEVE&t=50s)** — list to grow. But right now the synthetic version is the most effective treatment for
+- **[00:55](https://www.youtube.com/watch?v=jIvFURdGEVE&t=55s)** — Apparently it can actually stop the different stages of this malarial parasite. But Wormwood
+- **[01:02](https://www.youtube.com/watch?v=jIvFURdGEVE&t=62s)** — is very effective for worms. It's good for viruses, anti-viral, bacteria. And there's some
+- **[01:10](https://www.youtube.com/watch?v=jIvFURdGEVE&t=70s)** — interesting research, which I'll put down below on what it can do for COVID. And it's a
+- **[01:15](https://www.youtube.com/watch?v=jIvFURdGEVE&t=75s)** — pretty potent anti-lime. You know, this little parasitic spiral kite that you can get from
+- **[01:20](https://www.youtube.com/watch?v=jIvFURdGEVE&t=80s)** — a tick bite. But today I'm going to talk a little bit more about its potent effectiveness
+- **[01:26](https://www.youtube.com/watch?v=jIvFURdGEVE&t=86s)** — for cancer. And I don't know why, but a lot of these remedies for worms and parasites,
+- **[01:33](https://www.youtube.com/watch?v=jIvFURdGEVE&t=93s)** — and even viruses, also tend to parallel for cancer. And Wormwood is at the top of the list
+- **[01:40](https://www.youtube.com/watch?v=jIvFURdGEVE&t=100s)** — because it does some really interesting things in relationship to cancer. The first thing that
+- **[01:44](https://www.youtube.com/watch?v=jIvFURdGEVE&t=104s)** — I want to talk about is in its ability to selectively cause something called apoptosis
+- **[01:52](https://www.youtube.com/watch?v=jIvFURdGEVE&t=112s)** — to the cancer cells. Now, first of all, the word selectively, that means that it targets the
+- **[01:57](https://www.youtube.com/watch?v=jIvFURdGEVE&t=117s)** — cancer cells, not your own cells. That's pretty cool. And now what does this apoptosis mean?
+- **[02:04](https://www.youtube.com/watch?v=jIvFURdGEVE&t=124s)** — That means that the cell commits suicide. Okay, it kills itself. And so Wormwood has the
+- **[02:11](https://www.youtube.com/watch?v=jIvFURdGEVE&t=131s)** — cause the cancer cell commits suicide because normally it doesn't do that. It lives forever.
+- **[02:17](https://www.youtube.com/watch?v=jIvFURdGEVE&t=137s)** — It has a limited lifespan. But Wormwood can actually cause apoptosis in cancer cells,
+- **[02:22](https://www.youtube.com/watch?v=jIvFURdGEVE&t=142s)** — both in the lab and a little petri dish, as well as in animal studies. Now, it's studying
+- **[02:28](https://www.youtube.com/watch?v=jIvFURdGEVE&t=148s)** — different mechanisms of how it actually can deal with cancer. And I want to talk about it
+- **[02:38](https://www.youtube.com/watch?v=jIvFURdGEVE&t=158s)** — It'll take a little bit of your own iron from your red blood cell and cause that iron to
+- **[02:47](https://www.youtube.com/watch?v=jIvFURdGEVE&t=167s)** — oxidize, turning it into a free radical and directing it to the cancer cell itself.
+- **[02:53](https://www.youtube.com/watch?v=jIvFURdGEVE&t=173s)** — Now, this is another mechanism of how it can kill a parasite or a worm. It's through this
+- **[02:58](https://www.youtube.com/watch?v=jIvFURdGEVE&t=178s)** — iron oxidation effect. When iron tends to go into that oxidation form, it's very toxic to
+- **[03:06](https://www.youtube.com/watch?v=jIvFURdGEVE&t=186s)** — cells, especially cancer cells. Now, the other thing that it can do... and before I get into
+- **[03:13](https://www.youtube.com/watch?v=jIvFURdGEVE&t=193s)** — that, I want to just explain one thing about cancer. Cancer cells come from normal cells.
+- **[03:19](https://www.youtube.com/watch?v=jIvFURdGEVE&t=199s)** — So a normal cell can switch over to a cancer cell when there's damage to the mitochondria.
+- **[03:27](https://www.youtube.com/watch?v=jIvFURdGEVE&t=207s)** — There's this protein complex called HIF. And without getting too technical, it's this factor
+- **[03:37](https://www.youtube.com/watch?v=jIvFURdGEVE&t=217s)** — that involves hypoxia. Hypoxia is a lack of oxygen. So apparently it's this factor,
+- **[03:43](https://www.youtube.com/watch?v=jIvFURdGEVE&t=223s)** — or this protein complex, that triggers this switch from a normal cell to a cancer cell.
+- **[03:50](https://www.youtube.com/watch?v=jIvFURdGEVE&t=230s)** — So anything that can inhibit this switching, I think, would be important when dealing with
+- **[03:55](https://www.youtube.com/watch?v=jIvFURdGEVE&t=235s)** — cancer. Especially if you have cancer and you want to avoid more of the normal cells
+- **[04:00](https://www.youtube.com/watch?v=jIvFURdGEVE&t=240s)** — converting over to cancer. So it just so happens that the phytonutrients and wormwood
+- **[04:05](https://www.youtube.com/watch?v=jIvFURdGEVE&t=245s)** — have the ability to inhibit this protein complex. And it's also interesting that hypoxia
+- **[04:12](https://www.youtube.com/watch?v=jIvFURdGEVE&t=252s)** — is involved, which explains a lot. Because inflammation, for example, is one trigger.
+- **[04:17](https://www.youtube.com/watch?v=jIvFURdGEVE&t=257s)** — Because when you have inflammation, you have less oxygen. But apparently there's other things
+- **[04:21](https://www.youtube.com/watch?v=jIvFURdGEVE&t=261s)** — that can trigger cancer that go beyond just hypoxia. But the cool thing is that wormwood
+- **[04:27](https://www.youtube.com/watch?v=jIvFURdGEVE&t=267s)** — has the ability to inhibit this compound. Also, wormwood has another mechanism of inhibiting
+- **[04:37](https://www.youtube.com/watch?v=jIvFURdGEVE&t=277s)** — the normal cells from producing this increase in blood vessels to the tumor. So one thing that
+- **[04:45](https://www.youtube.com/watch?v=jIvFURdGEVE&t=285s)** — cancer does is it recruits blood supply from your normal cells. And it causes your normal
+- **[04:52](https://www.youtube.com/watch?v=jIvFURdGEVE&t=292s)** — cells to produce blood vessels into the tumor. So this is just one little trick that these
+- **[04:58](https://www.youtube.com/watch?v=jIvFURdGEVE&t=298s)** — cancer cells do. Well, wormwood is anti-angiogenic. So it can help diminish that mechanism.
+- **[05:06](https://www.youtube.com/watch?v=jIvFURdGEVE&t=306s)** — Now, wormwood is also highly anti-inflammatory. So just by addressing inflammation, you can
+- **[05:13](https://www.youtube.com/watch?v=jIvFURdGEVE&t=313s)** — stop the spread of cancer as well as the formation of cancer too. Especially
+- **[05:18](https://www.youtube.com/watch?v=jIvFURdGEVE&t=318s)** — since there's this link between inflammation and cancer. And some people are using wormwood for
+- **[05:23](https://www.youtube.com/watch?v=jIvFURdGEVE&t=323s)** — autoimmune because autoimmune is an inflammatory problem. And the last thing involving cancer
+- **[05:29](https://www.youtube.com/watch?v=jIvFURdGEVE&t=329s)** — that wormwood can help a person with, it has an anti-menostatic effect. Which basically means
+- **[05:36](https://www.youtube.com/watch?v=jIvFURdGEVE&t=336s)** — it inhibits the growth of cancer, which is pretty cool. But anyway, I just wanted to share
+- **[05:41](https://www.youtube.com/watch?v=jIvFURdGEVE&t=341s)** — some of the interesting effects of this plant that anyone can actually grow in their garden
+- **[05:45](https://www.youtube.com/watch?v=jIvFURdGEVE&t=345s)** — or their greenhouse and the amazing properties it might have in potentially helping you.
+- **[05:52](https://www.youtube.com/watch?v=jIvFURdGEVE&t=352s)** — Now, since we're on the topic of natural remedies, if you haven't seen my video on garlic,
+- **[05:57](https://www.youtube.com/watch?v=jIvFURdGEVE&t=357s)** — that's pretty cool. I put it up right here. Check it out.
+
+
+---
+

@@ -1,3 +1,0 @@
-# Are dates keto-friendly?
-
-More and more of these sweet fruits and sweet things you see them in certain keto plans. And unfortunately now it's so many other even synthetic carbohydrates and stuff that are being put in to these so-called healthy keto friendly meals.Dates even though it's natural. It just has a lot of sugar. It has the vitamins and minerals but it has a lot of sugar. It's definitely not keto friendly.

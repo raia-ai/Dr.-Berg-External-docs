@@ -1,3 +1,0 @@
-# Do healthy individuals require dietary supplements?
-
-Certainly! Achieving optimal health often requires more than just avoiding medications and managing weight. Even if you feel healthy, it's challenging to get all necessary nutrients from food due to depleted soils in the US. This can lead to deficiencies that affect energy levels, inflammation, digestion, adrenal function, and sleep. Supplements can bridge these gaps, especially crucial for detoxification and providing nutrients not adequately supplied by diet alone. I've developed supplements specifically to address these needs and support overall health where it may be weakest due to individual histories and dietary limitations.

@@ -1,3 +1,0 @@
-# Why can’t I tolerate apple cider vinegar or lemons?
-
-With apple cider vinegar, it could mean that you have gastritis or your pH is maybe a little too acidic. Some people just don't like apple cider vinegar but I will say if you do have an ulcer or gastritis apple cider vinegar is not going to be good for you and lemon might irritate you as well. What I would suggest that you do is avoid apple cider vinegar. The great majority of people do very well with apple cider vinegar but some people don't like it.

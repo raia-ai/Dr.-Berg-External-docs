@@ -1,3 +1,0 @@
-# What is the 10-3-2-1-0 rule for improving sleep, and how can it be applied to enhance sleep quality and overall restfulness?
-
-The 10-3-2-1-0 rule is a simple guideline designed to promote better sleeping habits: no caffeine within ten hours before bed; no food or alcohol three hours before bedtime; exercise at least two hours prior; limit screen time to one hour before bed; establish zero interruptions during sleep.

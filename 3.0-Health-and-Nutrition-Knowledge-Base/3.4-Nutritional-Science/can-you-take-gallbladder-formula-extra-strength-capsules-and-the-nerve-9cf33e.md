@@ -1,3 +1,0 @@
-# Can you take Gallbladder Formula Extra Strength capsules and the Nerve Support with Benfotiamine together?
-
-You can take Gallbladder Formula Extra Strength capsules and Nerve Support with Benfotiamine together. Both supplements are designed to support different aspects of your health. The Gallbladder Formula focuses on supporting gallbladder health and aiding digestion. At the same time, the Nerve Support with Benfotiamine aims to support nerve health. There is no indication that these two supplements interact negatively with each other. However, it's always a good practice to consult with a healthcare professional before starting any new supplement regimen, especially if you have pre-existing medical conditions or are taking other medications.

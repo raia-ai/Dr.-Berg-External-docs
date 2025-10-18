@@ -1,3 +1,0 @@
-# What are some unexpected signs of Vitamin D deficiency?
-
-Vitamin D deficiency can lead to a wide range of issues, from bone problems and lowered immunity to unexpected symptoms like nightmares, acne, and breathing difficulties. Testing your levels with a doctor is crucial to addressing any deficiency and finding the right supplements or treatment. Always ensure you take vitamin K2 alongside vitamin D3 supplements for optimal health benefits.

@@ -1,5 +1,0 @@
-# Can I do keto if I have an allergy to nutritional yeast and nuts?
-
-For individuals with allergies to nutritional yeast and nuts, it is still possible to pursue a ketogenic diet, though careful consideration of food choices is necessary. For those looking to increase their intake of vitamin B1, sunflower seeds may serve as a suitable alternative, provided there are no allergies to them.
-
-While some individuals experience sensitivities to nuts, soaking them in water for 24 hours and subsequently drying them in an oven or dehydrator may help reduce enzyme inhibitors, potentially enhancing their digestibility. However, for those who cannot consume nutritional yeast, this does limit their options for obtaining certain nutrients. It is advisable to consult with a healthcare professional or a registered dietitian to tailor a ketogenic plan that accommodates dietary restrictions while ensuring adequate nutrient intake.

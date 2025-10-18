@@ -1,9 +1,0 @@
-# Is calcium supplementation considered an essential component in the management and prevention of osteoporosis and osteopenia?
-
-**Calcium supplementation carries risks, especially for those with osteoporosis or osteopenia.** While calcium is essential for bone health, research suggests excess calcium intake (especially from supplements) can increase the risk of heart attacks and strokes. One notable study found that people taking over 1400 mg of calcium daily had a significantly higher risk of heart attack. Additionally, calcification in arteries is a common issue, and excess calcium does not automatically strengthen bones.
-
-The body maintains a delicate calcium balance. Too much intracellular calcium can lead to cell death. This highlights the importance of regulating calcium levels rather than simply increasing intake.
-
-**Vitamin C** may offer a safer alternative for supporting bone health. Studies suggest that higher doses of vitamin C (at least 6000 mg daily) could improve bone density. Vitamin C may help suppress osteoclasts (cells that break down bone) and promote calcium absorption into bones.
-
-This information and video is for general informational purposes only. It should not be used to self-diagnose, and it is not a substitute for a medical exam, cure, treatment, diagnosis, prescription, or recommendation. It does not create a doctor-patient relationship between Dr. Berg and you. You should not make any change in your health regimen or diet before first consulting a physician and obtaining a medical exam, diagnosis, and recommendation. Always seek the advice of a physician or other qualified health provider with any questions you may have regarding a medical condition.

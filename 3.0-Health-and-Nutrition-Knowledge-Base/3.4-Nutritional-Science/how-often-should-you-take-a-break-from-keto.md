@@ -1,5 +1,0 @@
-# How often should you take a break from keto?
-
-Healthy Keto® with intermittent fasting will work while you do it, but the benefits will stop if you stop. You might see some awesome keto diet results, or intermittent fasting results, and think it’s okay to stop. But the long-term effects of keto are so beneficial, you really don’t want to stop or take a break.
-
-The purpose of doing the ketogenic diet and intermittent fasting is so much more than just weight loss. Doing keto long-term is a way of eating to minimize health problems. You will eventually build up your health reserve and you will be able to go off of the program here and there. But, there are no phases of the ketogenic diet. After you reach your keto weight-loss goal, instead of adding in carbs, you can add in more calories and more fat.

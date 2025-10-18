@@ -1,3 +1,0 @@
-# Does the Betaine HCL in the Advanced Digestive Enzymes supplement render the enzymes to become inactive and if not, what in the formula ensures the enzymes will not become inactive?
-
-Betaine HCL is an enzyme itself and does not render other enzymes inactive. I am not sure why that is being asked. Betaine HCL helps the body release bile to break down fats and even helps the pancrease release enzymes to help break down food.

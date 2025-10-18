@@ -1,3 +1,0 @@
-# Is the folate in the Natural Prenatal Vitamins MTHFR compatible?
-
-Yes, the folate used in the Natural Prenatal Vitamins are MTHFR compatible. We use calcium 5-methyltetrahydrofolate (5-Me-THF), an active form of folate unlike folic acid, the inactive form the MTHFR gene enzymes cannot convert to the active form of folate. Studies have found that 5-Me-THF can enter the folate cycle directly without needing MTHFR gene enzymes.

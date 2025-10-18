@@ -1,3 +1,0 @@
-# Should I take a separate magnesium supplement in addition to the magnesium included in the D3/K2 formula?
-
-The magnesium included in the D3 & K2 formula is specifically there to support the activation of vitamin D3. It is largely utilized during the conversion and metabolic processes required for D3 to function effectively in the body. With that, the magnesium present in this product is not intended to contribute meaningfully to daily magnesium intake and should not be counted toward overall magnesium requirements.

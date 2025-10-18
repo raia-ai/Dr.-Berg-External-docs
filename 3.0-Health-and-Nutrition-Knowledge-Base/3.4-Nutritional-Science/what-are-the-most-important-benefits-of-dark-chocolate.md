@@ -1,5 +1,0 @@
-# What are the most important benefits of dark chocolate?
-
-Cacao is the raw bean that’s fermented and processed into chocolate. Cacao and dark chocolate are both loaded with phytonutrients (polyphenols and flavonols). They actually have higher amounts than blueberries or açaí berries. There is a small amount of caffeine in cacao and dark chocolate, as well as a good amount of theobromine (a stimulant). So, if you have cacao or dark chocolate later in the day or before bed, it may keep you up.
-
-I consume a little bit of chocolate on a regular basis, but I always consume chocolate that is organic and doesn’t contain sugar. A few brands I like are Lily’s Sweets and Choc Zero. Cacao and dark chocolate are high in oxalates. So, if you’re at risk for kidney stones, you may not want to consume either one.

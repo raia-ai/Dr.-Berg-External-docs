@@ -1,3 +1,0 @@
-# Is it advisable to take niacin and TUDCA together, and what are the potential benefits or interactions between these two supplements?
-
-Niacin and TUDCA should only be taken together if there is a specific concern. TUDCA, a bile salt containing choline, aids digestion and breaks down cholesterol. If you follow a healthy ketogenic diet with low carbs and intermittent fasting, you typically don't need to worry about cholesterol. Issues arise when the diet is not followed strictly, or if carbohydrates are still being consumed.

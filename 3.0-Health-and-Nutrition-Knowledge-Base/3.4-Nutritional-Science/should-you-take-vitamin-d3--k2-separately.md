@@ -1,3 +1,0 @@
-# Should you take vitamin D3 & K2 separately?
-
-Dr. Berg believes that Vitamin D3 & K2 can be taken together safely and effectively. In fact, he often recommends taking them together as they work synergistically to support various body functions. Including bone health, cardiovascular health, and immune function. If you have information from another source to take them separately please provide us with the scientific documents to support this. We will gladly share that with Dr. Berg.

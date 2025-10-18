@@ -1,3 +1,0 @@
-# What is the worst food for my teeth?
-
-Citric acid, whether natural or synthetic, poses a threat to dental health by binding with calcium in teeth, weakening enamel, and creating an acidic environment. Minimize exposure by rinsing with water after consuming citric acid-containing foods, opting for products without added citric acid, and using toothpaste free from this ingredient. Prioritize smart food choices to protect your smile!

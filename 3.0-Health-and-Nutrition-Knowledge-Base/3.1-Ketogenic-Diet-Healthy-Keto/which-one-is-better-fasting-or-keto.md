@@ -1,3 +1,0 @@
-# Which one is better: fasting or keto?
-
-Initially, when you compare fasting and keto, you can see that fasting has a more powerful impact on your health than just ketosis. However, it’s best to combine fasting and keto together to enhance the benefits of both. Doing one will actually help the other. Combining the two will make doing both keto and fasting easier. It will also help you reach your health and weight-loss goals much faster.

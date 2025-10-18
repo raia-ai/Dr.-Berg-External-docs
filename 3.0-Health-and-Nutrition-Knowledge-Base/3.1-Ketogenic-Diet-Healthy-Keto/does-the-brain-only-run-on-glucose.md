@@ -1,5 +1,0 @@
-# Does the brain only run on glucose?
-
-People often have an idea that your body — especially your brain — can only run on glucose. But that’s not true! You can run your body on ketones, which provide about forty to seventy percent of the energy you need. Of course, the question becomes, what kind of fuel makes up the difference?There will always be a small amount of glucose, but your body can run on fatty acids. Fat turns into ketones and fatty acids.
-
-Your brain is a little different; it can use ketones for seventy percent of its fuel, with the rest coming from lactate or glucose. Where will you get the glucose if you don’t want to eat carbohydrates? Your body makes its own in a process called gluconeogenesis. Your body uses fat and protein to make glucose. Certain amino acids in protein turn into glucose, as does a component of fat which breaks down into glycerol, then converts to glucose. Your body can easily get the glucose it needs from fat and protein. You don’t need carbohydrates to supply glucose.

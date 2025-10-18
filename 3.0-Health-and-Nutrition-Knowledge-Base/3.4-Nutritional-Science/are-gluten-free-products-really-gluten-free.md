@@ -1,7 +1,0 @@
-# Are gluten-free products really gluten-free?
-
-Gluten is the only protein that humans can not digest. Over the years, we’ve added more and more gluten to the diet, which has increased gut inflammation. Just because a food is gluten-free does not make it healthy! Processed gluten-free foods are loaded with seed oils, sugars, and starches. Gluten can destroy the gut, but so can refined starches and sugars. Good bacteria prefer fiber, but bad bacteria thrive on sugar and starches. Consuming processed gluten-free foods can create an overgrowth of harmful bacteria.
-
-When bad bacteria breaks down and dies, it releases a toxic byproduct that can lead to inflammation in the liver, a fatty liver, and skin issues like dermatitis. Chemicals, enzymes, and acids are used to remove the gluten from the grain in processed gluten-free foods, creating a more highly refined product.
-
-Gluten-free foods are low in protein, which can lead to over-eating. They can also cause SIBO, inflammation, and leaky gut. Gut health directly contributes to your mental health, so this can lead to moodiness, lowered emotions, anxiety, and depression. Read the ingredients in gluten-free products or focus on consuming whole foods like meat and vegetables. If the fiber from vegetables makes things worse, try the carnivore diet for some time.

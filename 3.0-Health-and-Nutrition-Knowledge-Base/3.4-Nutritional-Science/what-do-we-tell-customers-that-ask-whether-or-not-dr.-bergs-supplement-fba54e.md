@@ -1,3 +1,0 @@
-# What do we tell customers that ask whether or not Dr. Berg's supplements will cure or heal a condition?
-
-If a customer asks you about cures for diseases or illnesses, politely explain to them that by the government's own rules, we do not allowed to diagnose diseases or tell them anything about treatment for disease, but what we can say is that we do have x product that supports (read product benefits directly from the label or approved information source). You can tell them that they may introduce this if they consult with their primary doctor and see how it goes for them

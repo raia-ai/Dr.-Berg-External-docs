@@ -1,3 +1,0 @@
-# What is Dr. Berg's opinion on dairy?
-
-Dr. Berg has reservations about dairy, particularly due to the protein casein, which may have growth-promoting properties, especially if sourced from cows potentially treated with hormones. Similarly, whey protein, popular among bodybuilders, also has growth-promoting effects that could be a concern. However, Dr. Berg suggests that consuming moderate amounts of high-quality dairy, such as cheese from healthy, pasture-raised cows, can be acceptable. The key is to choose dairy from trusted sources and consume it in moderation.

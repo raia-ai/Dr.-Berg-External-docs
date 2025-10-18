@@ -1,3 +1,0 @@
-# How long does it take to reset your liver after alcohol consumption?
-
-A relatively healthy liver can be restored within a few days after abstaining from alcohol. However, individuals with a damaged or inflamed liver may require significantly longer periods of abstinence from alcohol to restore liver function and may benefit from consuming liver-cleansing foods, including broccoli sprouts, spirulina, and green leafy vegetables.

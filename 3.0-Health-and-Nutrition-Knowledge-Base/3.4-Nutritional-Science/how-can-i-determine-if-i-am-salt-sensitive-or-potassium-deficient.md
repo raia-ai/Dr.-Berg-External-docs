@@ -1,5 +1,0 @@
-# How can I determine if I am salt sensitive or potassium deficient?
-
-People that are salt sensitive are usually told to stay away from sodium. But did you know that we need 1000mg of sodium and 4700mg of potassium RDA? If you are deficient in sodium, you experience headaches, fatigue, lethargy, nausea, and weak muscles. Sodium and potassium work together. Instead of accepting the diagnosis that you need to cut down your salt, try to increase your potassium intake to 4700mg daily. This will especially help with high blood pressure. Increase your potassium by taking supplements, but it's best to eat 7-10 cups of vegetables.
-
- [See Video/Image/Document](https://hls-player.drberg.com/asset?path=migrated-assets/are-you-salt-sensitive-or-potassium-deficient-drberg-on-hyponatremia-and-hypokalemia)

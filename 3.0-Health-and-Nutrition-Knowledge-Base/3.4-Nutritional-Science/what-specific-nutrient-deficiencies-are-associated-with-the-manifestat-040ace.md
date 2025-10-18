@@ -1,3 +1,0 @@
-# What specific nutrient deficiencies are associated with the manifestation of dry skin?
-
-Dry skin is often indicative of an essential fatty acid deficiency, particularly in omega-3 fatty acids. While deficiencies in omega-6 are uncommon, a significant portion of the population lacks adequate omega-3 intake. To mitigate this issue, it is advisable to enhance your diet with omega-3-rich foods, such as fish oils, sardines, salmon, walnuts, chia seeds, and algae like blue-green algae and seaweed. These sources offer both direct and precursor forms of omega-3 fatty acids, which are vital for maintaining optimal skin health.

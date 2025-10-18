@@ -1,3 +1,0 @@
-# Are avocados healthy?
-
-Yes, avocados are exceptionally healthy. Their unique nutritional profile provides significant amounts of healthy fats and essential nutrients, including vitamins, minerals, fiber, antioxidants, and cancer-fighting defensin. The many health benefits of avocados are hard to ignore. Consuming avocados regularly helps to achieve and maintain a healthy weight, supports optimal nutrient levels, and lowers the risk of microbial infections.

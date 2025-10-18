@@ -1,3 +1,0 @@
-# What are Dr. Berg's thoughts on the consumption of buffalo milk?
-
-The real important thing, way more important than that is if it's raw versus pasteurized because the pasteurization we have a calf that was just born from a cow that was just too small and there is a lot of problems. In fact, to the point where the mother is not feeding the calf. We have to bottle feed it. I've done some research on the pasteurization of milk, even in calves versus raw milk. A huge difference in organs, like the color of your organs, the health of your body. If you're going to do milk, I would definitely go raw. I would, I prefer to have some raw milk in a fermented product like cheese, raw cheese, maybe kefir. \]

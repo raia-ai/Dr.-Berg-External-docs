@@ -1,5 +1,0 @@
-# Does keto cause headaches?
-
-The phrenic nerve goes underneath the diaphragm on the right and left sides and it extends all the way up to the neck and head. On the right side, the phrenic nerve is very close to the gallbladder. If there is any type of congestion with the gallbladder, or bloating, it will put pressure on that nerve. So, if you have a headache on the right side of your head or neck pain on the right side, it could be related to the gallbladder.
-
-When you’re on a ketogenic diet, you’re going to be consuming more fats. When you consume more fats, your body has to adapt to digesting them. You have to have enough bile for the process of digesting the fats. So your gallbladder could be a little overloaded – causing a headache. But it usually goes away pretty fast as your body adjusts to the fat-burning.

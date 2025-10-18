@@ -1,3 +1,0 @@
-# False Advertisement
-
-Dr. Berg only endorses his Dr. Berg Nutritionals products available through shop.drberg.com, the official Dr. Berg Nutritional Amazon store, his official Walmart.com store, and authorized international resellers. If you encounter an advertisement featuring Dr. Berg's image or voice promoting products other than his own, it constitutes an unauthorized use of his likeness. Please provide us with a link or screenshot of the advertisement along with the name of the company, so we can take action to have it removed.

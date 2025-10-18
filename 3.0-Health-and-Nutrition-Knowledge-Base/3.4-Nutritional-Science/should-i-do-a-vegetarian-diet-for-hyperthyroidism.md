@@ -1,3 +1,0 @@
-# Should I do a vegetarian diet for hyperthyroidism?
-
-For hyperthyroidism, it's crucial to avoid iodine, as it can exacerbate the condition. While iodine may help with thyroid nodules in some cases, it’s not recommended for hyperthyroidism. Instead, consider foods that naturally block iodine absorption, such as cruciferous vegetables. Also, avoid supplements containing bile salts, like Gallbladder Formula, as they can stimulate the thyroid. Incorporating natural vitamin B1 (thiamine) at a higher dosage than standard recommendations may also be beneficial in managing hyperthyroidism.

@@ -1,3 +1,0 @@
-# Who should avoid taking vitamin K2 supplements, and what specific health conditions or medications may contraindicate its use due to potential interactions or adverse effects?
-
-Individuals with blood clotting disorders, kidney disease, or poor liver health and those taking blood thinning medication or anti-seizure drugs should consult a healthcare professional before taking vitamin K2 supplements to minimize the risk of side effects.

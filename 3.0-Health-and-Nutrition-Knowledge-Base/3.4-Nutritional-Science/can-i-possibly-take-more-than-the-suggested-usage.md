@@ -1,5 +1,0 @@
-# Can I possibly take more than the suggested usage?
-
-At Dr. Berg Nutritionals, we kindly advise following the suggested usage instructions provided on our products. This usage has been deemed safe and effective for general health. If you are considering using the product in a manner not specified, we encourage you to do so under the guidance of a medical professional for your safety and well-being.
-
-We acknowledge and appreciate Dr. Berg's commitment to providing valuable educational insights about the use of our products, even beyond the suggested usage listed on the bottle. It's important to note that while this information may suggest potential therapeutic benefits, our supplements are designed to support general health. We encourage you to adhere to the suggested usage for optimal well-being. If you are considering the therapeutic use of Dr. Berg's products, we advise you to do so under medical supervision to ensure it aligns with your health needs. Your health and safety are our top priorities.

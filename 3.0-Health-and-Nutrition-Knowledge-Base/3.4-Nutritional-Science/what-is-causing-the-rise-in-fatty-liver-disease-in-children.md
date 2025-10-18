@@ -1,3 +1,0 @@
-# What is causing the rise in fatty liver disease in children?
-
-The rise in fatty liver disease in children is primarily attributed to excessive consumption of sugars, including high-fructose corn syrup and maltodextrin, found in ultra-processed foods. Shockingly, 67% of children's calorie intake comes from ultra-processed foods, which are heavily processed and often referred to as junk food. This category includes sweetened cereals, even those marketed as healthy whole grain options, contributing significantly to the problem.

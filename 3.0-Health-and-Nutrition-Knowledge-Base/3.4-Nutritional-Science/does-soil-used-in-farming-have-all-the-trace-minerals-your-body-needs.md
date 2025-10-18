@@ -1,3 +1,0 @@
-# Does soil used in farming have all the trace minerals your body needs?
-
-Modern farming practices can lead to nutrient depletion in the soil. Often, farmers replenish only a few major minerals, neglecting trace minerals. Consequently, if the soil lacks trace minerals, the plants grown in it will also be deficient. This deficiency carries up the food chain to animals that consume these plants and ultimately to humans who eat these crops and animal products. Therefore, unless one regularly consumes sources like oysters, shellfish, and seafood, it is common to be deficient in trace minerals due to depleted soil.

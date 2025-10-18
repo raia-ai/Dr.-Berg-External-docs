@@ -1,3 +1,0 @@
-# What food is good for cleaning mucus and phlegm from lungs?
-
-Common treatments for phlegm or mucus either suppress or pull mucus out. Anytime you suppress mucus, you may end up having the infection longer and weaken your immune system. Typical treatments also come with potential side effects. Keep in mind that it’s important to exercise your lungs if you're dealing with phlegm. You can do this by alternating breathing through your nose using your chest and breathing through your nose using your stomach. Radishes are one of the best foods to get rid of phlegm—if you can, try adding them to your diet.

@@ -1,3 +1,0 @@
-# What strategies can be implemented to maintain normal blood sugar levels without consuming added sugars, and how do lifestyle choices play a role in this process?
-
-Certain parts of the brain run on glucose but that glucose can be made from dietary fat. Glycerol, a part of Triglycerides, can be converted to glucose and that’s what the brain can run on. This means we don’t need external glucose because our body can make it if it needs it.

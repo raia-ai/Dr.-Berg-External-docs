@@ -1,3 +1,0 @@
-# Does Magnesium Glycinate affect stomach acidity levels?
-
-Magnesium glycinate is a chelated form of magnesium, meaning the mineral is bound to the amino acid glycine. This bond makes it gentler on the stomach compared to other forms, such as magnesium oxide or carbonate, which can neutralize stomach acid due to their more alkaline nature. Magnesium glycinate is not alkaline enough to significantly neutralize or alter gastric pH.

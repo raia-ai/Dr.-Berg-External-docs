@@ -1,3 +1,0 @@
-# Will nutritional yeast break a fast?
-
-Nutritional yeast will not break a fast as it contains minimal calories and no sugar. It provides amino acids, trace minerals, and B vitamins. In the morning, I often chew three or four nutritional yeast tablets, which, while not the easiest to chew, make me feel good. You can also use the powdered form on salads for a nutty flavor. Nutritional yeast is an excellent source of B vitamins and won't interfere with fasting.

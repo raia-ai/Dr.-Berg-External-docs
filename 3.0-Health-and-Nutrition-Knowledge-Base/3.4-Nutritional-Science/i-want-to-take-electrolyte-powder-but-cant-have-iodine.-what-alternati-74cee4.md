@@ -1,3 +1,0 @@
-# I want to take electrolyte powder but can’t have iodine. What alternatives would you suggest?
-
-To address this issue, consider incorporating foods that may inhibit iodine absorption, such as cruciferous vegetables. Additionally, there has been some promising evidence supporting the use of natural vitamin B1 for managing Graves' disease. It could be beneficial to explore these options further as part of your dietary strategy.

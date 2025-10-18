@@ -1,3 +1,0 @@
-# Can my intermittent fasting window be flexible?
-
-Yes, your intermittent fasting window can be flexible. It's beneficial to adjust it and see what works best for you. For instance, you might try shifting your eating times—perhaps starting with a first meal earlier in the day and finishing with a second meal by mid-afternoon. Experimenting with different schedules can help you find the optimal routine.

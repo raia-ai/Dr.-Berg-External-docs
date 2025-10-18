@@ -1,3 +1,0 @@
-# What could cause heart palpitations while fasting?
-
-Heart palpitations during fasting may be caused by deficiencies in key nutrients, particularly potassium and vitamin B1. These water-soluble nutrients are not stored in the body for long periods and can become depleted, leading to elevated pulse rates. To address this, consider supplementing with electrolytes containing potassium and B vitamins. This approach should help mitigate the issue effectively.

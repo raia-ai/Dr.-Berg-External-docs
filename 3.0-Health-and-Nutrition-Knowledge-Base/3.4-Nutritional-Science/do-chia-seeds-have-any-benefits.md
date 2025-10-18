@@ -1,5 +1,0 @@
-# Do chia seeds have any benefits?
-
-Chia seeds have also been compared to eggs. An egg contains around 7 grams of protein, while chia seeds contain 4 grams. The protein found in eggs is the most bioavailable form of protein. Chia seeds contain vitamin E, vitamin C, B vitamins, calcium, phosphorus, potassium, and magnesium. Research suggests that chia seeds are cardioprotective, help lower blood pressure, benefit your brain, and can even help thin your blood. Chia seeds contain soluble fiber, which is the most significant benefit of consuming them.
-
-The gel that forms when you mix chia seeds with liquid is an excellent food for your microbiome. Chia seeds can help with gut inflammation and constipation. They’re also very low in lectins. Chia seed gel contains polyphenols—plant chemicals that benefit your microbes. A healthy microbiome supports your mood, energy levels, and overall health. Consume chia seeds, fermented vegetables, sauerkraut, pickles, and kimchi regularly for a healthy microbiome.

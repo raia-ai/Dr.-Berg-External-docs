@@ -1,3 +1,0 @@
-# What can I do for sweet taste in mouth?
-
-For many symptoms, the underlying issue is often rooted in poor dietary habits. Without a proper diet, remedies may prove ineffective, as they typically address symptoms rather than the root cause. Inadequate nutrition can both mask and exacerbate a variety of symptoms. Therefore, the key is to first establish a healthy diet. Once foundational eating habits are corrected, many symptoms may resolve on their own, making it easier to address any remaining issues.

@@ -1,3 +1,0 @@
-# Why do we state proprietary ingredients on our labels?
-
-A proprietary blend is a mixture of ingredients in dietary supplements or other products where the individual amounts of each ingredient are not disclosed. We use proprietary blends solely to prevent competitors from copying our formula by keeping ingredient ratios confidential. We used to not have them, but copycat companies were stealing our formulations to create their own product.

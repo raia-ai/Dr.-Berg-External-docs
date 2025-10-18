@@ -1,3 +1,0 @@
-# Is the B12 (Cobalamin) Adenosylcobalamin, Cyanocobalamin, Hydroxocobalamin or Methylcobalamin in the Natural B1+?
-
-The B12 (Cobalamin) in our Natural B1+ is naturally sourced from our vegetable-based B complex. Further testing must be conducted to determine the specific type (Adenosylcobalamin, Hydroxocobalamin, or Methylcobalamin). The B12 in the Natural B1+ is likely a mix of the natural forms of B12. The primary source of B12 is chlorella, which primarily contains methylcobalamin.  The vegetables in the B vitamin complex blend will have adenosylcobalamin and/or hydroxocobalamin.  There is no synthetic cyanocobalamin in the product.

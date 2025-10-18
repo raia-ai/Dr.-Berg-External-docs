@@ -1,7 +1,0 @@
-# What can I do to address sleep problems while following a ketogenic diet?
-
-If you aren’t following Healthy Keto®, you may be lacking sleep-promoting nutrients like B vitamins, magnesium, calcium, and potassium. This deficiency can occur during the transition phase as your body adapts to burning fat for energy—a process that initially leads to increased alertness since fat provides more than double the energy storage potential compared to carbohydrates. As a result, you might feel more awake, while carbohydrates can cause fatigue, often making you feel sleepy after consumption.
-
-To improve your sleep and expedite the transition to ketosis, consider increasing your intake of minerals, particularly potassium, as well as B vitamins, and incorporating more daily exercise to utilize excess energy. Other factors that may contribute to sleeplessness on a ketogenic diet include excessive coffee consumption, not practicing intermittent fasting, low calcium levels, bloating from kale, or waking up due to fluctuations in blood sugar levels. Addressing these issues can help enhance your overall sleep quality while adapting to the ketogenic lifestyle.
-
- [See Video/Image/Document](https://hls-player.drberg.com/asset?path=migrated-assets/what-causes-insomnia-on-keto-diet-drberg)

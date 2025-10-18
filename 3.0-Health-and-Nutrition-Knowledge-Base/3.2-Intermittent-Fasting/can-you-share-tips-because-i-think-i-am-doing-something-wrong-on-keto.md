@@ -1,3 +1,0 @@
-# Can you share tips, because I think I am doing something wrong on keto?
-
-Here are some key tips for navigating the ketogenic diet: First, seek out substitutes for foods you enjoy but can't have on keto to satisfy cravings. Consistency is crucial, so aim to stick to the diet for as long as possible and work on strengthening your self-control. Opt for nutrient-dense foods and prioritize Healthy Keto® over dirty keto to ensure you're getting essential nutrients. Consider supplementing with B vitamins, electrolytes, and other necessary nutrients to support your body during keto and fasting. Additionally, incorporating bile salts can aid in digestion and nutrient absorption.

@@ -1,3 +1,0 @@
-# Is excessive vitamin D intake linked to hair loss, and what mechanisms might contribute to this adverse effect in individuals with high vitamin D levels?
-
-Yes. Vitamin D increases the intestinal absorption of calcium, and elevated vitamin D levels can result in excessive calcium, also known as hypercalcemia. Hypercalcemia can cause soft tissue calcification and lead to calcified plaque formation on the scalp, which blocks hair follicles and results in hair loss.

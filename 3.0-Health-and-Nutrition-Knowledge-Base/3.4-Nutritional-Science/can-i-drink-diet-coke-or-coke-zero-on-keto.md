@@ -1,3 +1,0 @@
-# Can I drink Diet Coke or Coke Zero on Keto?
-
-Diet coke, coke zero and coke zero sugar have the same ingredients except for other sweeteners. It has aspartame which affects the gut, increase the risk for insulin resistance and diabetes. It also has caramel coloring where they heat sugar with an ammonia compound to produce an end product called AGE or Advanced Glycation Endproducts, which creates sticky proteins in the body.

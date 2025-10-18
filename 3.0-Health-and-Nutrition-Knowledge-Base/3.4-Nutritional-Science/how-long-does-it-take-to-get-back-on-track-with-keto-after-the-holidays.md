@@ -1,5 +1,0 @@
-# How long does it take to get back on track with keto after the holidays?
-
-After the holiday season, it is beneficial to resume healthy habits as soon as possible, rather than extending indulgence from Thanksgiving to New Year’s. Many individuals may overestimate their overall health and cannot afford prolonged periods of overeating.
-
-A practical approach is to enjoy holiday meals while using digestive aids, such as digestive enzymes containing betaine hydrochloride, to facilitate digestion and enhance comfort during meals. After the holiday festivities, returning to your ketogenic routine quickly is advisable. Incorporating fasting post-indulgence can also support your transition back to ketosis. For additional strategies on mitigating the effects of overeating, I recommend checking out my video on the topic.

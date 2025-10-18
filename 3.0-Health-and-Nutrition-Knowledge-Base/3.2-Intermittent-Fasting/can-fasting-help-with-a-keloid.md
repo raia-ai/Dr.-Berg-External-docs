@@ -1,3 +1,0 @@
-# Can fasting help with a keloid?
-
-Fasting may help with keloid scars by promoting overall skin health and reducing inflammation. To enhance results, consider applying high-quality vitamin E oil to the keloid, as it can aid in breaking down scar tissue. Additionally, the enzyme serrapeptase may help reduce scarring and fibrosis. However, individual results can vary, so it's advisable to research these options further and consult with a healthcare professional for personalized guidance.

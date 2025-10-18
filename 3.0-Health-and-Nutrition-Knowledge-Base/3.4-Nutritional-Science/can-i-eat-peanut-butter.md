@@ -1,7 +1,0 @@
-# Can I eat peanut butter?
-
-Peanuts don't typically cause health issues, but they can cause bloating for some people, and it's still important to consume the right peanuts. Peanuts are not nuts—they are legumes that grow in the soil. **Conventional peanuts are heavily sprayed with pesticides and fungicides, which seep into the soil and penetrate their thin shells. This is why you should always choose organic peanuts and peanut butter. Glyphosate is also commonly found in peanuts. Glyphosate can act as an antibiotic and is found in many GMO foods.**
-
-Always read the label on your peanut butter and ensure it doesn't contain hydrogenated oils. Hydrogenated vegetable oils don’t actually come from vegetables at all—they’re seed oils! Also, avoid peanut butter with added sugar. Monoglycerides are sometimes added to peanut butter. A French study linked this ingredient to cancer and found that it can increase the risk of certain cancers by 46%.
-
-Look for peanut butter that only contains peanuts and salt. **Organic Valencia peanut butter that contains only Valencia peanuts and sea salt is the best option. Valencia peanuts contain the least amount of aflatoxins. Aflatoxins come from mold and can be very damaging to the liver. Try to have your peanuts with a meal rather than as a snack to avoid spiking insulin.**

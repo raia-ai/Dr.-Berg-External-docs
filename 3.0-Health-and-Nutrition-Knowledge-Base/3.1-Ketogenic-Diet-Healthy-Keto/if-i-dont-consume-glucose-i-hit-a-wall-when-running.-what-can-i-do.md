@@ -1,7 +1,0 @@
-# If I don’t consume glucose, I hit a wall when running. What can I do?
-
-I think you just need to kind of study some of the long distance runners that have got into a really good keto adaptation to the point where or fat adaptation, where they can just oxidize fat like way better than anyone else. And because what's happening, you're running up against the loss of glycogen. And now, where's the fuel? Your body just hasn't really been able to tap into the fat because you're not fully converted over yet and that takes some time. That's what I would shoot for as a long term goal.
-
-A couple other things I would recommend. I would maybe as a transition, you do not the glucose but maybe you do some fruit. Try that for a while. Then push that to the side. And then maybe you do maybe a starch.
-
-So it's kind of a stair-step approach because when you do this straight those packs are just pure dextrose synthetic from corn syrup. They're just going to deplete a lot of B vitamins, B1, and that's going to affect your performance as well as deplete other things too. So you're taking this refined sugar. I think they even use maltodextrin. It's just so refined and it's going to be burned as fuel but it's going to come with a package because in order to burn that fuel, you need a lot of other nutrients. So at the very, very minimum, you should be taking B vitamins, electrolytes, not too many but just enough to compensate for that refined sugar that's going to deplete.

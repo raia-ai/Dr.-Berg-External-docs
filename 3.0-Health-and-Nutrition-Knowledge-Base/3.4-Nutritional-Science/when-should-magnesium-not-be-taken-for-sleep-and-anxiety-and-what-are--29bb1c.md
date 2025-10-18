@@ -1,9 +1,0 @@
-# When should magnesium not be taken for sleep and anxiety, and what are the potential risks or contraindications to consider?
-
-Sometimes, low magnesium is not the cause of your anxiety or sleep problems, and taking it can even worsen your symptoms. The second part of sleep is called REM sleep. People with higher levels of adrenaline and cortisol tend to wake up around 2:00 am during REM sleep. Magnesium will not fix this problem because the high cortisol levels are not caused by low magnesium.
-
-Stress and lack of exercise can cause poor sleep. Exercise, long walks, and physical labor can reduce stress and improve sleep. If you find that you have difficulty getting to sleep because of racing thoughts and overthinking, you may be low in vitamin B1. Carbs, sugar, and caffeine can deplete vitamin B1. Taking B1 before bed can provide an immediate sense of calmness. Always choose a natural B1 supplement, not synthetic.
-
-Instead of taking a melatonin supplement, it can be more beneficial to address why you do not have enough melatonin in the first place. Melatonin is inhibited by blue light. Darkness and infrared light recharge melatonin, so try getting sunlight or sitting by a fire. Vitamin D before bed can help you sleep. Magnesium will not work if you're very low in vitamin D and vice versa.
-
-If you're new to fasting and you go to bed hungry, it can interfere with your sleep. If fasting triggered your sleep problem, scale back, and begin fasting more gradually over time. Try incorporating more carbs at your last meal and increasing your carb intake to 50 grams per day. Having plenty of sea salt on keto and intermittent fasting is vital. Salt causes your body to retain fluid, so not only will it help you sleep, but it can also help prevent waking to use the bathroom. If you do need magnesium, try taking magnesium glycinate to help support sleep and reduce anxiety.

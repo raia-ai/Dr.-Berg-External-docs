@@ -1,5 +1,0 @@
-# Dr. Berg Brand Recommendations - Help Choosing a Brand
-
-As a Dr. Berg Advisor, I am trained in our products, services, and resources. However, I cannot advise on other companies' products or services. Please know that Dr. Berg attempted to create a "Dr. Berg Approved" program to give his 'stamp of approval' to certain companies and their products. Once he began to work with potential partners on this program, Dr. Berg realized that he could not approve of a product or company whose sourcing, purity, manufacturing, and marketing practices he could not verify. Instead, he has focused on creating the best products and business practices at Dr. Berg Nutritionals.
-
-***However,*** best practices for finding a quality supplement - 3rd party testing and requesting results to verify the product's contents, the microbial testing and heavy metals report, GMP-certified manufacturing, organic, if possible, non-GMO.

@@ -1,3 +1,0 @@
-# What strategies and nutrients can effectively support the liver in metabolizing and eliminating alcohol?
-
-There are various natural remedies that promote liver function and protect liver cells from the detrimental effects of acetaldehyde, a toxic metabolic by-product of alcohol detoxification. You can support alcohol detoxification by consuming a healthy diet rich in egg yolks, organ meats, green leafy vegetables, broccoli sprouts, and turmeric and taking liver-cleansing supplements, including milk thistle, CoQ10, and astaxanthin.

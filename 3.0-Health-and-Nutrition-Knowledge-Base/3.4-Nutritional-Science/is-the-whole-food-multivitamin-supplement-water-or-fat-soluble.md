@@ -1,3 +1,0 @@
-# Is the Whole Food Multivitamin supplement water or fat soluble?
-
-Our Whole Food Multivitamin is formulated with a comprehensive blend of both water-soluble and fat-soluble vitamins. This ensures optimal absorption and utilization by the body. The fat-soluble components include vitamins A, D, E, K, and the specialized form of B1, benfotiamine. The water-soluble components include vitamin C and the full spectrum of B vitamins.

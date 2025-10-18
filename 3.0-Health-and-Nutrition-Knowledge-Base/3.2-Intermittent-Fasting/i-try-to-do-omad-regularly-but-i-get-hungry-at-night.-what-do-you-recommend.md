@@ -1,3 +1,0 @@
-# I try to do OMAD regularly but I get hungry at night. What do you recommend?
-
-Feeling hungry at night while doing OMAD suggests you may not be fully adapted yet, which can take time. I recommend lowering your carb intake and incorporating exercise to help with this adjustment. If, after a few weeks, you're still struggling with hunger, it's important to listen to your body. Not everyone can sustain prolonged fasting, so eat when you're genuinely hungry, and allow your body to guide your eating schedule.

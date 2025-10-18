@@ -1,3 +1,0 @@
-# What can I do for dry skin?
-
-I would definitely start with the omega-3 fatty acids for the skin. That is the key to prevent dry skin. It's not necessarily hydration with water. It is oils. So you need cod liver oil. And that would help your skin greatly. Of course, you can also have dry skin if you're lacking the B vitamins. You'd want nutritional yeast for that. Go ahead and try those two things and see if you can actually shed less skin.

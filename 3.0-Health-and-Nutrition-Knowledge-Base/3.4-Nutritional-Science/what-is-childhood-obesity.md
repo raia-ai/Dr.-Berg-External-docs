@@ -1,7 +1,0 @@
-# What is childhood obesity?
-
-Obesity and chronic disease in childhood were uncommon, while childhood obesity, food allergies, asthma, and autism plague the children of today! The largest category of ultra-processed foods are snack foods. The problem with snacking is that you spike insulin every time you eat. Carbohydrates create the most significant spike in insulin. Not only are we snacking, but we’re snacking on the worst foods!
-
-The pancreas is constantly working to pump out insulin to remove sugar from the blood. This eventually leads to insulin resistance, which is behind almost every chronic illness, including a fatty liver, high blood pressure, diabetes, obesity, inflammatory diseases, mood disorders, dementia, and more.
-
-In 1948, we did not have not have ultra-processed food calories. Today, 65% of the teenage diet comes from ultra-processed food calories. This number is around 50% for adults and 45% for toddlers. Seed oils, such as soy, corn, cottonseed, and canola, are the worst ultra-processed food ingredients. Around 25% to 30% of all our calories come from seed oils. Grain-based starches generate 220 billion dollars per year! Highly processed industrial starches such as modified food starch, modified cornstarch, and maltodextrin spike blood sugar—often higher than consuming sugar does!

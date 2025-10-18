@@ -1,3 +1,0 @@
-# What are the best non-fruit sources of vitamin C, and how can I incorporate them into my diet effectively?
-
-You can get them from fresh vegetables like the bell pepper. Bell peppers have loaded, and also you're going to get vitamin C in all the vegetables and onions, salad, as well as lemons, juice the whole lemon. And then you can also get it from sauerkraut. That would be a good source. And berries are, some berries are acceptable on the ketogenic diet.

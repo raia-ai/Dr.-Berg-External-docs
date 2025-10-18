@@ -1,3 +1,0 @@
-# Does powdered milk contain hormones?
-
-Absolutely. Sometimes people try to find a powdered milk for a formula. If you do that I would go for goat's milk and try to get it organic. Because with the cow's milk is there's so many allergies.There's so many issues with that hormonally. even if it says no BST which is another hormone thing. If you're going to do it I would go for the goat's milk powder.

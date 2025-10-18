@@ -1,3 +1,0 @@
-# How can I accurately calculate my daily caloric needs for weight loss and reversing fatty liver?
-
-To determine your daily calorie intake for weight loss and addressing fatty liver, we invite you to visit our website, drberg.com, where you can utilize our new keto calculator. This tool can be found in the dropdown menu under "Ketones." By entering your age, weight, and height, the calculator will generate a personalized recommendation based on the ketogenic diet. While calorie count is crucial, it's equally important to focus on eating until you feel satisfied.

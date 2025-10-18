@@ -1,3 +1,0 @@
-# Pancreatin Powder in the Advanced Digestive Enzymes is Sourced From Pigs. What is the welfare of the animals before slaughtering?
-
-Pigs used for extracting pancreatin used in the Advanced Digestive Enzymes are carefully checked by the United States Department of Agriculture (USDA) to ensure they are healthy. In fact, these animals undergo health check-ups periodically to ensure their safety. The porcine raw materials are gathered under the continuous supervision of the USDA. The materials also meet European Union animal product health standards (Regulation EU 142/2011).

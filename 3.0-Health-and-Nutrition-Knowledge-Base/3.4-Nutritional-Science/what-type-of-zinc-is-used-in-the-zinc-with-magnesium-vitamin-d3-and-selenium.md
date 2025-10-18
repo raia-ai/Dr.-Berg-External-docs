@@ -1,3 +1,0 @@
-# What type of zinc is used in the Zinc with Magnesium, Vitamin D3, and Selenium?
-
-The type of zinc in the Zinc with Magnesium, Vitamin D3, and Selenium is zinc amino acid chelate, which means the zinc is attached to an amino acid to make it easier for the body to absorb. This process helps zinc enter the body more effectively. The product label lists the zinc as "zinc amino acid chelate" because that is the type of zinc used in this supplement.

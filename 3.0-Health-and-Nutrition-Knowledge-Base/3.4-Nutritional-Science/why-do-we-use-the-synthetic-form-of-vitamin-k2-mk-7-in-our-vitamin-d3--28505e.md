@@ -1,5 +1,0 @@
-# Why do we use the synthetic form of Vitamin K2 (MK-7) in our Vitamin D3 & K2 products?
-
-While Dr. Berg recommends obtaining MK-7 vitamin K2 from natural food sources like natto and aged cheeses, sourcing it for supplement manufacturing can be challenging. Synthetic MK-7 vitamin K2 is commonly used in supplements because it is more accessible, scalable, stable, and consistent in potency than natural sources. It allows for precise usage and has a longer shelf life. Additionally, synthetic MK-7 is often allergen-free, vegan-friendly, and sometimes formulated for better absorption. All these factors make the synthetic form of MK-7 a more reliable option for supplements.
-
-Studies have shown that synthetic MK-7 is bioequivalent to natural MK-7, indicating that the body processes it similarly. Dr. Berg Nutritionals uses the trans form of MK-7 vitamin K2, which is superior due to its higher bioavailability, longer active blood circulation time, and more effective activation of key proteins associated with bone and artery health than cis forms. It provides benefits at lower doses and is the biologically active form that the body can readily utilize.

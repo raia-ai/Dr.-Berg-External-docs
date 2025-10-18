@@ -1,9 +1,0 @@
-# What are effective treatments and preventive measures for addressing toenail fungus, especially for those seeking natural remedies or over-the-counter solutions?
-
-**Tea tree oil is a good one. Iodine will kill off the fungus. So you put that on the toe. That's a good one.There's many others. But the tea tree oil is a good one as well. You can also use garlic. There's quite a few things.**
-
-**There's also a really good delivery natural remedy that actually comes from the processing of trees. It's called DMSO.** And it's a highly soluble solution that tends to have its own anti-inflammatory properties as well as anti-pain. And you can put it topically. But it can drive in.
-
-You can put like aloe or put something with it to drive in nutrition into the body topically. You have to make sure that at the same time there's nothing else that's on your skin because let's say, for example you have some rat poison in your house and you're putting the rat poison out and you get that on your hand, and you put DSMO or DMSO on your hand, then it's driving the poison inside your body. So it has to be a clean area without any type of extra things that you don't want driven into your body.
-
-What's really wild is a great little demo is to put a little couple drops on your feet and you'll taste some garlic almost instantly because it absorbs into the tissues. It's very soluble. It goes through right into the joint, into the muscles. That's just a great remedy. But of course, guess what? You're probably not gonna easily find it or anything positive about it when you do a search because all that stuff has been kind of filtered out as misinformation.

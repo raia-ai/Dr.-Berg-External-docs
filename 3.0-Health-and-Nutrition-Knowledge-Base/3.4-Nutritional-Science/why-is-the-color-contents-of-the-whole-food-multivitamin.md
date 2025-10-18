@@ -1,3 +1,0 @@
-# Why is the color contents of the Whole Food Multivitamin?
-
-The Whole Food Multivitamin contents of the capsule are tan in color and come from mixing various fruits, vegetables, and minerals. When blended, their natural pigments combine into a tan hue. Even with freeze-drying, large-scale mixing often results in a neutral color instead of the bright colors you’d see from single-ingredient powders.

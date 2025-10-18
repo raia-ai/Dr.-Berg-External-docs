@@ -1,3 +1,0 @@
-# Is intermittent fasting safe for your adrenal glands?
-
-It's normal for cortisol to counter low blood sugar levels. During intermittent fasting, as your blood sugar drops, cortisol, an adrenal hormone, kicks in to prevent this. This is a normal function of cortisol, just like how it increases white blood cells and inflammation during infection and injury. These processes don't stress the adrenals; they're part of cortisol's purpose. To address this, you may need to fix both your insulin resistance and adrenal function separately.

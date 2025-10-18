@@ -1,3 +1,0 @@
-# Why is biotin DV 200% on the Multi Collagen Peptide label?
-
-With the Multi Collagen Peptide, the 200% Daily Value (DV) of biotin on the label means the product provides twice the FDA-recommended daily intake, which is set at 30 micrograms per day for adults. This is not a maximum—it reflects a level considered sufficient to support normal biological functions, such as energy metabolism and the maintenance of healthy skin, hair, and nails.

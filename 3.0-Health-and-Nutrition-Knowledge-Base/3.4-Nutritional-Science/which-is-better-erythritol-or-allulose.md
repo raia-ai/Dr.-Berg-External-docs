@@ -1,3 +1,0 @@
-# Which is better, erythritol or allulose?
-
-Whether erythritol or allulose is better depends on the desired use. Erythritol has a stronger taste and cooling effect that can quickly overpower a sugary recipe. However, it’s a great sweetener for tea and coffee. Allulose is generally recommended for baking as it melts and caramelizes similarly to sugar and can be used at a one-to-one ratio in most recipes.

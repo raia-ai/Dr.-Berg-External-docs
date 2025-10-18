@@ -1,2 +1,0 @@
-# Weight Loss Topics Directory
-

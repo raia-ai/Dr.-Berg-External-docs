@@ -1,5 +1,0 @@
-# 
-
-
-~$154.85 USD~ ### Natural Prenatal Vitamin FAQs * What are the benefits of Natural Prenatal Vitamin for a baby? * Does Natural Prenatal Vitamin contain iron? ![Natural Prenatal Vitamin, 60 capsules, front view, bottle with Dr. Berg branding visible and labeled as packaged in the U.S.A.](https://shop.drberg.com/cdn/shop/files/US_Natural_Prenatal_Vitamin_2024_3D2_1000px.jpg?v=1745516148&width=640) Dr. Berg Nutritionals ## Natural Prenatal Vitamin with Folate and Omegas - 60 Capsules new price **$37.99 USD** original price ~$45.59 USD~ Nourish your body and nurture your growing baby with Dr. Berg Natural Prenatal Multivitamin. This exclusive formula delivers a carefully balanced blend of vitamins, minerals, omegas, and 11 powerful superfoods tailored to the needs of expectant mothers and developing babies. Our prenatal multivitamin is gentle on your stomach and is made for easy digestion and absorption. Each bottle contains 60 easy-to-swallow capsules.
-Learn more: https://shop.drberg.com/products/natural-prenatal-vitamin-60-capsules

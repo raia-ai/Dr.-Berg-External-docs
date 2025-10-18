@@ -1,3 +1,0 @@
-# Why does the Friendly Bacteria Probiotic taste different from batch to batch?
-
-It is common and normal for liquid probiotic products like our Friendly Bacteria Probiotic, which are naturally fermented, to have flavor variations from batch to batch. A slightly different flavor from batch to batch is often a sign that the product is a natural, living fermented food, not an indication of poor quality. As long as it's within its best-by date and has been stored correctly, this variation is normal.

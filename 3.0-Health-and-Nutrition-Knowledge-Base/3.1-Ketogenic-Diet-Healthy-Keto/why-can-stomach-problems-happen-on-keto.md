@@ -1,3 +1,0 @@
-# Why can stomach problems happen on keto?
-
-Digestive issues on keto, like bloating and nausea, often stem from sugar alcohols and excessive fiber intake. Erythritol and xylitol can cause diarrhea, while too much fiber from veggies or keto products may overwhelm digestion. Opt for whole foods, avoiding synthetic sugars like dextrose and maltodextrin. Moderating MCT oil intake and gradually introducing new fats can help. Consider purified bile salts and betaine hydrochloride supplements. Apple cider vinegar aids digestion. Intermittent fasting can aid digestion by allowing breaks between meals. Limit nuts, peanut butter, almond flour, and cheese initially.

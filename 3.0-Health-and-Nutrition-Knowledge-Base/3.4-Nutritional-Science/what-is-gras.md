@@ -1,3 +1,0 @@
-# What is GRAS?
-
-GRAS (generally recognized as safe). GRAS applies to chemicals that are in our environment and food.  GRAS implies that the chemical is regulated and has been through a lot of safety studies. However, the FDA allows companies to self-certify their chemicals as safe.  There are about 10,000 chemicals in our food supply, and 99% of them have not been reviewed for safety.  GRAS is more of a loophole that companies use to imply that their chemicals are safe despite outside testing.

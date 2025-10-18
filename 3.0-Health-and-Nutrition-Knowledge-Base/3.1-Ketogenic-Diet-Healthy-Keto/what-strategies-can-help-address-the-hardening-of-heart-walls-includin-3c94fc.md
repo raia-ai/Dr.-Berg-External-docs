@@ -1,7 +1,0 @@
-# What strategies can help address the hardening of heart walls, including lifestyle changes, dietary adjustments, and medical treatments?
-
-**If anything could actually extend the longevity of your heart it's the combination of keto and intermittent fasting and doing it healthily. The heart muscle and the inside of the arteries of your heart respond best to vitamin E.** So you should get something called tocotrienols which will immediately help any type of inflammation going on in those areas of your body. Your heart also will carry more oxygen, the heart muscle itself if it has enough vitamin E.
-
-If we're talking about hardening of the arteries, we want to keep things elastic. And with aging, of course, you have more hardening. So there's a couple of things that I would focus on. **First is consuming the high potassium diet on this keto. The potassium and magnesium are going to make your arteries more flexible for sure. And being on a low carb is going to reduce any type of inflammatory condition because it's really all about inflammation that the body then responds as a band-aid and make things really stiff.**
-
-There's some other things you can do to support the heart. Vitamin B3, like niacin with that flush. Also make sure you get enough sleep. And then the one last thing I would recommend is that I wouldn't be afraid of fatty foods. I'd be afraid of carbs because the fatty foods you'll have a lot of vitamin K2 which can help to decalcify the arteries if there is calcium in it.

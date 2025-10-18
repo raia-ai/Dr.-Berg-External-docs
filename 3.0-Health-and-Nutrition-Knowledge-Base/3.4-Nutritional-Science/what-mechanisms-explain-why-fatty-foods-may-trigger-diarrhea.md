@@ -1,3 +1,0 @@
-# What mechanisms explain why fatty foods may trigger diarrhea?
-
-Fatty foods can sometimes cause diarrhea due to several reasons. One possibility is that they stimulate the release of bile acids, which can speed up digestion and lead to loose stools. It may also be related to individual tolerance levels or specific types of fats. Experiment with different protein sources like shellfish or seafood, and consider adjusting fat intake to see what works best for you. Additionally, incorporating probiotics could help maintain optimal stool consistency over time. If symptoms persist, consulting a healthcare professional is advisable for further guidance.

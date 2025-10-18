@@ -1,5 +1,0 @@
-# Is it appropriate for children to follow a ketogenic diet?
-
-While a strict ketogenic diet may not be appropriate for children, adopting a low-carbohydrate approach can be beneficial. Children may tolerate a higher intake of certain carbohydrates, such as fruits and occasional sweet potatoes, while avoiding typical sugary foods. It is advisable to eliminate processed cereals and grains from their diet.
-
-I recommend focusing on three substantial meals each day rather than frequent snacking, as constant snacking can lead to repeated spikes in insulin levels. Children have a naturally high metabolism, and if they are physically active, they can effectively utilize some of the carbohydrates from fruits and other sources. As always, consulting with a healthcare professional or nutritionist is recommended to ensure that any dietary changes are appropriate for a child’s specific needs.

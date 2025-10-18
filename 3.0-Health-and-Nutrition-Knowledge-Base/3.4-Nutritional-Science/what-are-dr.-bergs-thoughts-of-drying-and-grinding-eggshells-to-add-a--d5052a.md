@@ -1,3 +1,0 @@
-# What are Dr. Berg's thoughts of drying and grinding eggshells to add a smoothie for extra calcium?
-
-Drying and grinding eggshells for extra calcium in smoothies isn't ideal. The calcium in eggshells is elemental and not easily absorbed by our bodies. Plants, with the help of bacteria, can convert this type of calcium into a more bioavailable form, but humans absorb calcium more effectively when it's bound to proteins, as found in dairy or vegetables. For better calcium absorption, it's recommended to obtain it from dietary sources like dairy products or leafy greens rather than eggshells.

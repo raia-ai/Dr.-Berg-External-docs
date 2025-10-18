@@ -1,3 +1,0 @@
-# How many carbs are in alcohol?
-
-How many carbs are in alcohol depends on the type and whether it’s mixed with other beverages. Beer tends to contain around 15 grams per five-ounce serving, wine typically has between two to four grams per four-ounce serving, and hard liquor mixed with a soft drink can contain as much as 25 grams for an eight-ounce serving. Mixed drinks can contain even more sugar per serving, depending on the ingredients. Because of their high net carbs, alcoholic drinks are not safe on keto diets.

@@ -1,7 +1,0 @@
-# Is it ok for kids to drink fruit juice?
-
-Even a pediatric group says, “Fruit juice has no essential role in healthy balanced diets of children”. That’s an understatement. Fruit juice has the same amount of sugar as soda. It's a pasteurized product; that is, it’s nutritionally dead. When you consume that much concentrated sugar without fiber or phytonutrients, you'll create vitamin deficiencies.
-
-**Children between the ages of 2 and 18 consume 50 percent of their fruit as juice. So when a group of doctors who specialize in caring for children make a statement about fruit juice not playing an essential role in a healthy diet for children, it highlights how little they actually know about the role of sugar causing kids’ insulin to get too high and damage their health down the road.**
-
-The worst thing you can do is give your baby fruit juice. They’re still developing. Giving them pure sugar is going to set them up for diabetes. In fact, you don’t want to give liquid fruit to any children.

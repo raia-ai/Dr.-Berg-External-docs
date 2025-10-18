@@ -1,9 +1,0 @@
-# THIS Ruins Your Health!
-
-Big Pharma and Big Food both contribute to this health crisis. Chronic disease primarily comes from a diet composed of ultra-processed foods. Doctors prescribe medications to treat symptoms that come from the junk food diet, rather than addressing the diet. Junk food is not food! It’s composed of refined sugars, seed oils, and starches along with colorings, flavorings, and preservatives. Junk food does not sustain life and it’s at the root of chronic disease.
-
-Some people claim that the ketogenic diet is dangerous, but this is untrue. The keto diet involves the breakdown of fat into ketones as an alternative fuel. When you reduce your carb intake, it forces your body to use your fat reserve for fuel. Keto is great for weight loss and can help combat insulin resistance. When cigarettes lost popularity due to health concerns, tobacco companies bought up the junk food industry. These companies produced profitable food junk food made from dent corn and other cheap materials. A high-carb diet has become normalized for major profits.
-
-RFK Jr. is a non-politician who may be able to sever the relationships between the food industry and the government. Food guidelines are of the utmost importance because the consequences trickle down to the schools, hospitals, assisted living homes, and other places that feed the most vulnerable. More doctors are beginning to consider food and the whole body when managing disease, moving away from the symptom management model.
-
-It's important not to overlook the function and importance of vitamin D, turmeric, magnesium, and grass-fed red meat. Focusing on disease prevention by building health rather than treating disease is most effective. Eating real food is the most important thing you can do for your health.

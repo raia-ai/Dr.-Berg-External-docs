@@ -1,3 +1,0 @@
-# Is the vitamin D3 in your products vegan and vegetarian-friendly?
-
-The Vitamin D3 in most of our products is derived from lanolin (sheep's wool extract), making it unsuitable for vegans. However, it might be considered vegetarian by some individuals, as the lanolin is sourced from sheared wool without harming the animals, rather than from animal flesh. Please note this information does not apply to our 'Vitamin D3 & K2 with Oxbile' product.

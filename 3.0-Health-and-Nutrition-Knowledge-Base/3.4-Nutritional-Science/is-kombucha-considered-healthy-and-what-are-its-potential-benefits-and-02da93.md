@@ -1,5 +1,0 @@
-# Is kombucha considered healthy, and what are its potential benefits and risks for overall well-being?
-
-You got to be careful about kombucha because a while ago you could find it with two grams of sugar. But nowadays you read the label what's 12 grams of sugar, 16 grams of sugar. That's a lot of sugar because they make it out of sugar and they make it out of sugar and black tea. So I think the acids in there do help the digestive system.
-
-There's some better digestive fermented products. Things like kefir, sauerkraut, kimchi. But let's say for example, you have someone of a craving for alcohol, kombucha tea is a good alternative because it gives you the texture, it gives you the calmness, and it's kind of like a carbonated beverage that you can pretend like you're drinking a beer and create similar effects.

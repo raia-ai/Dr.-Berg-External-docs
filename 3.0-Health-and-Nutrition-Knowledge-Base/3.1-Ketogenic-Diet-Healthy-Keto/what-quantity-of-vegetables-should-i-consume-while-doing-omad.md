@@ -1,3 +1,0 @@
-# What quantity of vegetables should I consume while doing OMAD?
-
-When following OMAD (One Meal a Day), the body becomes more efficient at recycling nutrients, so the typical recommendation of 8-10 cups of vegetables may not be necessary. Instead, focus on consuming smaller, high-quality portions of vegetables. For salads, aim for a moderate amount, while for denser vegetables like cabbage or broccoli, around 4 cups should suffice. Adjust based on your appetite and nutritional needs.

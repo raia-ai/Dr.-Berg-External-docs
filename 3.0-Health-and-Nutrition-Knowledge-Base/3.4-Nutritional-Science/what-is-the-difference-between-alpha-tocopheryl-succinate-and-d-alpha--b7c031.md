@@ -1,3 +1,0 @@
-# What is the difference between alpha-tocopheryl succinate and d-alpha-tocopheryl succinate?
-
-Alpha-tocopheryl succinate and d-alpha-tocopheryl succinate are different names for the same molecule. They are also called vitamin E succinate or alpha-tocopherol succinate. These forms of vitamin E are derived from alpha-tocopherol (regular vitamin E) by esterification with succinic acid. The "d-" prefix refers to the natural d-isomer form. Once ingested, alpha-tocopheryl succinate is metabolized and cleaved, or split, to release alpha-tocopherol. Alpha-tocopherol is the form of vitamin E with antioxidant properties.

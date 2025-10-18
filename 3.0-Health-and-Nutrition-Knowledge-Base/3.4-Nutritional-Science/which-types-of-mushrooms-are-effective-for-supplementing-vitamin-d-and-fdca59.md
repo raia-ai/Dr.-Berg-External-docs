@@ -1,3 +1,0 @@
-# Which types of mushrooms are effective for supplementing vitamin D, and how does UV exposure influence their vitamin D content?
-
-To supplement vitamin D with mushrooms, sun-dry them by placing halved, raw mushrooms on a cookie sheet outside for one to two days. This process significantly boosts their vitamin D content, providing a more potent source than most supplements. For optimal nutrition, however, mushrooms should be cooked rather than consumed raw.

@@ -1,3 +1,0 @@
-# Does TUDCA contain peanuts or nuts?
-
-TUDCA contains only TUDCA, magnesium stearate, and a vegetable capsule. None of the ingredients are sourced from tree nuts or peanuts, and none are added to the formula. However, as with any supplement, it’s essential to consider potential exposure during manufacturing. Our products are made in a GMP-certified facility that follows strict quality control procedures, including thorough cleaning, sanitation, and allergen management protocols, to minimize the risk of cross-contamination. While cross-contact with allergens like tree nuts or peanuts is unlikely, individuals with severe allergies should consult their healthcare provider before use.

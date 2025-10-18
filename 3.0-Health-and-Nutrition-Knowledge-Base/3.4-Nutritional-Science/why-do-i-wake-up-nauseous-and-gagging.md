@@ -1,3 +1,0 @@
-# Why do I wake up nauseous and gagging?
-
-Waking up feeling nauseous and experiencing gagging can often be indicative of a vitamin B1 deficiency. Vitamin B1, or thiamine, plays a crucial role in both the nervous system and digestive system function. Ensuring adequate intake of B1 can help alleviate these symptoms, as it supports overall neurological health and digestive processes. If these symptoms persist or worsen, consulting with a healthcare professional is advised for proper evaluation and management.
