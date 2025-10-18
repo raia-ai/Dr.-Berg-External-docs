@@ -1,0 +1,3 @@
+# What are the underlying causes of silent acid reflux?
+
+Silent acid reflux, known as laryngopharyngeal reflux (LPR) or GERD, occurs when stomach acid irritates the esophagus and throat due to a malfunctioning valve between the stomach and esophagus. Factors like pH imbalance in stomach acid, autonomic nervous system issues (common in diabetes), and hormonal imbalances (like low gastrin levels) can contribute to this condition. Remedies include apple cider vinegar, betaine hydrochloride supplements, ensuring adequate salt and potassium intake, and addressing vitamin D deficiency if present, to alleviate symptoms of silent acid reflux effectively.https://hls-player.drberg.com/asset?path=migrated-assets/burning-throat-syndrome-or-silent-acid-reflux-causes-drberg

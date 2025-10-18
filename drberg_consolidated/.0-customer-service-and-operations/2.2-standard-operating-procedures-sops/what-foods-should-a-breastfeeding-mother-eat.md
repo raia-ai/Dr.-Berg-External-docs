@@ -1,0 +1,3 @@
+# What foods should a breastfeeding mother eat?
+
+Key foods for the breastfeeding mother:ShellfishFish (wild-caught is preferred)Cod liver oilOrgan meatsNutritional yeast (unfortified)EggsBig saladsAvoid GMO foods and do your best to get organic food.Do not go low-fat because you need essential fatty acids like DHA.A few reminders before introducing foods to babies:The digestive system of babies is not developed yet, so you have to go slowly and watch for any reactions.Babies don’t yet have the normal flora in the gut.An infant produces a good amount of lactase, an enzyme to break down lactose or milk sugar.Avoid cereal and grains because they are going to block minerals and many are refined carbohydrates.

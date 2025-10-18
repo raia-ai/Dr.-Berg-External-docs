@@ -1,0 +1,3 @@
+# Does the ketogenic diet help in balancing hormone levels, and if so, how?
+
+The essence of doing healthy ketogenic diet and intermittent fasting is to lower insulin.2 Sets of Hormones1. Peptides (Proteins)2. Steroids (Cholesterol) • Testosterone • Estrogen • Progesterone • Growth Hormone • Cortisol • Aldosterone • DHEABenefits of Lowering Insulin1. Helps balance androgen (PCOS is an androgen dominance)2. Increased testosterone in men3. Reduces sympathetic dominance (improve adrenals function)4. Improves liver function5. Improve certain pituitary hormones (hormones that help regulate the ovary and testicle)https://hls-player.drberg.com/asset?path=migrated-assets/use-keto-ketogenic-diet-to-balance-hormones-drberg

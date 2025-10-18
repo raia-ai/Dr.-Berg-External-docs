@@ -1,0 +1,3 @@
+# Does sleeping help with burning fat?
+
+When you get less than five hours of sleep, you significantly increase your risk of obesity. Take a look at these key points. 1. You burn the most body fat while sleeping 2. Sleep reduces stress, which improves cortisol levels 3. Sleep improves blood glucose levels 4. A lack of sleep increases weight gain, metabolic syndrome symptoms, insulin resistance, and appetitehttps://hls-player.drberg.com/asset?path=migrated-assets/sleep-off-your-belly-fat

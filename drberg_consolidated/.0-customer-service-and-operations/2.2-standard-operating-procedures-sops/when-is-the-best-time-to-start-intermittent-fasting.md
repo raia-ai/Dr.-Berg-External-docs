@@ -1,0 +1,3 @@
+# When is the best time to start intermittent fasting?
+
+When starting intermittent fasting, it is important not to jump immediately into a long fast, but instead gradually increase your fasting window as your eating time slot decreases. A good way to start is by pushing your breakfast later in the day. You can have bulletproof coffee or MCT oil to help you extend your overnight fast. It is also helpful to add fat to the end of any meals you eat, as this increases satiety.Be sure to avoid common mistakes as you start your fasting journey, like snacking, consuming too many carbs at mealtime, and expecting instant results.https://hls-player.drberg.com/asset?path=migrated-assets/the-most-important-intermittent-fasting-basics-for-beginners-must-watch-drberg

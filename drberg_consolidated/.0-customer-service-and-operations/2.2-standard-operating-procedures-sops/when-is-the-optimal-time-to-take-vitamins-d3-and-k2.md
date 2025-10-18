@@ -1,0 +1,3 @@
+# When is the optimal time to take vitamins D3 and K2?
+
+If sleep troubles have you tossing and turning, try taking your vitamin D3 & K2 vitamins before bed. Research suggests it might boost your non-REM sleep, the restorative deep sleep cycle that happens early in the night. Vitamin D can also help manage cortisol, the stress hormone that can interfere with sleep. For most people, taking vitamin D3 at night could lead to sounder sleep. However, in some cases, it might have a slightly stimulating effect. If that happens to you, simply switch your vitamin D3 dose to earlier in the day.

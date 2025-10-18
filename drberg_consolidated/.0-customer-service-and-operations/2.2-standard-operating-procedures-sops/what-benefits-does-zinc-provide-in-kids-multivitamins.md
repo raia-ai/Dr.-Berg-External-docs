@@ -1,0 +1,3 @@
+# What benefits does Zinc provide in Kids Multivitamins?
+
+Kids Multivitamin - Zinc (zinc amino acid chelate) Zinc amino acid chelate is a form of zinc that may be easily absorbed by the body. Chelated: Zinc amino acid chelate is a form of zinc that is attached to amino acids. Supports Immune Function: Zinc may help to support healthy immune function. Cells & DNA: Zinc is a mineral that's involved in many processes within the body. It's present in cells throughout the body and is involved in cell growth and division. Zinc also plays a role in making DNA and proteins.

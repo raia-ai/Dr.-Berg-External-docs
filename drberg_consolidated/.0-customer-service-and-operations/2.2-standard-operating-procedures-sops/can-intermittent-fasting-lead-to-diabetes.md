@@ -1,0 +1,3 @@
+# Can intermittent fasting lead to diabetes?
+
+Intermittent fasting has been known to fix insulin resistance and greatly help other high blood sugar issues like diabetes. But, this study says one of the side effects of fasting is diabetes. There have been studies about intermittent fasting that: • Are published • Are peer-reviewed • Have been done on humans These studies also show intermittent fasting can help greatly with: • Metabolic syndrome • Diabetes • And more The truth is that intermittent fasting is one of the most powerful things for your health, your blood sugar, prediabetes, and diabetes. Intermittent fasting works, and it’s not a fad diet. https://hls-player.drberg.com/asset?path=migrated-assets/does-intermittent-fasting-cause-diabetes

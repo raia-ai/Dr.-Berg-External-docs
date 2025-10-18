@@ -1,0 +1,3 @@
+# What should I do if my heart rate decreases after starting a ketogenic diet?
+
+A low heart rate on a keto diet often indicates a need for increased sodium intake. Many people do not consume enough sea salt while on keto or intermittent fasting. Increasing your sea salt intake can help normalize your pulse rate.Additionally, evaluate your adrenal health and consider factors such as stress, which can also impact heart rate. Prioritizing sodium intake and managing stress are crucial steps in maintaining a healthy heart rate on a keto diet.https://hls-player.drberg.com/asset?path=migrated-assets/keto-and-heart-disease-drberg-answers-does-ketogenic-diet-increase-or-decrease-heart-health

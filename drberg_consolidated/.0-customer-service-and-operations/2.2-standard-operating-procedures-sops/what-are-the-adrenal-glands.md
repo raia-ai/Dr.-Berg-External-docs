@@ -1,0 +1,3 @@
+# What are the adrenal glands?
+
+Adrenal glands are organs that produce and balance hormones. If the adrenal glands are not healthy, they may struggle to balance your hormones properly and cause you unnecessary stress. Dr. Berg Adrenal & Cortisol Support helps to maintain normal hormone levels and support healthy stress regulation.https://hls-player.drberg.com/asset?path=migrated-assets/adrenal-cortisol-support-faq

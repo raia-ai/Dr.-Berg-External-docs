@@ -1,0 +1,3 @@
+# What does "dirty keto" mean?
+
+Dirty keto is the type of ketogenic diet that ignores the quality of your nutrients. Those who do dirty keto often eat at fast-food restaurants and consume processed cheese and meats. They just keep their carb count low.Dirty keto may also include a lot of MSG, low-nutrient foods, non-organic ingredients, high amounts of omega-6 fatty acids and trans fats.On dirty keto, you might consume a heavily-processed fast-food burger without the bun. It’s a meal which–although keto-friendly–contains a lot of unhealthy ingredients.https://hls-player.drberg.com/asset?path=migrated-assets/are-you-on-the-keto-ish-diet

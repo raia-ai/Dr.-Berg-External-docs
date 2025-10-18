@@ -1,0 +1,3 @@
+# I have gut inflammation and diverticulitis flare-ups. What foods can I eat to minimize bloating and discomfort?
+
+I recommend adopting a carnivore diet, focusing on meats, fish, and eggs while avoiding nuts, vegetables, fiber, seeds, and grains, which can cause bloating and inflammation. Red meat, often vilified in health advice, is actually one of the most healing foods due to its richness in nutrients like glutamine that support digestion.It's important to emphasize consuming high-quality sources of red meat. As always, before making any dietary changes, please consult with a healthcare professional to ensure it aligns with your health needs and goals.

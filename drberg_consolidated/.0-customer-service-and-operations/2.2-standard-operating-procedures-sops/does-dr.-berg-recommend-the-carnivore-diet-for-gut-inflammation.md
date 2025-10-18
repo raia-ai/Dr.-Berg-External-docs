@@ -1,0 +1,3 @@
+# Does Dr. Berg recommend the Carnivore Diet for gut inflammation?
+
+Carnivore Diet is a diet where you are eating mainly meats. It is good for certain types of cases for people with GI issues and chemical sensitivities, and that would be temporarily good for their healing. It is recommended to add organ meats while doing this diet so they could get all the fat-soluble vitamins from it. Carnivore Diet:• High Protein• Low in Vitamin C• Low Potassium• Low Phytonutrientshttps://hls-player.drberg.com/asset?path=migrated-assets/drbergs-opinion-on-carnivore-diet

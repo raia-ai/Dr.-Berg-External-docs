@@ -1,0 +1,3 @@
+# Is apple cider vinegar an important supplement to take while following a ketogenic diet?
+
+Apple Cider Vinegar helps with the gut, digestion, and blood sugar and reduces hunger or cravings. It is a great transition tool as you are doing keto-adaptation into fat burning and lemon which helps prevent kidney stones. https://hls-player.drberg.com/asset?path=migrated-assets/when-to-consume-the-apple-cider-vinegar-acv-drink-drberg

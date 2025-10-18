@@ -1,0 +1,3 @@
+# What are some harmful food and drug combinations to avoid?
+
+Drug interactions to be cautious of:1. Tylenol and alcohol: May lead to liver toxicity if consumed within 12 hours.2. Sedatives and alcohol: Can lower blood pressure, respiration, and heart rate.3. Calcium channel blockers and grapefruit: Grapefruit inhibits drug breakdown, potentially leading to toxicity.4. Bronchodilators and caffeine: May cause excessive stimulation, affecting heart rhythm or triggering seizures.5. Beta-blockers and high protein foods: Can increase drug bioavailability, causing side effects.6. Grapefruit and medications in general: Inhibits drug breakdown, increasing risk of toxicity.

@@ -1,0 +1,3 @@
+# What are the most common reasons for bone pain?
+
+Most Common Symptoms of Vitamin D Deficiency • Back Pain • Aches and Pains in General • Bone PainVitamin D acts as a hormone steroid in the body and has great anti-inflammatory and anti-pain properties. It also has receptors in the spinal cord, the discs, and the nerve roots.Best Sources of Vitamin D. • Fatty Fish • Cod Liver Oil • Grass-fed Liver • SUNhttps://hls-player.drberg.com/asset?path=migrated-assets/back-pain-bone-pain-vitamin-d-deficiency-connection-drberg

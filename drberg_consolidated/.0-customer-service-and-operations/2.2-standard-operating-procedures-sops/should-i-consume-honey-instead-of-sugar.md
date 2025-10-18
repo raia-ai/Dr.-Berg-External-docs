@@ -1,0 +1,3 @@
+# Should I consume honey instead of sugar?
+
+Honey versus sugar: • Regular table sugar is composed of 50% glucose and 50% fructose. • Honey is 60% fructose and 40% glucose. Fructose on the glycemic index is 19 which is low, but the glucose in honey goes directly into the liver. Fructose needs to metabolize in the liver and it can cause insulin resistance, liver damage, and fatty liver. Honey is not a good sugar substitute. Some Benefits of Honey: • Antioxidants • Vitamins • Phytonutrients • It can help with allergies • It can decrease complications from diabetes https://hls-player.drberg.com/asset?path=migrated-assets/is-honey-a-better-substitute-for-sugar

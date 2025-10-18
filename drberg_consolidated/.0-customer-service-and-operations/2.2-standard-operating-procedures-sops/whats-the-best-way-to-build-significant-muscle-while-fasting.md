@@ -1,0 +1,3 @@
+# What’s the best way to build significant muscle while fasting?
+
+Sometimes people think they need to spike insulin to gain muscle mass. They load up on carbs because carbs trigger insulin, and insulin is an anabolic hormone. But, when you stimulate insulin too often, you create insulin resistance. If you have insulin resistance, you can’t easily absorb protein or amino acids. Instead, to gain muscle mass, you should focus on intermittent fasting (as it stimulates growth hormone), regular exercise, limiting carbs to 50g, consuming 6-8 oz. of complete protein per meal, and maintaining sufficient nutrient intake.https://hls-player.drberg.com/asset?path=migrated-assets/intermittent-fasting-and-muscle-mass-gain-drberg

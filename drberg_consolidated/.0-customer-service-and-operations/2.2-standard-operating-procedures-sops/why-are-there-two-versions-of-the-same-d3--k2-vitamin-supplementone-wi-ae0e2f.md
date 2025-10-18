@@ -1,0 +1,3 @@
+# Why are there two versions of the same D3 & K2 Vitamin supplement—one with 10,000 IU and 120 capsules, and the other with 5,000 IU and 60 capsules?
+
+We offer two D3 & K2 Vitamin products with differing nutrient contents and quantities to cater to different needs.The 10,000 IU product is designed for individuals who are deficient in vitamin D3, need an immunity boost due to sickness, or reside in areas with a seasonal lack of sunlight. This product is also ideal for those preparing for cold and flu season.On the other hand, the 5,000 IU product is excellent for those who already have good vitamin D3 blood levels and would like to maintain them. It is a cost-effective option for daily use.

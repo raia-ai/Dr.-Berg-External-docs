@@ -1,0 +1,3 @@
+# What might be causing a pounding sensation in my chest?
+
+Experiencing chest pounding may indicate underlying issues such as potassium deficiency or acidic pH levels. Addressing these concerns involves prioritizing potassium-rich foods or supplements, reducing acidic intake from beverages like kombucha, and considering B1 supplementation to support heart function. Consulting a healthcare provider for personalized guidance and testing is recommended for effective management of chest pounding symptoms.

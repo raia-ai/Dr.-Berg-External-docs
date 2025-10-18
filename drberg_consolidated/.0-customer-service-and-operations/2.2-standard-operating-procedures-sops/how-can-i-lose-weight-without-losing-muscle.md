@@ -1,0 +1,3 @@
+# How can I lose weight without losing muscle?
+
+There are three sources of fuel: 1. Sugar fuel 2. Fat fuel 3. Protein Your body will break down protein in the weight loss process if you don't have enough branched amino acids. Branched amino acids will help prevent the breakdown of muscle tissue when you're working out and trying to lose weight. What you need to lose weight and keep muscle: Branched amino acids Foods that are high in branched amino acids: 1. Eggs 2. Cottage cheese (Needs to be organic) 3. Soy (Don't do soy)

@@ -1,0 +1,3 @@
+# What are the key benefits of wheatgrass?
+
+Dr. Berg talks about the 12 scientific benefits of superfood wheat grass juice. 1. Ulcers (inner skin) 2. Burns from radiation or fire 3. Steroid cream withdraw 4. Insulin resistance 5. Anti-arthritic properties 6. Certain blood disorders 7. Ulcerative colitis 8. Reduce toxicity of chemotherapy 9. Anemia 10. Liver detoxification 11. Anti-allergy 12. Anti-asthmahttps://hls-player.drberg.com/asset?path=migrated-assets/12-scientific-health-benefits-of-wheat-grass-powder-by-drberg

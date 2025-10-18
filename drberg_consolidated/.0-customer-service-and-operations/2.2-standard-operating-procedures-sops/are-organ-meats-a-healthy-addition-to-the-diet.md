@@ -1,0 +1,3 @@
+# Are organ meats a healthy addition to the diet?
+
+The answer is "yes", but only the highest quality and grass-fed ones. Animal organs have a tremendous amount of vitamins and minerals, some even higher than sprouts and cruciferous vegetables which are known for their high quantities of vitamins and mineral contents. Organ meats are also great for dogs and Dr. Eric Berg explains how dog food can be mostly grains and not be what your dog needs and wants in a meal.https://hls-player.drberg.com/asset?path=migrated-assets/organ-meats-unhealthy-or-healthy-drberg-on-keto-meats

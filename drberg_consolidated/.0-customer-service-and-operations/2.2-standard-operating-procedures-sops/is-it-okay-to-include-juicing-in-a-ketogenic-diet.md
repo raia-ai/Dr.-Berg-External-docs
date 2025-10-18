@@ -1,0 +1,3 @@
+# Is it okay to include juicing in a ketogenic diet?
+
+Juicing vegetables isn't ideal for keto or fasting, unless you're using a juice powder. Vegetable juices often contain more carbs than expected, slowing ketosis and weight loss. Juicing removes fiber, increasing net carbs compared to whole vegetables. It also reduces phytonutrients, important for health. If you crave juice, try inositol to combat insulin resistance or bile salts to reduce cravings and increase satisfaction after meals.

@@ -1,0 +1,3 @@
+# What nutrient deficiency is linked to asthma?
+
+A common nutrient deficiency associated with asthma is vitamin D deficiency. Symptoms of asthma include wheezing, shortness of breath, chest tightness, and coughing. Vitamin D deficiency may contribute to structural changes in lung tissue, affecting gas exchange, lung volume, and smooth muscle composition. In asthma, inflammation disrupts immune protection in the lung lining, involving T helper and T regulatory cells. Dysfunctions in these cells lead to immune overreaction and inflammation triggers. Vitamin D supplementation, at doses like 20,000 IUs of vitamin D3, may help reduce inflammation, remodel lung tissues, and enhance cortisol function in the lungs, potentially alleviating asthma symptoms.

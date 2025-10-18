@@ -1,0 +1,3 @@
+# Is it better to drink Wheatgrass Juice during the day or after a meal?
+
+Wheatgrass, the young wheat plant, doesn't contain gluten. Studies show it reduces the severity of ulcerative colitis and rectal bleeding and helps with internal inflammation and skin conditions. It's beneficial for genetic conditions causing low hemoglobin due to its chlorophyll content, known as "green blood therapy."Wheatgrass juice powder, especially from plants grown in fertile soil, is highly beneficial. It can reduce the need for blood transfusions, likely due to its vitamins and phytonutrients.Take wheatgrass juice powder 1-3 times daily, with or without meals, or add it to shakes. Enjoy the numerous health benefits!

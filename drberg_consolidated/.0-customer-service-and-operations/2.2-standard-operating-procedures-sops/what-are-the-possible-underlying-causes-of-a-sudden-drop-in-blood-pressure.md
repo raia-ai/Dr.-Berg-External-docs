@@ -1,0 +1,3 @@
+# What are the possible underlying causes of a sudden drop in blood pressure?
+
+A sudden drop in blood pressure can arise from several underlying factors. It may occur following a reduction in dietary salt intake or due to compromised adrenal function, which can lead to orthostatic hypotension (a drop in blood pressure upon standing). The Ragland's Test can be utilized to evaluate adrenal performance in these scenarios. Additionally, low blood pressure may result from inadequate fluid intake or insufficient sodium consumption. To stabilize blood pressure levels, it is advisable to increase fluid intake and consider incorporating sea salt into your diet.

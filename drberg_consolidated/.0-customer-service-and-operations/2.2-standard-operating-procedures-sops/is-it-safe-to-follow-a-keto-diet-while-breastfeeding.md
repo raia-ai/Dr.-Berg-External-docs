@@ -1,0 +1,3 @@
+# Is it safe to follow a keto diet while breastfeeding?
+
+Yes. Ketosis if done correctly is nutrient-dense and it’s very healthy for a woman who is either pregnant or has breastfeeding to do. The unhealthy thing is feeding your infant formula, due to the massive amount of carbs and sugars it contains.Caution: Do not go low-fat because you need essential fatty acids like DHA.What to consume during breastfeeding to get vital essential nutrients:ShellfishFishCod liver oilNutritional yeastOrgan meatsEggsBig saladsImportant: Make sure when you’re buying food, it’s non-GMO.

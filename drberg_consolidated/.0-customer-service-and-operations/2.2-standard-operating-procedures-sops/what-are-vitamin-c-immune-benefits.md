@@ -1,0 +1,3 @@
+# What are Vitamin C immune benefits?
+
+Vitamin C is a very powerful antioxidant. Free-radicals can damage certain things in the body. Vitamin C can help counter free-radical damage. Immune benefits of vitamin C: 1. Enhanced antibodies 2. Increased neutrophil motility 3. Enhanced B-cells (increases antibodies) 4. Enhanced T-cells (helps fight pathogens)https://hls-player.drberg.com/asset?path=migrated-assets/vitamin-cs-immune-benefits

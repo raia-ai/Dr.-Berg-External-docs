@@ -1,0 +1,3 @@
+# What are dangers of not absorbing fats?
+
+Deficiency from NOT Absorbing Fats • Low Essential Fatty Acids - DHA, EPA • Vitamin E • Vitamin D • Vitamin A • Vitamin K1 and K2 • Cholesterol - Hormones Symptoms from NOT Absorbing Fats • Fatty Pale Stool • Foul Smell Stool • Protruded Abdomen • Weak Muscles • Scoliosis • Low Vision • Ataxia • Retinal Damage • Other vision problem https://hls-player.drberg.com/asset?path=migrated-assets/the-danger-of-not-absorbing-fats-drberg

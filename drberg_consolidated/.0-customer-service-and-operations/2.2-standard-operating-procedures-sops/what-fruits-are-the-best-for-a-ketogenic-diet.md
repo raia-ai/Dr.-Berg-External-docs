@@ -1,0 +1,3 @@
+# What fruits are the best for a ketogenic diet?
+
+Fruits that are lower in sugar include avocados, lemons, limes, coconuts, and tomatoes (in moderate amounts). Other low-sugar options are pomegranate seeds, starfruit, and berries such as raspberries, blackberries, strawberries, and blueberries.https://hls-player.drberg.com/asset?path=migrated-assets/berries-vsfruits-on-keto-drberg-on-glycemic-index-of-fruits

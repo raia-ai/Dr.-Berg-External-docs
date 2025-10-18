@@ -1,0 +1,3 @@
+# What is the best supplement for thyroid support?
+
+It’s true there’s a chemical called thiocyanate in some cruciferous vegetables, and it has the capacity to compete for iodine, which your thyroid needs. The last thing you want is for thiocyanate to compete for iodine and leave you hypothyroid (too low thyroid).Cruciferous vegetables are antitumor, anticancer, and have the capacity to shut down growth of blood vessels to a tumor. They contain folate, high vitamin C, vitamin K1, potassium, selenium, and calcium, along with phytonutrients and chlorophyll.https://hls-player.drberg.com/asset?path=migrated-assets/cruciferous-vegetables-can-help-thyroid-function-not-kill-it-drberg

@@ -1,0 +1,3 @@
+# What minerals make up the Trace Mineral Complex?
+
+The Trace Mineral Complex comprises over 70 trace minerals in trace amounts, most in ppm (1 ppm = 1 mg/kg = 1 µg/g). The complete list of trace minerals in the Trace Mineral Complex is below. Please note: Our products contain 5, 10, 50, or 100 mg of Trace Minerals Complex. Each number in the Result column must be divided by 200, 100, 20, or 10, respectively, to determine the amount of a mineral in each serving of your product.

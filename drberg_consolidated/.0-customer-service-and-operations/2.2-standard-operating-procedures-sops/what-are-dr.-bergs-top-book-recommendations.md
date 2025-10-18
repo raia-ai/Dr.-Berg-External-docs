@@ -1,0 +1,3 @@
+# What are Dr. Berg's top book recommendations?
+
+These are Dr. Berg's top book recommendations:Embrace the Sun - Marc B. Sorenson, Ed. D, William Grant and more authors. Super Gut - By William Davis The Technology of War - Sun Tzu (translated by Colin Thorne)Soil, Grass & Cancer - Andre Voisin's Classic TextThe Miraculous Results of Extremely High Doses of the Sunshine Hormone Vitamin D3 - Jeff T. Bowles

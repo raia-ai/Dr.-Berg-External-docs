@@ -1,0 +1,3 @@
+# What is costochondritis, and what causes it?
+
+Costochondritis means chest wall pain and inflammation. You don’t necessarily have to have a lung infection or have an accident to eventually have this condition. Let’s look at the common causes behind it and remedies for it.Symptoms:• Pain in the chest (whether at left or right side or middle)https://hls-player.drberg.com/asset?path=migrated-assets/what-really-causes-chest-pain-due-to-costochondritis-costosternal-syndrome-drberg

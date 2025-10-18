@@ -1,0 +1,3 @@
+# What can cause scalp tingling?
+
+Scalp tingling can often be attributed to a microbial imbalance, potentially involving the growth of fungi or other pathogens. To address this issue, consider a topical treatment combining neem oil and effective microorganisms (EM) with coconut oil. This mixture serves as a potent antimicrobial solution. Apply this blend to your scalp to help restore microbial balance and alleviate tingling sensations.

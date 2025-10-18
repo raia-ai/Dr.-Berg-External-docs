@@ -1,0 +1,655 @@
+# Heart Health Videos
+
+*This document contains 5 YouTube videos with full timestamped transcripts. Click any timestamp to jump to that exact moment in the video.*
+
+---
+
+
+## Video 1: Depression Has NOTHING to Do With Your Brain
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=iJgti1K5A9g](https://www.youtube.com/watch?v=iJgti1K5A9g)
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=iJgti1K5A9g&t=0s)** — Depression has absolutely nothing to do with your brain.
+- **[00:04](https://www.youtube.com/watch?v=iJgti1K5A9g&t=4s)** — It has everything to do with your gut.
+- **[00:07](https://www.youtube.com/watch?v=iJgti1K5A9g&t=7s)** — So many people have been operating off of this idea.
+- **[00:10](https://www.youtube.com/watch?v=iJgti1K5A9g&t=10s)** — Depression is a chemical imbalance that you need to fix with SSRIs,
+- **[00:16](https://www.youtube.com/watch?v=iJgti1K5A9g&t=16s)** — selective serotonin reuptake inhibitors.
+- **[00:19](https://www.youtube.com/watch?v=iJgti1K5A9g&t=19s)** — Well, this chemical imbalance theory has never been proven.
+- **[00:23](https://www.youtube.com/watch?v=iJgti1K5A9g&t=23s)** — In fact, in some studies, it shows that people that are depressed
+- **[00:27](https://www.youtube.com/watch?v=iJgti1K5A9g&t=27s)** — have normal serotonin or even higher amounts of serotonin.
+- **[00:32](https://www.youtube.com/watch?v=iJgti1K5A9g&t=32s)** — In your nervous system, you have all these different hormonal-like communications.
+- **[00:37](https://www.youtube.com/watch?v=iJgti1K5A9g&t=37s)** — One of them is serotonin.
+- **[00:38](https://www.youtube.com/watch?v=iJgti1K5A9g&t=38s)** — And serotonin does have an effect over your mood,
+- **[00:42](https://www.youtube.com/watch?v=iJgti1K5A9g&t=42s)** — just like dopamine has an effect of motivating you.
+- **[00:45](https://www.youtube.com/watch?v=iJgti1K5A9g&t=45s)** — But what an SSRI does is it blocks the uptake of serotonin.
+- **[00:51](https://www.youtube.com/watch?v=iJgti1K5A9g&t=51s)** — Let's say, for example, we have a marriage, right?
+- **[00:53](https://www.youtube.com/watch?v=iJgti1K5A9g&t=53s)** — We have a husband and a wife, and they're communicating.
+- **[00:55](https://www.youtube.com/watch?v=iJgti1K5A9g&t=55s)** — And the husband sends a communication over to the wife, but she's wearing earplugs.
+- **[01:00](https://www.youtube.com/watch?v=iJgti1K5A9g&t=60s)** — That's the SSRI effect, right? You wear earplugs.
+- **[01:03](https://www.youtube.com/watch?v=iJgti1K5A9g&t=63s)** — And so then the husband starts shouting.
+- **[01:05](https://www.youtube.com/watch?v=iJgti1K5A9g&t=65s)** — Is that going to fix the marriage? No.
+- **[01:07](https://www.youtube.com/watch?v=iJgti1K5A9g&t=67s)** — Dr. Peter Gosch wrote several books on this topic,
+- **[01:11](https://www.youtube.com/watch?v=iJgti1K5A9g&t=71s)** — and he basically said SSRIs are basically placebos.
+- **[01:16](https://www.youtube.com/watch?v=iJgti1K5A9g&t=76s)** — Hey, well, you know what? At least they're getting some benefit, right?
+- **[01:18](https://www.youtube.com/watch?v=iJgti1K5A9g&t=78s)** — Yeah, but what about the side effects?
+- **[01:20](https://www.youtube.com/watch?v=iJgti1K5A9g&t=80s)** — Because in his book, he talks about the massive serious side effects of SSRIs.
+- **[01:25](https://www.youtube.com/watch?v=iJgti1K5A9g&t=85s)** — Sexual dysfunction, no orgasm, decreased libido.
+- **[01:29](https://www.youtube.com/watch?v=iJgti1K5A9g&t=89s)** — You don't experience emotion anymore, worsening of the depression.
+- **[01:33](https://www.youtube.com/watch?v=iJgti1K5A9g&t=93s)** — Let's just compare that with something like St. John's Wort.
+- **[01:35](https://www.youtube.com/watch?v=iJgti1K5A9g&t=95s)** — St. John's Wort doesn't just deal with serotonin.
+- **[01:38](https://www.youtube.com/watch?v=iJgti1K5A9g&t=98s)** — It deals with dopamine. It's an anti-inflammatory.
+- **[01:41](https://www.youtube.com/watch?v=iJgti1K5A9g&t=101s)** — It even reduces cortisol.
+- **[01:43](https://www.youtube.com/watch?v=iJgti1K5A9g&t=103s)** — And what does the medical profession say about St. John's Wort?
+- **[01:45](https://www.youtube.com/watch?v=iJgti1K5A9g&t=105s)** — They say, well, you have to be careful not to take it,
+- **[01:47](https://www.youtube.com/watch?v=iJgti1K5A9g&t=107s)** — because if you're taking that and a psych drug,
+- **[01:50](https://www.youtube.com/watch?v=iJgti1K5A9g&t=110s)** — and you might increase serotonin, St. John's Wort has very little side effects.
+- **[01:54](https://www.youtube.com/watch?v=iJgti1K5A9g&t=114s)** — And it actually works better than the placebo,
+- **[01:57](https://www.youtube.com/watch?v=iJgti1K5A9g&t=117s)** — because it's a natural thing and it does a lot of different things.
+- **[02:00](https://www.youtube.com/watch?v=iJgti1K5A9g&t=120s)** — And there's some interesting things about Prozac.
+- **[02:02](https://www.youtube.com/watch?v=iJgti1K5A9g&t=122s)** — Prozac is an SSRI.
+- **[02:04](https://www.youtube.com/watch?v=iJgti1K5A9g&t=124s)** — When Prozac came on the market in 1988,
+- **[02:07](https://www.youtube.com/watch?v=iJgti1K5A9g&t=127s)** — a couple years later, in 1990,
+- **[02:09](https://www.youtube.com/watch?v=iJgti1K5A9g&t=129s)** — there was a outbreak of some serious side effects
+- **[02:13](https://www.youtube.com/watch?v=iJgti1K5A9g&t=133s)** — where they had a bad batch of tryptophan.
+- **[02:16](https://www.youtube.com/watch?v=iJgti1K5A9g&t=136s)** — So the FDA decided to ban tryptophan for quite some time.
+- **[02:22](https://www.youtube.com/watch?v=iJgti1K5A9g&t=142s)** — They lifted the band of tryptophan
+- **[02:24](https://www.youtube.com/watch?v=iJgti1K5A9g&t=144s)** — right after the patents for Prozac ran out.
+- **[02:27](https://www.youtube.com/watch?v=iJgti1K5A9g&t=147s)** — Let's shift gears to our gut.
+- **[02:30](https://www.youtube.com/watch?v=iJgti1K5A9g&t=150s)** — Your gut makes serotonin.
+- **[02:32](https://www.youtube.com/watch?v=iJgti1K5A9g&t=152s)** — It also makes something called oxytocin,
+- **[02:35](https://www.youtube.com/watch?v=iJgti1K5A9g&t=155s)** — a very powerful hormone that can help people with depression, stress.
+- **[02:40](https://www.youtube.com/watch?v=iJgti1K5A9g&t=160s)** — Typically, people think about oxytocin as the hormone
+- **[02:43](https://www.youtube.com/watch?v=iJgti1K5A9g&t=163s)** — for bonding between a mother and a baby,
+- **[02:45](https://www.youtube.com/watch?v=iJgti1K5A9g&t=165s)** — or when a mother is breastfeeding,
+- **[02:48](https://www.youtube.com/watch?v=iJgti1K5A9g&t=168s)** — Oxytocin is also there to increase contractions during a pregnancy.
+- **[02:52](https://www.youtube.com/watch?v=iJgti1K5A9g&t=172s)** — So it has multiple functions.
+- **[02:53](https://www.youtube.com/watch?v=iJgti1K5A9g&t=173s)** — But just realize that your gut makes oxytocin.
+- **[02:57](https://www.youtube.com/watch?v=iJgti1K5A9g&t=177s)** — And there is a highway between your gut and your brain.
+- **[03:02](https://www.youtube.com/watch?v=iJgti1K5A9g&t=182s)** — It's called the vagus nerve.
+- **[03:03](https://www.youtube.com/watch?v=iJgti1K5A9g&t=183s)** — Communication from your gut to your brain is very, very heavy.
+- **[03:06](https://www.youtube.com/watch?v=iJgti1K5A9g&t=186s)** — It's like 80%.
+- **[03:07](https://www.youtube.com/watch?v=iJgti1K5A9g&t=187s)** — And then we have 20% of information going from your brain down to the gut.
+- **[03:12](https://www.youtube.com/watch?v=iJgti1K5A9g&t=192s)** — So your brain is monitoring what's going on in your gut
+- **[03:15](https://www.youtube.com/watch?v=iJgti1K5A9g&t=195s)** — and then the rest of your heart and other organs as well.
+- **[03:19](https://www.youtube.com/watch?v=iJgti1K5A9g&t=199s)** — That's how your brain monitors the rest of your body through the vagus nerve.
+- **[03:21](https://www.youtube.com/watch?v=iJgti1K5A9g&t=201s)** — And so if your gut microbes are not doing well,
+- **[03:24](https://www.youtube.com/watch?v=iJgti1K5A9g&t=204s)** — this alone can create depression.
+- **[03:27](https://www.youtube.com/watch?v=iJgti1K5A9g&t=207s)** — In fact, when other studies, when you take depressed people
+- **[03:29](https://www.youtube.com/watch?v=iJgti1K5A9g&t=209s)** — and you look at their gut microbiome,
+- **[03:31](https://www.youtube.com/watch?v=iJgti1K5A9g&t=211s)** — there are some serious missing microbes.
+- **[03:34](https://www.youtube.com/watch?v=iJgti1K5A9g&t=214s)** — This area of gut microbiome is completely underappreciated
+- **[03:39](https://www.youtube.com/watch?v=iJgti1K5A9g&t=219s)** — in the area of mental health.
+- **[03:41](https://www.youtube.com/watch?v=iJgti1K5A9g&t=221s)** — Also, if you have gut inflammation,
+- **[03:43](https://www.youtube.com/watch?v=iJgti1K5A9g&t=223s)** — you're not going to feel good mood-wise.
+- **[03:45](https://www.youtube.com/watch?v=iJgti1K5A9g&t=225s)** — This is why what you eat is so vitally important with how you feel up here.
+- **[03:49](https://www.youtube.com/watch?v=iJgti1K5A9g&t=229s)** — And this is all very interesting.
+- **[03:51](https://www.youtube.com/watch?v=iJgti1K5A9g&t=231s)** — But when you also think about antibiotics,
+- **[03:53](https://www.youtube.com/watch?v=iJgti1K5A9g&t=233s)** — one of the big side effects of taking antibiotics is depression.
+- **[03:58](https://www.youtube.com/watch?v=iJgti1K5A9g&t=238s)** — Because you're now erasing the good bacteria
+- **[04:00](https://www.youtube.com/watch?v=iJgti1K5A9g&t=240s)** — that controls your mood chemicals.
+- **[04:03](https://www.youtube.com/watch?v=iJgti1K5A9g&t=243s)** — It wipes them out overnight.
+- **[04:05](https://www.youtube.com/watch?v=iJgti1K5A9g&t=245s)** — And then you think, oh yeah, the microbes will start to grow back.
+- **[04:08](https://www.youtube.com/watch?v=iJgti1K5A9g&t=248s)** — No, a lot of times they don't grow back.
+- **[04:10](https://www.youtube.com/watch?v=iJgti1K5A9g&t=250s)** — So now you have this imbalance and you wonder why you're depressed.
+- **[04:12](https://www.youtube.com/watch?v=iJgti1K5A9g&t=252s)** — In practice, I would ask people, when did you start getting depressed?
+- **[04:16](https://www.youtube.com/watch?v=iJgti1K5A9g&t=256s)** — Did you take an antibiotic right before that?
+- **[04:20](https://www.youtube.com/watch?v=iJgti1K5A9g&t=260s)** — Many times they would say, yes, how did you know?
+- **[04:23](https://www.youtube.com/watch?v=iJgti1K5A9g&t=263s)** — The gut microbiome is a chemical factory.
+- **[04:25](https://www.youtube.com/watch?v=iJgti1K5A9g&t=265s)** — Good chemicals that will send chemicals up through this nerve,
+- **[04:28](https://www.youtube.com/watch?v=iJgti1K5A9g&t=268s)** — goes up to your brain and infects your mood.
+- **[04:30](https://www.youtube.com/watch?v=iJgti1K5A9g&t=270s)** — If you have not seen my other video,
+- **[04:33](https://www.youtube.com/watch?v=iJgti1K5A9g&t=273s)** — I'm going to put a link down below,
+- **[04:33](https://www.youtube.com/watch?v=iJgti1K5A9g&t=273s)** — but I want to tell you a little bit about this amazing microbe.
+- **[04:36](https://www.youtube.com/watch?v=iJgti1K5A9g&t=276s)** — You can buy Elruderi as a microbe in a supplement.
+- **[04:39](https://www.youtube.com/watch?v=iJgti1K5A9g&t=279s)** — But many times it's not in the potency
+- **[04:41](https://www.youtube.com/watch?v=iJgti1K5A9g&t=281s)** — that you really need to create the effect.
+- **[04:43](https://www.youtube.com/watch?v=iJgti1K5A9g&t=283s)** — And Dr. William Davis told me about an amazing way
+- **[04:46](https://www.youtube.com/watch?v=iJgti1K5A9g&t=286s)** — to cultivate this microbe using all to pasteurize half and half.
+- **[04:51](https://www.youtube.com/watch?v=iJgti1K5A9g&t=291s)** — And you basically put it in a yogurt maker and for 36 hours
+- **[04:54](https://www.youtube.com/watch?v=iJgti1K5A9g&t=294s)** — and then you just take a half a cup a day.
+- **[04:56](https://www.youtube.com/watch?v=iJgti1K5A9g&t=296s)** — I've been doing this for months and I want to tell you something.
+- **[04:59](https://www.youtube.com/watch?v=iJgti1K5A9g&t=299s)** — It's a game changer.
+- **[05:00](https://www.youtube.com/watch?v=iJgti1K5A9g&t=300s)** — The first thing that my wife actually noticed
+- **[05:02](https://www.youtube.com/watch?v=iJgti1K5A9g&t=302s)** — is she kept saying, why are you hugging me five times a day?
+- **[05:07](https://www.youtube.com/watch?v=iJgti1K5A9g&t=307s)** — What's gotten into you? I said, I don't know.
+- **[05:09](https://www.youtube.com/watch?v=iJgti1K5A9g&t=309s)** — I just have been consuming this yogurt.
+- **[05:10](https://www.youtube.com/watch?v=iJgti1K5A9g&t=310s)** — It just makes me very social.
+- **[05:13](https://www.youtube.com/watch?v=iJgti1K5A9g&t=313s)** — I don't know. It's really wild.
+- **[05:14](https://www.youtube.com/watch?v=iJgti1K5A9g&t=314s)** — She goes, well, just keep keep taking that yogurt.
+- **[05:16](https://www.youtube.com/watch?v=iJgti1K5A9g&t=316s)** — I noticed my sleep is better.
+- **[05:18](https://www.youtube.com/watch?v=iJgti1K5A9g&t=318s)** — My muscle is better because it increases stem cell for your muscles.
+- **[05:21](https://www.youtube.com/watch?v=iJgti1K5A9g&t=321s)** — It reduces stress.
+- **[05:23](https://www.youtube.com/watch?v=iJgti1K5A9g&t=323s)** — And if you watch my previous videos on this and you read the comments,
+- **[05:26](https://www.youtube.com/watch?v=iJgti1K5A9g&t=326s)** — it'll blow your mind.
+- **[05:27](https://www.youtube.com/watch?v=iJgti1K5A9g&t=327s)** — How many people are just getting amazing results with this probiotic.
+- **[05:33](https://www.youtube.com/watch?v=iJgti1K5A9g&t=333s)** — It acts as a natural antibiotic without any side effects that I could perceive.
+- **[05:38](https://www.youtube.com/watch?v=iJgti1K5A9g&t=338s)** — Another interesting point about L-Rotoroy, where does it come from?
+- **[05:42](https://www.youtube.com/watch?v=iJgti1K5A9g&t=342s)** — Well, it's actually in mother's breast milk.
+- **[05:46](https://www.youtube.com/watch?v=iJgti1K5A9g&t=346s)** — Breastfeeding is not as common as it was years ago.
+- **[05:49](https://www.youtube.com/watch?v=iJgti1K5A9g&t=349s)** — And antibiotics are extremely common.
+- **[05:53](https://www.youtube.com/watch?v=iJgti1K5A9g&t=353s)** — And so these gut microbes are something that we need to put more attention on.
+- **[05:57](https://www.youtube.com/watch?v=iJgti1K5A9g&t=357s)** — So I highly recommend that you cultivate this L-Rotoroy.
+- **[05:59](https://www.youtube.com/watch?v=iJgti1K5A9g&t=359s)** — I will put some information down below of exactly how to do it.
+- **[06:04](https://www.youtube.com/watch?v=iJgti1K5A9g&t=364s)** — And then you're going to realize that your depression really had nothing to do with your brain.
+- **[06:11](https://www.youtube.com/watch?v=iJgti1K5A9g&t=371s)** — It had everything to do with your gut.
+- **[06:14](https://www.youtube.com/watch?v=iJgti1K5A9g&t=374s)** — Thanks for watching.
+
+
+---
+
+
+## Video 2: Preserving Your Muscles as You Age - Dr. Berg
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=e5MhlSjvXh8](https://www.youtube.com/watch?v=e5MhlSjvXh8)
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=0s)** — Let's talk about how to salvage your muscles as you get older.
+- **[00:05](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=5s)** — Both men and women. When women hit the age of 50, they go through this process, this change called menopause.
+- **[00:13](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=13s)** — And when they go through menopause, they have all sorts of changes in their hormones, which I'm going to cover.
+- **[00:18](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=18s)** — Men start developing more hormonal changes more when they're 60.
+- **[00:22](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=22s)** — Now, what I'm primarily going to focus in on with these hormones is
+- **[00:26](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=26s)** — the relationship between what happens to one's muscles.
+- **[00:30](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=30s)** — Okay? The term for this is called sarcopenia.
+- **[00:33](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=33s)** — The Latin word for sarcopenia means basically poverty of the flesh.
+- **[00:39](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=39s)** — You're deficient in skeletal muscle.
+- **[00:42](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=42s)** — And this relates to just getting older.
+- **[00:45](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=45s)** — As we all are aging, including myself, I'm going to be 59, which is very weird because I don't feel 59.
+- **[00:52](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=52s)** — So, of course, I'm doing a deep dive in this to preserve my muscles as long as possible.
+- **[00:57](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=57s)** — Why is this important?
+- **[00:59](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=59s)** — Because as we age and we lose our muscles, we lose a lot of our metabolism.
+- **[01:04](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=64s)** — Now, this is not just related to your metabolic rate,
+- **[01:08](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=68s)** — the speed at which your ability to burn fat or your capacity to burn fat,
+- **[01:12](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=72s)** — but also all the other things that are connected with metabolism as well.
+- **[01:16](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=76s)** — You have a lot of mitochondria in your muscles, right?
+- **[01:18](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=78s)** — So, if you're losing your muscles, you're going to lose a lot of your mitochondria, the energy factories of the body.
+- **[01:22](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=82s)** — And roughly as we get older, we lose between 1 and 2% of our muscles each year.
+- **[01:27](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=87s)** — As far as the percentage of our metabolism related to muscle, it's roughly about 40%.
+- **[01:32](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=92s)** — So, it's pretty significant.
+- **[01:33](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=93s)** — Let's start with females and estrogen.
+- **[01:36](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=96s)** — Estrogen does decrease as you get older.
+- **[01:39](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=99s)** — It goes down a certain curve.
+- **[01:43](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=103s)** — But this other hormone, progesterone, tanks even lower, almost to the point where it's almost zero.
+- **[01:49](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=109s)** — So, if we don't have any progesterone, we get a lot of problems with estrogen.
+- **[01:54](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=114s)** — And estrogen, relating to this topic, affects your bone, affects your muscle,
+- **[01:59](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=119s)** — your connective tissue, your collagen, your cartilage.
+- **[02:03](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=123s)** — And so, you start losing this connective tissue underneath the skin and things start sagging and hanging and you start getting wrinkles.
+- **[02:09](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=129s)** — Not to mention, estrogen has a function of helping you regenerate and rejuvenate and repair muscle.
+- **[02:15](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=135s)** — A lot of women lose their muscle because of this darn estrogen.
+- **[02:20](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=140s)** — Now, typically men develop ALS, amyotrophic lateral sclerosis.
+- **[02:25](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=145s)** — It's a severe neurodegeneration within your spinal column and other nerves.
+- **[02:32](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=152s)** — So, men develop this condition, ALS, four times more than females, until menopause.
+- **[02:41](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=161s)** — Then, the ratio is one to one.
+- **[02:44](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=164s)** — And what's interesting about progesterone, it's an extremely potent neuroprotector.
+- **[02:52](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=172s)** — Interesting. Especially if someone has ALS.
+- **[02:55](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=175s)** — Is there any relationship between increasing your cholesterol or decreasing your cholesterol and muscle?
+- **[03:01](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=181s)** — Yes, there is. Take a look at statin drugs. What's the biggest side effect of statin drugs?
+- **[03:06](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=186s)** — Muscle damage, muscle diseases. Why?
+- **[03:10](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=190s)** — Because you need cholesterol to make these steroid hormones, including testosterone.
+- **[03:17](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=197s)** — And so cholesterol is very important as the raw material to help you build muscle.
+- **[03:22](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=202s)** — So, if you're trying to salvage your muscles, be careful about going on a low fat diet
+- **[03:26](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=206s)** — and also a low cholesterol diet.
+- **[03:29](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=209s)** — And of course, statins, check with your doctor before wanting to come off of that.
+- **[03:33](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=213s)** — I'm not telling you to come off of it.
+- **[03:35](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=215s)** — And then cholesterol then turns into pregnenolome and DHEA.
+- **[03:39](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=219s)** — And pregnenolome, as it decreases, causes an increase.
+- **[03:45](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=225s)** — I think it's a compensatory thing for cortisol.
+- **[03:49](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=229s)** — So we get this decrease in DHEA, decrease in pregnenolome, decrease in estrogen,
+- **[03:55](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=235s)** — decrease in progesterone, decrease in testosterone, which we all know
+- **[04:00](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=240s)** — affects libido as well as muscle physiology.
+- **[04:04](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=244s)** — And growth hormone also goes down.
+- **[04:07](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=247s)** — And there's another hormone involved that I want to talk about.
+- **[04:10](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=250s)** — And that is melatonin.
+- **[04:13](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=253s)** — Now when we think about melatonin, we think about the sleep hormone.
+- **[04:17](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=257s)** — Well, there's two types of melatonin.
+- **[04:19](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=259s)** — One is to help induce you going to sleep.
+- **[04:22](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=262s)** — The other one, it's a very important protector of the mitochondria,
+- **[04:27](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=267s)** — which is again in the muscles.
+- **[04:30](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=270s)** — And as far as how much that melatonin decreases as we age, it decreases by like 10 times.
+- **[04:35](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=275s)** — So when we're young, it's very high.
+- **[04:38](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=278s)** — When we get older, it gets less and less and less,
+- **[04:40](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=280s)** — which could explain why we have a hard time sleeping.
+- **[04:43](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=283s)** — In the pituitary, there's two hormones that control the testicle as well as the ovaries.
+- **[04:50](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=290s)** — So there's a pathway there.
+- **[04:52](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=292s)** — And that would be called luteinizing hormone.
+- **[04:55](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=295s)** — And the other one is folliculostimulating hormone.
+- **[04:57](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=297s)** — And they're basically a communication from the pituitary down to the gonads
+- **[05:01](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=301s)** — to tell the gonads to release its hormones.
+- **[05:04](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=304s)** — With a man, as we get older, both of those hormones skyrocket up to like a thousand percent.
+- **[05:15](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=315s)** — Now what you should know about this luteinizing hormone and folliculostimulating hormone is that
+- **[05:19](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=319s)** — you can suppress it by increasing melatonin.
+- **[05:23](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=323s)** — So melatonin keeps those other two hormones in check,
+- **[05:26](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=326s)** — which is a really good solution.
+- **[05:28](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=328s)** — But the problem is our melatonin has crashed by 10 times.
+- **[05:31](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=331s)** — So how do we increase it?
+- **[05:33](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=333s)** — Is infrared light.
+- **[05:35](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=335s)** — Just being outside, you're going to be exposed to infrared.
+- **[05:39](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=339s)** — Over half of the sun's rays is infrared.
+- **[05:43](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=343s)** — And also infrared penetrates your skull like two inches into the body.
+- **[05:49](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=349s)** — So it can help recharge your cells of melatonin.
+- **[05:52](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=352s)** — You can also get infrared from sitting in front of your fireplace
+- **[05:56](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=356s)** — or to have candles or even a campfire.
+- **[06:01](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=361s)** — What diminishes infrared is artificial lights,
+- **[06:04](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=364s)** — LED lights, blue light from all the cell phone, the computer, all that stuff.
+- **[06:10](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=370s)** — So now let's talk about how to salvage our muscles as long as possible.
+- **[06:14](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=374s)** — Okay, this is the formula.
+- **[06:16](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=376s)** — You ready for this?
+- **[06:17](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=377s)** — Number two, resistance exercise.
+- **[06:21](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=381s)** — Regular, consistent exercise to take your muscles and put them against resistance,
+- **[06:27](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=387s)** — whether it's weight training or bands or any type of exercise.
+- **[06:31](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=391s)** — You want to start doing that and keep it implemented the rest of your life
+- **[06:36](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=396s)** — because exercise is the most potent stimulator of building muscle, muscle synthesis.
+- **[06:42](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=402s)** — Number three, animal protein.
+- **[06:44](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=404s)** — 0.8 to 1.2 grams of protein per kilogram of weight.
+- **[06:51](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=411s)** — So I weigh 185 pounds.
+- **[06:53](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=413s)** — That comes out to about 84 kilograms.
+- **[06:58](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=418s)** — So I should be consuming roughly between 67 to 100 grams of protein.
+- **[07:04](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=424s)** — Now, it can be a little bit less, it could be a little bit more,
+- **[07:07](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=427s)** — but you definitely need more protein because if you're starving yourself of protein,
+- **[07:12](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=432s)** — you're not going to be able to salvage your muscles.
+- **[07:14](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=434s)** — A lot of people are on this Ozempic medication.
+- **[07:19](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=439s)** — And one of the main side effects of that is severe muscle loss.
+- **[07:24](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=444s)** — So here you are losing all this body fat.
+- **[07:26](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=446s)** — But you're also losing a lot of muscle protein.
+- **[07:30](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=450s)** — I'm not recommending that as a solution for losing weight.
+- **[07:34](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=454s)** — Number four, make sure you have enough cholesterol.
+- **[07:37](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=457s)** — You can get that from meats, dairy, butter, things like that.
+- **[07:42](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=462s)** — Number five, I would recommend taking a Pregnet alone.
+- **[07:45](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=465s)** — You can get this as a supplement.
+- **[07:47](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=467s)** — I would recommend starting out with like 30 milligrams.
+- **[07:51](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=471s)** — If you're male, maybe you start off with 100.
+- **[07:55](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=475s)** — There's not many side effects from taking this,
+- **[07:57](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=477s)** — but this is like a precursor that can give you the raw material
+- **[08:00](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=480s)** — to build these other hormones because taking these other hormones is a very complex thing.
+- **[08:05](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=485s)** — And so you have to know how much to take.
+- **[08:07](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=487s)** — And then when you take these other hormones like testosterone or estrogen or progesterone,
+- **[08:11](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=491s)** — that tends to shut off your ability to produce them even more.
+- **[08:15](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=495s)** — So if you take the precursor, it's a much safer way.
+- **[08:19](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=499s)** — And I would also recommend taking DHEA.
+- **[08:22](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=502s)** — If you're female, take 25 milligrams.
+- **[08:25](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=505s)** — If you're male, you can take 100 milligrams.
+- **[08:28](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=508s)** — DHEA also helps you build muscle and it's a precursor.
+- **[08:32](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=512s)** — Now, as far as taking Pregnet alone and taking DHEA,
+- **[08:37](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=517s)** — you know, I'm not telling you to take this.
+- **[08:39](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=519s)** — I mean, you can do these other things.
+- **[08:40](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=520s)** — But if you notice you have a loss of muscles, okay,
+- **[08:44](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=524s)** — and you want to do something to increase them, then maybe take them.
+- **[08:48](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=528s)** — But I'm not recommending everyone just get on these supplements.
+- **[08:51](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=531s)** — I think adding the exercise, making sure you have enough cholesterol,
+- **[08:55](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=535s)** — making sure you have enough sun for the infrared,
+- **[08:58](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=538s)** — I think that would be sufficient for most people.
+- **[09:01](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=541s)** — But as you get a little bit older and you start noticing the muscle loss,
+- **[09:05](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=545s)** — then you might want to take these other two things.
+- **[09:07](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=547s)** — Now, if you have not seen a very popular video
+- **[09:10](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=550s)** — on this infrared stimulation of the melatonin,
+- **[09:14](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=554s)** — I put this video up right here.
+- **[09:16](https://www.youtube.com/watch?v=e5MhlSjvXh8&t=556s)** — Check that out.
+
+
+---
+
+
+## Video 3: The Dangers and Benefits of Baking Soda
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=udgEofYO4F4](https://www.youtube.com/watch?v=udgEofYO4F4)
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=udgEofYO4F4&t=0s)** — So today we are going to talk about the benefits and the dangers of baking soda,
+- **[00:04](https://www.youtube.com/watch?v=udgEofYO4F4&t=4s)** — which is sodium bicarbonate.
+- **[00:06](https://www.youtube.com/watch?v=udgEofYO4F4&t=6s)** — Now, I don't know if you knew this, but your body actually makes baking soda.
+- **[00:10](https://www.youtube.com/watch?v=udgEofYO4F4&t=10s)** — Okay, it's made by the pancreas and it's triggered by a hormone
+- **[00:16](https://www.youtube.com/watch?v=udgEofYO4F4&t=16s)** — in your small intestine, which gets signaled when the acid comes
+- **[00:19](https://www.youtube.com/watch?v=udgEofYO4F4&t=19s)** — through from the stomach and the stomach, you have this super,
+- **[00:23](https://www.youtube.com/watch?v=udgEofYO4F4&t=23s)** — super acidic mixture between one and three.
+- **[00:26](https://www.youtube.com/watch?v=udgEofYO4F4&t=26s)** — And then it goes into the small intestine, which should go up to like,
+- **[00:29](https://www.youtube.com/watch?v=udgEofYO4F4&t=29s)** — maybe six or seven, sometimes even like 7.5.
+- **[00:34](https://www.youtube.com/watch?v=udgEofYO4F4&t=34s)** — Now, if you know anything about pH's, this is like an extreme difference of pH.
+- **[00:38](https://www.youtube.com/watch?v=udgEofYO4F4&t=38s)** — And so this is very important for several reasons to have these different pH's,
+- **[00:42](https://www.youtube.com/watch?v=udgEofYO4F4&t=42s)** — but the neutralization of that stomach acid is very, very important,
+- **[00:46](https://www.youtube.com/watch?v=udgEofYO4F4&t=46s)** — which I want to mention.
+- **[00:47](https://www.youtube.com/watch?v=udgEofYO4F4&t=47s)** — We don't neutralize the stomach acid, then we get a severe irritation
+- **[00:51](https://www.youtube.com/watch?v=udgEofYO4F4&t=51s)** — and inflammation in our small intestine.
+- **[00:54](https://www.youtube.com/watch?v=udgEofYO4F4&t=54s)** — But it's that baking soda, sodium bicarbonate, that's coming from the pancreas,
+- **[00:57](https://www.youtube.com/watch?v=udgEofYO4F4&t=57s)** — it's going to help neutralize this acid.
+- **[01:00](https://www.youtube.com/watch?v=udgEofYO4F4&t=60s)** — Now, why is this so important?
+- **[01:02](https://www.youtube.com/watch?v=udgEofYO4F4&t=62s)** — Well, because the majority of the enzymes that are needed for digestion
+- **[01:07](https://www.youtube.com/watch?v=udgEofYO4F4&t=67s)** — are activated.
+- **[01:09](https://www.youtube.com/watch?v=udgEofYO4F4&t=69s)** — They get turned on by a much higher pH.
+- **[01:14](https://www.youtube.com/watch?v=udgEofYO4F4&t=74s)** — I mean, if you think about it, if you just look at the stomach,
+- **[01:16](https://www.youtube.com/watch?v=udgEofYO4F4&t=76s)** — pepsin, that's a very powerful protein enzyme,
+- **[01:20](https://www.youtube.com/watch?v=udgEofYO4F4&t=80s)** — and that's activated by a pH between like one to 1.5.
+- **[01:26](https://www.youtube.com/watch?v=udgEofYO4F4&t=86s)** — So with that enzyme, you need a very strong stomach acid.
+- **[01:29](https://www.youtube.com/watch?v=udgEofYO4F4&t=89s)** — But with the other enzymes, right in your small intestine,
+- **[01:33](https://www.youtube.com/watch?v=udgEofYO4F4&t=93s)** — coming out from the pancreas,
+- **[01:34](https://www.youtube.com/watch?v=udgEofYO4F4&t=94s)** — you need a much higher, more alkaline pH for those enzymes to work.
+- **[01:39](https://www.youtube.com/watch?v=udgEofYO4F4&t=99s)** — Like trypsin, for example, which is a very important enzyme,
+- **[01:42](https://www.youtube.com/watch?v=udgEofYO4F4&t=102s)** — with a pH of 7.5 to 8.
+- **[01:45](https://www.youtube.com/watch?v=udgEofYO4F4&t=105s)** — And so this means that if you don't have the bicarbonates to kind of
+- **[01:49](https://www.youtube.com/watch?v=udgEofYO4F4&t=109s)** — buffer this pH, and we still have too much acidity coming down in the small
+- **[01:53](https://www.youtube.com/watch?v=udgEofYO4F4&t=113s)** — intestine, that enzyme trypsin cannot work. It's useless.
+- **[01:57](https://www.youtube.com/watch?v=udgEofYO4F4&t=117s)** — Even lipase, the lipid enzyme that comes from the pancreas,
+- **[02:03](https://www.youtube.com/watch?v=udgEofYO4F4&t=123s)** — needs a pH of 8.
+- **[02:05](https://www.youtube.com/watch?v=udgEofYO4F4&t=125s)** — And so I hope you can now see that the vital importance of having the
+- **[02:07](https://www.youtube.com/watch?v=udgEofYO4F4&t=127s)** — right pHs in the right place are essential for digestion,
+- **[02:12](https://www.youtube.com/watch?v=udgEofYO4F4&t=132s)** — especially when you talk about enzymes.
+- **[02:14](https://www.youtube.com/watch?v=udgEofYO4F4&t=134s)** — And this is why you can't really say that, oh yeah,
+- **[02:17](https://www.youtube.com/watch?v=udgEofYO4F4&t=137s)** — the body is alkaline or the body is to acid.
+- **[02:19](https://www.youtube.com/watch?v=udgEofYO4F4&t=139s)** — It's a combination of a lot of different pHs.
+- **[02:22](https://www.youtube.com/watch?v=udgEofYO4F4&t=142s)** — And so you need to understand this if you're going to try to alkalize the
+- **[02:25](https://www.youtube.com/watch?v=udgEofYO4F4&t=145s)** — body or even acidify the body.
+- **[02:28](https://www.youtube.com/watch?v=udgEofYO4F4&t=148s)** — Because as soon as you start to alkalize the body,
+- **[02:30](https://www.youtube.com/watch?v=udgEofYO4F4&t=150s)** — like with some remedy, like even baking soda,
+- **[02:32](https://www.youtube.com/watch?v=udgEofYO4F4&t=152s)** — it has to go through the stomach to get to different places.
+- **[02:36](https://www.youtube.com/watch?v=udgEofYO4F4&t=156s)** — Now bicarbonate is not just produced by your pancreas.
+- **[02:41](https://www.youtube.com/watch?v=udgEofYO4F4&t=161s)** — It's also produced by the little tubes that connect
+- **[02:47](https://www.youtube.com/watch?v=udgEofYO4F4&t=167s)** — in between the liver and the gallbladder.
+- **[02:49](https://www.youtube.com/watch?v=udgEofYO4F4&t=169s)** — The bile ducts actually secrete bicarbonate as well, which is interesting.
+- **[02:54](https://www.youtube.com/watch?v=udgEofYO4F4&t=174s)** — Let's say, for example,
+- **[02:55](https://www.youtube.com/watch?v=udgEofYO4F4&t=175s)** — you have a problem with your pancreas that you're not able to produce
+- **[02:58](https://www.youtube.com/watch?v=udgEofYO4F4&t=178s)** — enough enzymes, which is not very common because there's a huge reserve in
+- **[03:03](https://www.youtube.com/watch?v=udgEofYO4F4&t=183s)** — your pancreas for these enzymes, but it definitely occurs.
+- **[03:06](https://www.youtube.com/watch?v=udgEofYO4F4&t=186s)** — And if you have a deficiency, the treatment is taking enzymes,
+- **[03:11](https://www.youtube.com/watch?v=udgEofYO4F4&t=191s)** — but they rarely, if ever include bicarbonate with that.
+- **[03:16](https://www.youtube.com/watch?v=udgEofYO4F4&t=196s)** — So here you are taking these enzymes,
+- **[03:18](https://www.youtube.com/watch?v=udgEofYO4F4&t=198s)** — but what is going to activate it?
+- **[03:20](https://www.youtube.com/watch?v=udgEofYO4F4&t=200s)** — If you don't have the right pH, alkaline in your small intestine,
+- **[03:24](https://www.youtube.com/watch?v=udgEofYO4F4&t=204s)** — because the pancreas, for example, is too exhausted to release these
+- **[03:27](https://www.youtube.com/watch?v=udgEofYO4F4&t=207s)** — bicarbonates, then what's going to activate them?
+- **[03:31](https://www.youtube.com/watch?v=udgEofYO4F4&t=211s)** — So in other words, if you're going to take enzymes,
+- **[03:33](https://www.youtube.com/watch?v=udgEofYO4F4&t=213s)** — I would also recommend you take some baking soda with that
+- **[03:37](https://www.youtube.com/watch?v=udgEofYO4F4&t=217s)** — to help them get activated.
+- **[03:39](https://www.youtube.com/watch?v=udgEofYO4F4&t=219s)** — So from one aspect, baking soda might help your digestion
+- **[03:43](https://www.youtube.com/watch?v=udgEofYO4F4&t=223s)** — from just activating certain enzymes.
+- **[03:45](https://www.youtube.com/watch?v=udgEofYO4F4&t=225s)** — Now, on another hand, baking soda may be helpful in certain
+- **[03:49](https://www.youtube.com/watch?v=udgEofYO4F4&t=229s)** — situations with acid reflux or heartburn.
+- **[03:53](https://www.youtube.com/watch?v=udgEofYO4F4&t=233s)** — If you don't take it very often and you don't take it for a long period
+- **[03:56](https://www.youtube.com/watch?v=udgEofYO4F4&t=236s)** — of time, because if you're going to take it for weeks and months,
+- **[04:00](https://www.youtube.com/watch?v=udgEofYO4F4&t=240s)** — you're going to actually create other problems because usually the underlying
+- **[04:04](https://www.youtube.com/watch?v=udgEofYO4F4&t=244s)** — cause of heartburn or acid reflux is a lack of acid, not too much acid.
+- **[04:11](https://www.youtube.com/watch?v=udgEofYO4F4&t=251s)** — And so this is why some of the side effects of chronic consumption of
+- **[04:14](https://www.youtube.com/watch?v=udgEofYO4F4&t=254s)** — baking soda can create bloating, gas, and even something called acid
+- **[04:19](https://www.youtube.com/watch?v=udgEofYO4F4&t=259s)** — rebound, where your body now is going to make more acid to compensate.
+- **[04:24](https://www.youtube.com/watch?v=udgEofYO4F4&t=264s)** — So if you wanted to take it short-term here and there for some
+- **[04:28](https://www.youtube.com/watch?v=udgEofYO4F4&t=268s)** — acid reflux, that's fine.
+- **[04:30](https://www.youtube.com/watch?v=udgEofYO4F4&t=270s)** — As long as you're also focused on correcting that cause of it,
+- **[04:33](https://www.youtube.com/watch?v=udgEofYO4F4&t=273s)** — which is usually a lack of acid.
+- **[04:35](https://www.youtube.com/watch?v=udgEofYO4F4&t=275s)** — And this is why I think a much better remedy would be to
+- **[04:37](https://www.youtube.com/watch?v=udgEofYO4F4&t=277s)** — obtain hydrochloride and some apple cider vinegar.
+- **[04:41](https://www.youtube.com/watch?v=udgEofYO4F4&t=281s)** — But let's say, for example, you have an ulcer or let's say, for example,
+- **[04:46](https://www.youtube.com/watch?v=udgEofYO4F4&t=286s)** — you have gastritis.
+- **[04:47](https://www.youtube.com/watch?v=udgEofYO4F4&t=287s)** — Okay.
+- **[04:49](https://www.youtube.com/watch?v=udgEofYO4F4&t=289s)** — Your stomach lining is just raw.
+- **[04:51](https://www.youtube.com/watch?v=udgEofYO4F4&t=291s)** — If you take butane hydrochloride or apple cider vinegar, you're just
+- **[04:54](https://www.youtube.com/watch?v=udgEofYO4F4&t=294s)** — going to irritate the heck out of it, but you can very easily take
+- **[04:58](https://www.youtube.com/watch?v=udgEofYO4F4&t=298s)** — baking soda to give you some relief.
+- **[05:00](https://www.youtube.com/watch?v=udgEofYO4F4&t=300s)** — So I just wanted to kind of give you some specifics on like when you
+- **[05:03](https://www.youtube.com/watch?v=udgEofYO4F4&t=303s)** — may want to take it, when you might not take it.
+- **[05:06](https://www.youtube.com/watch?v=udgEofYO4F4&t=306s)** — Now, of course, there's going to be people commenting on the channel
+- **[05:09](https://www.youtube.com/watch?v=udgEofYO4F4&t=309s)** — that say, well, you know, my grandfather took this his whole life and he's,
+- **[05:13](https://www.youtube.com/watch?v=udgEofYO4F4&t=313s)** — you know, 120 years old.
+- **[05:16](https://www.youtube.com/watch?v=udgEofYO4F4&t=316s)** — So it's fine.
+- **[05:17](https://www.youtube.com/watch?v=udgEofYO4F4&t=317s)** — So I'm not here to tell you not to take it because I'm totally
+- **[05:20](https://www.youtube.com/watch?v=udgEofYO4F4&t=320s)** — into natural remedies.
+- **[05:21](https://www.youtube.com/watch?v=udgEofYO4F4&t=321s)** — But on the flip side, you always want to ask yourself, why do you
+- **[05:23](https://www.youtube.com/watch?v=udgEofYO4F4&t=323s)** — need to take any remedy at all?
+- **[05:25](https://www.youtube.com/watch?v=udgEofYO4F4&t=325s)** — And do you know the cause?
+- **[05:27](https://www.youtube.com/watch?v=udgEofYO4F4&t=327s)** — I think you should find natural remedies to kind of handle the
+- **[05:29](https://www.youtube.com/watch?v=udgEofYO4F4&t=329s)** — symptoms, but also at the same time, really understand the mechanism.
+- **[05:32](https://www.youtube.com/watch?v=udgEofYO4F4&t=332s)** — So you can really eventually get rid of the cause, which if you have
+- **[05:36](https://www.youtube.com/watch?v=udgEofYO4F4&t=336s)** — heartburn really relates to kind of what you're eating.
+- **[05:38](https://www.youtube.com/watch?v=udgEofYO4F4&t=338s)** — All right.
+- **[05:38](https://www.youtube.com/watch?v=udgEofYO4F4&t=338s)** — Another interesting benefit has to do with increasing athletic
+- **[05:44](https://www.youtube.com/watch?v=udgEofYO4F4&t=344s)** — performance.
+- **[05:44](https://www.youtube.com/watch?v=udgEofYO4F4&t=344s)** — Yeah.
+- **[05:45](https://www.youtube.com/watch?v=udgEofYO4F4&t=345s)** — Having a little more endurance because when you exercise, especially
+- **[05:49](https://www.youtube.com/watch?v=udgEofYO4F4&t=349s)** — intense exercise, you will generate lactic acid.
+- **[05:54](https://www.youtube.com/watch?v=udgEofYO4F4&t=354s)** — Okay.
+- **[05:55](https://www.youtube.com/watch?v=udgEofYO4F4&t=355s)** — So now we're going to change the pH of certain tissues in your body.
+- **[06:00](https://www.youtube.com/watch?v=udgEofYO4F4&t=360s)** — And so this lactic acid tends to inhibit oxygen.
+- **[06:03](https://www.youtube.com/watch?v=udgEofYO4F4&t=363s)** — And then what's going to happen is you're going to hit the
+- **[06:06](https://www.youtube.com/watch?v=udgEofYO4F4&t=366s)** — wall when you exercise.
+- **[06:07](https://www.youtube.com/watch?v=udgEofYO4F4&t=367s)** — So you'll have a limited endurance, but there's been a few
+- **[06:11](https://www.youtube.com/watch?v=udgEofYO4F4&t=371s)** — interesting studies that shows that if you consume baking soda,
+- **[06:15](https://www.youtube.com/watch?v=udgEofYO4F4&t=375s)** — 90 minutes before this exercise intensity routine, it can improve
+- **[06:21](https://www.youtube.com/watch?v=udgEofYO4F4&t=381s)** — your performance because it's going to neutralize this acidity and
+- **[06:26](https://www.youtube.com/watch?v=udgEofYO4F4&t=386s)** — then allow more oxygen to occur.
+- **[06:28](https://www.youtube.com/watch?v=udgEofYO4F4&t=388s)** — But not only that, I think another thing that it does is that
+- **[06:32](https://www.youtube.com/watch?v=udgEofYO4F4&t=392s)** — baking soda turns into as a by-product water and CO2, carbon
+- **[06:37](https://www.youtube.com/watch?v=udgEofYO4F4&t=397s)** — dioxide, which automatically allows oxygen to go into the body.
+- **[06:41](https://www.youtube.com/watch?v=udgEofYO4F4&t=401s)** — If that's new information for you, you should watch my video on
+- **[06:44](https://www.youtube.com/watch?v=udgEofYO4F4&t=404s)** — that topic.
+- **[06:44](https://www.youtube.com/watch?v=udgEofYO4F4&t=404s)** — I'll put that down below, but it's fascinating.
+- **[06:47](https://www.youtube.com/watch?v=udgEofYO4F4&t=407s)** — Now the CO2 connection relates to this next benefit, which, you
+- **[06:53](https://www.youtube.com/watch?v=udgEofYO4F4&t=413s)** — know, I found, I had to dig deep, but I found some interesting
+- **[06:56](https://www.youtube.com/watch?v=udgEofYO4F4&t=416s)** — research on the relationship between taking sodium bicarbonate and
+- **[07:01](https://www.youtube.com/watch?v=udgEofYO4F4&t=421s)** — cancer. And currently in this one study that I'll put down below,
+- **[07:05](https://www.youtube.com/watch?v=udgEofYO4F4&t=425s)** — there was a significant improvement in decreasing the incidence of
+- **[07:09](https://www.youtube.com/watch?v=udgEofYO4F4&t=429s)** — metastasis. Now this was in my studies, but still, this is
+- **[07:13](https://www.youtube.com/watch?v=udgEofYO4F4&t=433s)** — interesting data. Now, why would it do that?
+- **[07:15](https://www.youtube.com/watch?v=udgEofYO4F4&t=435s)** — Well, if you take a look at a normal cell versus a cancer cell
+- **[07:19](https://www.youtube.com/watch?v=udgEofYO4F4&t=439s)** — in relationship to pH, the outside of a cancer cell is way more
+- **[07:25](https://www.youtube.com/watch?v=udgEofYO4F4&t=445s)** — acid than a normal cell, but the inside of that cell, the
+- **[07:30](https://www.youtube.com/watch?v=udgEofYO4F4&t=450s)** — inside of a cancer cell is alkaline, more alkaline than a normal cell.
+- **[07:34](https://www.youtube.com/watch?v=udgEofYO4F4&t=454s)** — So that's interesting. So when people say that, oh yeah,
+- **[07:37](https://www.youtube.com/watch?v=udgEofYO4F4&t=457s)** — cancer is acid, are you talking about the inside of the cell
+- **[07:40](https://www.youtube.com/watch?v=udgEofYO4F4&t=460s)** — or the outside of the cell? And there's a more concentrated
+- **[07:43](https://www.youtube.com/watch?v=udgEofYO4F4&t=463s)** — amount of lactic acid and lactate, and that can actually
+- **[07:49](https://www.youtube.com/watch?v=udgEofYO4F4&t=469s)** — trigger the growth of tumors. So if you were to reduce that,
+- **[07:53](https://www.youtube.com/watch?v=udgEofYO4F4&t=473s)** — kind of neutralize that pH, potentially you can actually
+- **[07:57](https://www.youtube.com/watch?v=udgEofYO4F4&t=477s)** — prevent the growth of the tumor. Now, realize all this is kind of
+- **[08:01](https://www.youtube.com/watch?v=udgEofYO4F4&t=481s)** — down-chain. In other words, it's the kind of consequences of this
+- **[08:04](https://www.youtube.com/watch?v=udgEofYO4F4&t=484s)** — chain reaction that occurs originally from some type of
+- **[08:09](https://www.youtube.com/watch?v=udgEofYO4F4&t=489s)** — damage to the mitochondria, and then the oxygen machine
+- **[08:14](https://www.youtube.com/watch?v=udgEofYO4F4&t=494s)** — can't work, and then the body uses a different mechanism to
+- **[08:17](https://www.youtube.com/watch?v=udgEofYO4F4&t=497s)** — get its fuel, and then the body switches from normal cell
+- **[08:20](https://www.youtube.com/watch?v=udgEofYO4F4&t=500s)** — to now a cancer cell, which is kind of like a backup
+- **[08:24](https://www.youtube.com/watch?v=udgEofYO4F4&t=504s)** — system to get fuel, and in the process, there's a lot of
+- **[08:29](https://www.youtube.com/watch?v=udgEofYO4F4&t=509s)** — lactic acid generated. And so when you're taking baking
+- **[08:31](https://www.youtube.com/watch?v=udgEofYO4F4&t=511s)** — soda, you're not actually doing anything for this initial
+- **[08:35](https://www.youtube.com/watch?v=udgEofYO4F4&t=515s)** — cause of cancer in the mitochondria. But what I like
+- **[08:39](https://www.youtube.com/watch?v=udgEofYO4F4&t=519s)** — about it is that baking soda can increase CO2, and CO2
+- **[08:44](https://www.youtube.com/watch?v=udgEofYO4F4&t=524s)** — is all about allowing oxygen to kind of go deeper into
+- **[08:48](https://www.youtube.com/watch?v=udgEofYO4F4&t=528s)** — the tissues. We're taught that CO2 is just a waste
+- **[08:51](https://www.youtube.com/watch?v=udgEofYO4F4&t=531s)** — product, but it's essential for oxygen. So if you're just
+- **[08:55](https://www.youtube.com/watch?v=udgEofYO4F4&t=535s)** — like hyper-focused on this oxygen thing, and you're
+- **[08:57](https://www.youtube.com/watch?v=udgEofYO4F4&t=537s)** — ignoring CO2, it's not going to work. So even if you do
+- **[09:00](https://www.youtube.com/watch?v=udgEofYO4F4&t=540s)** — searches on like CO2, carbon dioxide, in relationship to
+- **[09:04](https://www.youtube.com/watch?v=udgEofYO4F4&t=544s)** — cancer, there's some therapies out there that shows that it
+- **[09:07](https://www.youtube.com/watch?v=udgEofYO4F4&t=547s)** — can inhibit the tumor growth just by doing CO2, which is
+- **[09:10](https://www.youtube.com/watch?v=udgEofYO4F4&t=550s)** — interesting, which is a byproduct of baking soda. Another
+- **[09:14](https://www.youtube.com/watch?v=udgEofYO4F4&t=554s)** — interesting thing about baking soda is that people use it
+- **[09:17](https://www.youtube.com/watch?v=udgEofYO4F4&t=557s)** — for their skin to help decrease rashes or some type of skin
+- **[09:23](https://www.youtube.com/watch?v=udgEofYO4F4&t=563s)** — allergy. Also, baking soda is good if you have a sinus
+- **[09:27](https://www.youtube.com/watch?v=udgEofYO4F4&t=567s)** — problem. If you could just put it in a neti pot, maybe a
+- **[09:31](https://www.youtube.com/watch?v=udgEofYO4F4&t=571s)** — fourth of a teaspoon with a little pinch of sea salt,
+- **[09:33](https://www.youtube.com/watch?v=udgEofYO4F4&t=573s)** — and you dissolve that and you get the vapors into your
+- **[09:38](https://www.youtube.com/watch?v=udgEofYO4F4&t=578s)** — sinuses, that can greatly help your sinus irritation. So
+- **[09:42](https://www.youtube.com/watch?v=udgEofYO4F4&t=582s)** — that would be more of like a sinus irrigation. And one
+- **[09:47](https://www.youtube.com/watch?v=udgEofYO4F4&t=587s)** — of the things that I recommend is baking soda. And of course,
+- **[09:49](https://www.youtube.com/watch?v=udgEofYO4F4&t=589s)** — when I recommend it, I'm always talking about this,
+- **[09:52](https://www.youtube.com/watch?v=udgEofYO4F4&t=592s)** — taking it sporadically, not like all the time every single
+- **[09:55](https://www.youtube.com/watch?v=udgEofYO4F4&t=595s)** — day to help reduce the risk of gout attacks. Because you
+- **[09:59](https://www.youtube.com/watch?v=udgEofYO4F4&t=599s)** — can inhibit the formation of that uric acid crystal if
+- **[10:03](https://www.youtube.com/watch?v=udgEofYO4F4&t=603s)** — you just get your pH a little higher. And so you'd
+- **[10:07](https://www.youtube.com/watch?v=udgEofYO4F4&t=607s)** — want to monitor the pH in your urine and take it until
+- **[10:10](https://www.youtube.com/watch?v=udgEofYO4F4&t=610s)** — the pH of your urine is like maybe a seven versus like a
+- **[10:14](https://www.youtube.com/watch?v=udgEofYO4F4&t=614s)** — five. So anyway, I just wanted to give you more of an a
+- **[10:17](https://www.youtube.com/watch?v=udgEofYO4F4&t=617s)** — different viewpoint of baking soda on maybe some potential
+- **[10:20](https://www.youtube.com/watch?v=udgEofYO4F4&t=620s)** — benefits for you. But if you haven't seen this video on
+- **[10:24](https://www.youtube.com/watch?v=udgEofYO4F4&t=624s)** — baking soda, which I talk about the very unusual and
+- **[10:28](https://www.youtube.com/watch?v=udgEofYO4F4&t=628s)** — surprising benefits, you should check it out. I put
+- **[10:30](https://www.youtube.com/watch?v=udgEofYO4F4&t=630s)** — it up right here.
+
+
+---
+
+
+## Video 4: The Secret to Increasing More OXYGEN in Your Cells
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=DtVj-U2hU7k](https://www.youtube.com/watch?v=DtVj-U2hU7k)
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=0s)** — Now, we've all been told that getting more oxygen into our cells is a really, really good thing.
+- **[00:04](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=4s)** — So many diseases occur because of this lack of oxygen, whether it's ischemia, hypoxia, whatever.
+- **[00:12](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=12s)** — Oxygen is a good thing. So today, I'm going to reveal the secret of how to increase
+- **[00:20](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=20s)** — available oxygen into your cells. And so you probably already know that sleeping with the
+- **[00:26](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=26s)** — window open is going to help increase oxygen. Maybe having more plants in your room are going to give
+- **[00:31](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=31s)** — you more oxygen. You also probably know that exercise will increase oxygen, specifically aerobic
+- **[00:38](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=38s)** — type exercise. That's the exercise that occurs maybe when you're walking or a slight jog.
+- **[00:44](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=44s)** — Being outside of nature will also give you more oxygen, right? I recently did a video and
+- **[00:49](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=49s)** — talked about methylene blue can give you more oxygen to the cells, which is pretty interesting.
+- **[00:54](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=54s)** — But there is a very interesting secret about oxygen that I'm going to share with you right now
+- **[01:01](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=61s)** — that you may or may not know about. In order to increase the available oxygen into the cells,
+- **[01:06](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=66s)** — the release of oxygen out of your blood cells, there is a trigger. There is this thing
+- **[01:15](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=75s)** — that controls it. And that is CO2. That's right, CO2. You see, you probably thought
+- **[01:23](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=83s)** — CO2 was a waste product and it's not needed, you know, as you're breathing out all the CO2.
+- **[01:29](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=89s)** — And by the way, when you're breathing out, an average person is probably breathing out,
+- **[01:33](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=93s)** — I don't know, maybe 25 to 75% oxygen. So it's not all CO2. You're breathing a lot
+- **[01:40](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=100s)** — of oxygen out too because it's not being absorbed. CO2 is the key for the releasing of
+- **[01:48](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=108s)** — CO2. And it's called the Bohr effect. B-O-H-R effect. CO2 tells the body to release
+- **[01:57](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=117s)** — O2. And the way it works is that CO2 increases the acidity, makes things more acid, and then
+- **[02:03](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=123s)** — that loosens up the oxygen so it can then be released. Take a look at someone that is
+- **[02:09](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=129s)** — starving from oxygen, someone that is in a panic attack, right? What are they doing?
+- **[02:14](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=134s)** — They are hyperventilating. What happens when you're hyperventilating is you're trying to get a lot
+- **[02:19](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=139s)** — of oxygen, right? But you're not getting a lot of CO2. What is the most common recommendation
+- **[02:24](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=144s)** — when someone is hyperventilating? Breathe in a paper bag. What does that do? That increases
+- **[02:31](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=151s)** — the CO2, allowing the oxygen then to go into the cells. So it might be a really good thing
+- **[02:39](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=159s)** — to actually buy an oximeter. You can usually get them as a kind of a pulse oximeter,
+- **[02:45](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=165s)** — checks your pulse rate and oxygen saturation. And normally it should be between 95 and 99.
+- **[02:52](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=172s)** — Okay. And we're looking at how much oxygen is saturated in your blood. And it's a pretty
+- **[02:56](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=176s)** — cool test and it'll kind of give you a reading of what's going on. And so in this
+- **[03:00](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=180s)** — video, I'm going to show you how to increase the oxygen and raise it up to 99 or even 100.
+- **[03:05](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=185s)** — And you can do this test on yourself. At first, when you think about it, it's very
+- **[03:09](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=189s)** — counterintuitive. We're going to increase our CO2 to increase our oxygen. Sounds weird,
+- **[03:15](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=195s)** — but it really works. Now a couple ways that you can increase more CO2. Breathe through your
+- **[03:23](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=203s)** — nose versus breathing through your mouth. Yeah, that's right. Breathing through your
+- **[03:28](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=208s)** — nose gives you more oxygen. You would think when you're sleeping that it would restrict
+- **[03:34](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=214s)** — the air, which it does, and it would restrict the oxygen, but it doesn't. You'll have a much
+- **[03:39](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=219s)** — better sleep if you breathe through your nose. Now this is not all about just increasing your
+- **[03:44](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=224s)** — CO2 100%. We need a balance of oxygen and CO2. Okay. All we're trying to do is balance
+- **[03:50](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=230s)** — it. When we're under stress, our breathing changes and we no longer balance the CO2
+- **[03:58](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=238s)** — with the O2. We actually are getting more oxygen and not enough CO2 when we're under stress.
+- **[04:02](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=242s)** — And that's just probably counterintuitive when you think about it, but the solution is to
+- **[04:07](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=247s)** — increase more CO2. And you can do that by simple breathing as well, like slowing down your breath,
+- **[04:13](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=253s)** — okay, and balancing out the inhalation with the exhalation. There was one study,
+- **[04:19](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=259s)** — which I'll put down below, that they added more CO2 to this oxygen and they gave this
+- **[04:27](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=267s)** — mixture of air to these group of people who all had hypoxia. That's a condition where you have
+- **[04:35](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=275s)** — lack of oxygen, right? And they all increase their oxygen saturation, which is really
+- **[04:41](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=281s)** — interesting. So you'll have to prove this to yourself to see if it's true, but you will
+- **[04:45](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=285s)** — find it is true. But by increasing your CO2, you can greatly help stress, anxiety
+- **[04:53](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=293s)** — disorders, panic attacks, you can decrease inflammation, you can resolve many times
+- **[05:00](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=300s)** — depression, you can increase your endurance with exercise, you can decrease symptoms of
+- **[05:06](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=306s)** — respiratory problems like COPD or weaknesses within the lungs from past injury. You'll even
+- **[05:15](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=315s)** — be able to hold your breath longer. So how do we do this? Well, the first thing you need
+- **[05:19](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=319s)** — to do is to do a test to determine something, to determine your carbon dioxide CO2 tolerance,
+- **[05:29](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=329s)** — how well your body is able to tolerate CO2. And it's a very simple test. And I recommend you
+- **[05:36](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=336s)** — do it laying down on your back on the floor. All you need is some type of timing mechanism,
+- **[05:43](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=343s)** — some type of watch, because you're going to just record the timing. So to do this,
+- **[05:47](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=347s)** — you're going to nose breathe, just only breathe through your nose. And you're just going to
+- **[05:51](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=351s)** — inhale and exhale three times with a timing of three seconds. So three seconds in, three
+- **[05:58](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=358s)** — seconds out, three seconds in, three seconds out, and just do that three times. Now,
+- **[06:05](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=365s)** — on the fourth time, you're going to expand your lungs and breathe in as much as you can.
+- **[06:12](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=372s)** — So that fourth inhalation is a very large inhalation. Now, as you time this next
+- **[06:21](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=381s)** — phase, you're going to be timing the slow, continuous exhalation of air from that inhalation.
+- **[06:31](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=391s)** — And so you're not going to want to hold your breath. You're not going to want to pause.
+- **[06:35](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=395s)** — You just want to slowly let the air out and you're going to time it, right, and see how
+- **[06:40](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=400s)** — that takes. But it has to be slow and continuous. And so you're going to record the time until you
+- **[06:46](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=406s)** — run out of air. Okay, so now that you do that, okay, if it's 20 seconds or less,
+- **[06:53](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=413s)** — you're in poor condition as far as your respiratory system, your ability to tolerate
+- **[07:00](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=420s)** — CO2. Your stress is probably pretty bad. You probably have a low tolerance to stress.
+- **[07:05](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=425s)** — You probably have anxiety. You probably can't exercise for a long time as well. You probably
+- **[07:11](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=431s)** — run out of gas. If you're between 20 seconds and 40 seconds, you're in the average group. Okay,
+- **[07:18](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=438s)** — so not really great, not terrible, but right in the middle. If this exhalation is between
+- **[07:23](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=443s)** — 40 seconds and 60 seconds, you're above average. Okay, not really good, but you're
+- **[07:30](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=450s)** — definitely right in that intermediate area. You're definitely above average. Now, if that
+- **[07:35](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=455s)** — timing was between 60 and 80 seconds, you are considered advanced. Okay, you have good stress
+- **[07:42](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=462s)** — tolerance. You have good endurance. You're in pretty good shape. You can handle stress
+- **[07:47](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=467s)** — pretty good. If you're over 80 seconds, you are in the category of elite. Okay, this is
+- **[07:54](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=474s)** — elite athlete. You have excellent stress responses, excellent cardiovascular, great tolerance to CO2.
+- **[08:03](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=483s)** — So that is the goal is to get you over 80. So what I want you to do right now is do this test
+- **[08:09](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=489s)** — and record your number in the comments down below. Okay, I want to read the comments. I want
+- **[08:16](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=496s)** — to see results. I want to see where you're at. Now, the question is, how do we increase
+- **[08:20](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=500s)** — this tolerance to ultimately increase your ability to get oxygen in your cells? Because
+- **[08:27](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=507s)** — it's not just about oxygen. It's about the oxygen availability to the cells, which is
+- **[08:33](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=513s)** — dependent on the CO2. And again, we're just trying to balance the CO2 with the oxygen.
+- **[08:37](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=517s)** — So a couple things to do. Okay, start doing nose breathing. Keep your mouth shut when you
+- **[08:42](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=522s)** — sleep. Right. And then even to the day when you're driving, breathe through your nose.
+- **[08:48](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=528s)** — Another thing you can do is start breathing with emphasis on your diaphragm,
+- **[08:53](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=533s)** — like just focusing on breathing in through your stomach, not through your chest. Okay. And you're
+- **[08:58](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=538s)** — going to slowly breathe in through your pushing out your stomach and then exhale slowly. So
+- **[09:04](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=544s)** — we're going to balance this. And I've talked about this technique to help you sleep as well.
+- **[09:09](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=549s)** — Start focusing on your sleep, making sure that your inhalation equals the exhalation. And
+- **[09:15](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=555s)** — that really helps you sleep. And now you know why, because it increases more oxygen,
+- **[09:19](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=559s)** — because it increases more CO2. And another thing you can do as a practice routine is do box
+- **[09:25](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=565s)** — breathing. It's called four, four, four, and four. So you're basically just going to breathe
+- **[09:30](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=570s)** — in for four seconds. You're going to then hold your breath for four seconds, and then you're
+- **[09:34](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=574s)** — going to exhale for four seconds. And then you're going to hold this exhalation for four seconds.
+- **[09:40](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=580s)** — And you're just going to practice this, okay, longer and longer and longer to see if you
+- **[09:44](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=584s)** — do it. So that is going to help you. So nose breathing, this box breathing, diaphragm breathing,
+- **[09:52](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=592s)** — and also holding your breath. Now, of course, you probably want to do this
+- **[09:56](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=596s)** — supervised. So that way, if you pass out, it's not a problem, but you can just do this on a
+- **[10:00](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=600s)** — low level. I don't recommend practicing this while you're driving. I can just see this now.
+- **[10:07](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=607s)** — Someone passes out and they crash and then they mention my name. Dr. Berg told me to
+- **[10:12](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=612s)** — hold my breath while I was driving. Well, I'm telling you right now, don't do this while you're
+- **[10:16](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=616s)** — driving. Okay. Now there are several other things you can do to increase this CO2 tolerance. And
+- **[10:23](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=623s)** — I'm going to put a link down a website that will give you a lot more information on about
+- **[10:28](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=628s)** — this. But I just wanted to give you the concept, some basic things that you can start
+- **[10:31](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=631s)** — doing. If you get an oximeter, now you can actually have some feedback and you can do your
+- **[10:37](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=637s)** — testing on yourself to see what works and then you can prove it to yourself. But anyway,
+- **[10:42](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=642s)** — there's some great information on this topic relating to panic attacks and asthma. And if
+- **[10:49](https://www.youtube.com/watch?v=DtVj-U2hU7k&t=649s)** — you haven't seen my video on that, I put it up right here. Check it out.
+
+
+---
+
+
+## Video 5: We just hit 10,000,000 subscribers!
+
+**Watch on YouTube:** [https://www.youtube.com/watch?v=FyLFwe1hiw0](https://www.youtube.com/watch?v=FyLFwe1hiw0)
+
+## Full Transcript with Timestamps
+
+*Click any timestamp to jump to that moment in the video*
+
+- **[00:00](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=0s)** — You know, I don't even know how to respond to this, but we just hit 10 million subscribers on my
+- **[00:08](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=8s)** — YouTube channel. I'm just thankful. I appreciate so much all of you watching my videos and the
+- **[00:13](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=13s)** — wonderful comments. I read most of your comments, by the way. I might not respond to all of them
+- **[00:19](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=19s)** — because there's many of them, but I read a tremendous amount of your comments. I just
+- **[00:22](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=22s)** — want to say thank you. We finally did it after all these years. It wasn't easy. I started off,
+- **[00:28](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=28s)** — I think, in 2008 and it took me two or three or even four years before I got up to 400 subscribers.
+- **[00:36](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=36s)** — I remember at that time I was so excited because I was like, wow, 400 people watching
+- **[00:41](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=41s)** — my videos or subscribing. This is amazing. I mean, I was thinking about like in a room
+- **[00:45](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=45s)** — because I normally when I do a seminar, I have like 20 people. But when I think about
+- **[00:49](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=49s)** — 10 million, it's very intimidating. It's very humbling. And just to give you a little update
+- **[00:55](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=55s)** — on what I've been up to, I've been doing a deep dive into DNA. And so I may either start another
+- **[01:02](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=62s)** — YouTube channel specifically on DNA and what all that means with the different gene problems
+- **[01:08](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=68s)** — that someone might have and make it really simple. Or I may mesh it in with my existing
+- **[01:12](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=72s)** — channel. So that's coming up. There's just a lot of learning in this area. And to be
+- **[01:17](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=77s)** — able to explain it simply, you have to understand it. So, and that takes quite a bit of time.
+- **[01:22](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=82s)** — And the other thing that I'm working on, which I'm very, very excited,
+- **[01:26](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=86s)** — I decided to start to grow my own ingredients or as many ingredients as I can on my own farm.
+- **[01:35](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=95s)** — That way I can control the quality. I can control the microbiome in the soil,
+- **[01:42](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=102s)** — the health of the plant. I'm going to video the whole thing. So it's going to be very,
+- **[01:48](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=108s)** — exciting. Let's talk about quality. And really the health of an herb or a plant
+- **[01:54](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=114s)** — is really all about the microbes in the soil. So in reality, that's what we're going to be
+- **[01:59](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=119s)** — focusing on mostly. And from that, we'll do a lot of research. We'll have courses on
+- **[02:04](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=124s)** — gardening and growing and things like that. But I just wanted to create this short video
+- **[02:07](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=127s)** — and just say thank you from the bottom of my heart. I hope I am helping you and I'm going to
+- **[02:17](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=137s)** — I value your attention and your time that you spend watching my videos.
+- **[02:23](https://www.youtube.com/watch?v=FyLFwe1hiw0&t=143s)** — And I just wanted to say, I appreciate you and thank you so much.
+
+
+---
+

@@ -1,0 +1,3 @@
+# Is it safe to follow a keto diet and intermittent fasting if I have heart disease?
+
+In the chain of events of developing a heart condition you first get damage to the lining of the arteries. Cholesterol will then come in and start to heal it. The arteries become stiff and then you get high blood pressure. We then get put on a statin, which is given a black label - because it causes diabetes which increases your risk of heart disease. And the blood pressure meds (thiazides and beta-blockers) contribute to insulin resistance further causing the problem. https://hls-player.drberg.com/asset?path=migrated-assets/is-it-good-to-do-keto-diet-intermittent-fasting-while-having-a-heart-disease-drberg

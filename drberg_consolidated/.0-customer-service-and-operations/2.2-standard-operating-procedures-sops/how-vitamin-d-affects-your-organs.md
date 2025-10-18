@@ -1,0 +1,3 @@
+# How vitamin D affects your organs?
+
+Vitamin D is a fat-soluble vitamin, so it goes right to the center of the cell and has huge effects on it. I believe this is the most important fat-soluble vitamin. Vitamin D is important for virtually every part of your body. If you take a vitamin D supplement, be sure it’s a high-quality natural supplement. https://hls-player.drberg.com/asset?path=migrated-assets/how-vitamin-d-affects-every-organ-and-tissue

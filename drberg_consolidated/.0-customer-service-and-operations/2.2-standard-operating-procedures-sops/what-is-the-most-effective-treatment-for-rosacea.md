@@ -1,0 +1,3 @@
+# What is the most effective treatment for rosacea?
+
+It seems that this condition could be induced by a combination of adrenal dysfunction, a parasite or some microorganism, and maybe an imbalance in the gut. People with SIBO also have a high risk for rosacea. Potential remedies for rosacea: • Neem oil mixed in coconut oil applied to the skin • Wormwood extract (use orally) • Clove (use orally) • Fasting • Support the adrenals https://hls-player.drberg.com/asset?path=migrated-assets/what-can-be-done-for-rosacea

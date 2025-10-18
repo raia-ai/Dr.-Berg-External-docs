@@ -1,0 +1,3 @@
+# Does bulletproof coffee break a fast?
+
+Bulletproof coffee is black coffee with the addition of MCT oil, butter, or whole cream. It will not increase blood sugars and it might raise the ketone level. While bulletproof coffee won’t break a fast, it can slow down your weight loss because the body will use the ketones in the coffee instead of producing more from fat.https://hls-player.drberg.com/asset?path=migrated-assets/does-bulletproof-coffee-break-a-fast-drberg

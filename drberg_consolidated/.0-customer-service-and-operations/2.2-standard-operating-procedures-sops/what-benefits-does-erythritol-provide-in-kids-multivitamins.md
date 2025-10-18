@@ -1,0 +1,3 @@
+# What benefits does erythritol provide in Kids Multivitamins?
+
+Kids Multivitamin - Erythritol (sweetener) Erythritol is a sugar alcohol often used as a sugar substitute. Potential Benefits: Taste: Erythritol provides sweetness without the aftertaste some find with other sugar alcohols. Tooth Decay: Unlike sugar, erythritol doesn't promote tooth decay. This can be a benefit in chewable wafers. Blood Sugar: Erythritol is a sugar alcohol that has little effect on blood sugar.

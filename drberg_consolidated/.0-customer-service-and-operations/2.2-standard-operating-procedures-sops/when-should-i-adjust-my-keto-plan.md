@@ -1,0 +1,3 @@
+# When should I adjust my keto plan?
+
+Top signs you need to change your keto plan:1. Feeling tired or weak2. Looking older3. Heart palpitations4. Hunger5. Cravings6. No weight loss7. Kidney stones or inflammationThe ketogenic diet plan is the reduction of carbohydrates. But, even though it may help prevent specific health concerns, reducing carbohydrates alone does not build your health. You must focus on what you’re replacing your carbs with and how those calories affect your health. The Healthy Keto diet takes the keto diet to the next level by focusing on consuming high-quality keto-friendly foods with positive health impacts.https://hls-player.drberg.com/asset?path=migrated-assets/fixed-different-people-need

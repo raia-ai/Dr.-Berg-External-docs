@@ -1,0 +1,3 @@
+# How long should you take 30,000 IUs of D3/K2 to address Inflammation?
+
+Dr. Berg's recommends taking 20,000 IU to address inflammation. If it's a bigger inflammation then you should go up to 30,000 - 40,000 IU. If it's a chronic inflammation then you can go even to a higher dosage of 50,000 IU. You should take this supplement alongside with Vitamin K2 for a better absorption. You can take it as long as your inflammation goes away. However, we always recommend consulting with your doctor first on the inflammation before taking any actions yourself.

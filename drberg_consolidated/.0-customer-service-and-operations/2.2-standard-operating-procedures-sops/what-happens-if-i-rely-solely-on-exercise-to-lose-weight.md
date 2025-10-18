@@ -1,0 +1,3 @@
+# What happens if I rely solely on exercise to lose weight?
+
+The belly is an indirect indicator of the amount of insulin there is in the body. Insulin is the fat-storing hormone that is triggered by various things – It stores fat around the middle section and the liver.Exercise as a tool for weight loss will not lower insulin to any significant degree.What to Do?• Cut the Carbs – like brown rice, pasta, wine, fruits• Intermittent fasting - Decrease the frequency of meals. Stop snacking before or after your workout and work out in a fasting state.

@@ -1,0 +1,3 @@
+# What are signs of cirrhosis?
+
+Top warning signs of cirrhosis: 1. Dark urine 2. Mood and personality changes 3. Ascites (fluid leaking from the liver into the abdomen) 4. Jaundice (yellowing of the skin and whites of the eyes) 5. Tiredness 6. Right upper abdominal discomfort 7. Itchy, hot feethttps://hls-player.drberg.com/asset?path=migrated-assets/7-warning-signs-of-cirrhosis-end-stage-liver-disease-drberg

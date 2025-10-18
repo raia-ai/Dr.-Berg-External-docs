@@ -1,0 +1,3 @@
+# Is beef jerky allowed on a keto diet?
+
+No, unfortunately beef jerky is a bad food for keto.What should you snack on? You actually shouldn’t snack at all. Any time you eat, especially sugar, you spike insulin. In the presence of insulin, you can’t burn fat. It’s good to keep insulin very low. If you can’t go without snacking, you need to increase the amount of fat you consume in your meal. Fat helps keep you satisfied and helps keep insulin low.

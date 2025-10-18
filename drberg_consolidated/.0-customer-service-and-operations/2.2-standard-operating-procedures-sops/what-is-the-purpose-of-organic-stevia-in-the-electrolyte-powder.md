@@ -1,0 +1,3 @@
+# What is the purpose of organic Stevia in the Electrolyte Powder?
+
+Organic Stevia 98%: Our organic stevia, 98%, is certified organic, ensuring it is free from synthetic pesticides and fertilizers. Health Benefits: Zero Calories: Stevia is a non-nutritive sweetener, meaning it contains no calories. This makes it ideal for individuals who are watching their calorie intake or managing their weight. Natural and Plant-Based: Derived from the stevia plant, it's a natural alternative to artificial sweeteners and aligns with a clean-eating lifestyle. Organic: Our stevia is certified organic, assuring of its purity and safety.

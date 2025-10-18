@@ -1,0 +1,3 @@
+# How long will Raw Organic Wheatgrass Juice Powder stay good after being mixed with water?
+
+After mixing the Organic Raw Wheatgrass Juice Powder with water, it should be stored in a sealed container at room temperature or in a cool, but not freezing, environment. When kept under these conditions, the Organic Raw Wheatgrass Juice Powder will remain safe and effective for up to 24 hours. Any mixture of Organic Raw Wheatgrass Juice Powder and water should be discarded after 24 hours, or sooner if it's exposed to warmer temperatures.

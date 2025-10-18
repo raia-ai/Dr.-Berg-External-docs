@@ -1,0 +1,3 @@
+# Why is fat necessary to maintain ketosis?
+
+Sufficient dietary fat is crucial on the ketogenic diet to prevent persistent hunger, promote satiety, and support extended fasting periods. Inadequate fat intake can lead to continued weight loss even after reaching desired goals. It is important to focus on incorporating the right types of fats to ensure adequate intake of fat-soluble vitamins and essential fatty acids. Maintaining an appropriate ratio of protein to fat is essential, as relying on low-fat, high-protein foods may negatively impact liver and kidney health. While dietary fat plays a vital role in this diet, it is the reduction of carbohydrate intake that initiates and sustains ketosis.

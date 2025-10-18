@@ -1,0 +1,3 @@
+# What are some effective strategies or remedies to relieve frequent throat clearing?
+
+To address constant throat clearing, consider the following approaches:1. Calcium Supplementation: Increase calcium intake, particularly with calcium lactate, to alleviate throat clearing and potential laryngeal spasms.2. Acid Reflux: If acid reflux is suspected, use betaine hydrochloride to support digestion.3. Post-Nasal Drip: For post-nasal drip, take vitamin D, zinc, and vitamin C to support immune function.These measures can help address the underlying causes of throat clearing and improve overall throat comfort.https://hls-player.drberg.com/asset?path=migrated-assets/the-3-causes-of-constant-mucus-phlegm-in-your-throat

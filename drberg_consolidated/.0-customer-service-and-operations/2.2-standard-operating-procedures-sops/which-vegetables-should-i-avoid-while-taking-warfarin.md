@@ -1,0 +1,3 @@
+# Which vegetables should I avoid while taking warfarin?
+
+Avoid or limit high-vitamin K vegetables like kale, spinach, broccoli, and Brussels sprouts while taking warfarin because they may interfere with the medication's effectiveness by thickening blood clotting factors. Asparagus and green peas are also relatively high in vitamin K content.Consult your healthcare provider for personalized advice regarding dietary restrictions related to anticoagulant medications.

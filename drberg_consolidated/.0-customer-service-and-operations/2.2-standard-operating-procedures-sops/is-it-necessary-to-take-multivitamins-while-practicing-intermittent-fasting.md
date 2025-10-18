@@ -1,0 +1,3 @@
+# Is it necessary to take multivitamins while practicing intermittent fasting?
+
+If you ensure that the food you eat during your eating window on intermittent fasting is healthy and full of vitamins, you will still be getting plenty of nutrients without having to take a supplement. Vitamins fall into two categories: fat-soluble and water-soluble.The water-soluble vitamins like C and B can be consumed via vegetables and nutritional yeast, which also contain many of your necessary minerals. Fat-soluble vitamins like A, D, E, and K can be found in fatty fish and avocados. Adding seafood or kelp to your diet can help you maintain enough trace minerals.https://hls-player.drberg.com/asset?path=migrated-assets/do-i-need-multivitamins-on-intermittent-fasting-drberg

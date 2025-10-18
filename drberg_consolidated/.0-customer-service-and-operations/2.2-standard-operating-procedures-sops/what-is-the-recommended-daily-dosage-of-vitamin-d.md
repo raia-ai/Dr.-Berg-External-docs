@@ -1,0 +1,3 @@
+# What is the recommended daily dosage of vitamin D?
+
+The Recommended Daily Intake (RDI) for vitamin D varies based on different sources:National Institute of Health: Recommends 600 international units (IU) (15 mcg) of vitamin D daily.General RDA Figures: Typically range from 400 to 800 IU (10 - 20 mcg) per day.However, it's important to note that these figures are often considered outdated and primarily focused on preventing diseases like osteoporosis and rickets. Recent research suggests that higher intake may benefit broader health aspects, including immune function and inflammation regulation.

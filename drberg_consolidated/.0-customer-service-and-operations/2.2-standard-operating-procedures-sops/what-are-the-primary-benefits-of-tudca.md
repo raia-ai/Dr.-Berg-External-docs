@@ -1,0 +1,3 @@
+# What are the primary benefits of TUDCA?
+
+Benefits of TUDCATUDCA thins bile, improving its flow, and promotes eye health, potentially aiding in retinal degenerative disease. It has been shown to improve symptoms of Parkinson’s disease, exhibit positive effects on ALS, and prevent and repair stroke damage. Additionally, TUDCA alleviates spasms, reduces fevers, enhances visual acuity, and prevents apoptosis. It has powerful anti-inflammatory effects, decreases fibrosis, particularly in the liver, and protects the brain. TUDCA supports insulin sensitivity, strengthens the gut lining, and protects the kidneys.https://hls-player.drberg.com/asset?path=migrated-assets/the-benefits-of-tudca

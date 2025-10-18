@@ -1,0 +1,3 @@
+# What are some ways to make intermittent fasting more manageable?
+
+Here are a few things that will make intermittent fasting easier for you:1. Tea (naturally decaffeinated) 2. Bullet-proof coffee (adding butter or coconut oil with coffee) 3. Electrolytes 4. Apple Cider Vinegar (1 tbs in water) 5. Kale shake (add the lemon raw wheatgrass juice powder) 6. Keto bombs (fat cookie) at the meal. 7. More sleep 8. Exercise9. Spend more time eating while you are eating and not rushing it.

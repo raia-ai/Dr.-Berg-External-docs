@@ -1,0 +1,3 @@
+# What are the potential side effects during the process of adapting to a ketogenic diet?
+
+During the keto-adaptation phase, you may experience side effects such as weakness, fatigue, muscle cramps, and others. These symptoms can be prevented by ensuring an adequate intake of electrolytes and B vitamins. Common side effects include fatigue, palpitations, bad breath, and constipation. By supplementing with these nutrients, you can alleviate these symptoms and support your body's adaptation to ketosis.https://hls-player.drberg.com/asset?path=migrated-assets/6-tricks-to-speed-keto-adaptation-drberg

@@ -1,0 +1,3 @@
+# Which vitamins are essential for maintaining optimal eye health?
+
+A lot of the problems of the eye are triggered by high levels of oxidation usually from too much blood sugar or high levels of insulin which can also deplete certain nutrients as well.Important Nutrients for the Eyes 1. Vitamin A – Night blindness, dry eyes, cataracts, macular degeneration 2. Vitamin B1 – Cataracts, retinopathy 3. Vitamin B3 – Glaucoma 4. Zinc – Allows vitamin A to work, lots of zinc in the eye, cataracts, macular degeneration 5. Vitamin D – Cataracts 6. Carotenoids (Lutein, Zeaxanthin) – Macular Degeneration 7. Vitamin B2 – Cataracts, Macular Degeneration https://hls-player.drberg.com/asset?path=migrated-assets/the-most-important-vitamins-for-eye-health-drberg
