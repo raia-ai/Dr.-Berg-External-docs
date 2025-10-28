@@ -1,3 +1,0 @@
-# How can I stop my acid reflux naturally?
-
-Acid reflux is when acid is regurgitated into the esophagus, causing a painful burning sensation. The top cause of acid reflux is a deficiency of acid in the stomach, which causes the stomach to overproduce, leading to GERD and acid reflux. The common treatments for acid reflux or heartburn may help someone feel better temporarily, but they aren't good long-term solutions.How to stop acid reflux naturally:1. Take betaine hydrochloride2. Get plenty of potassium and sea salt3. Get plenty of zinc4. Chew your food longer5. Lower your stress levelshttps://hls-player.drberg.com/asset?path=migrated-assets/how-to-stop-acid-reflux-instantly

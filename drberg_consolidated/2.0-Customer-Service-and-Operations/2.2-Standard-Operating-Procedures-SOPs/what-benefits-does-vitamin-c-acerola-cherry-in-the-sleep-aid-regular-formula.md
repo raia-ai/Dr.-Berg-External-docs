@@ -1,3 +1,0 @@
-# What benefits does Vitamin C (Acerola Cherry) in the Sleep Aid Regular Formula?
-
-Why Acerola Cherries (Vitamin C) is a beneficial ingredient in our Sleep Aid Regular FormulaStress: Stress can impact sleep. Vitamin C is important for overall health and well-being. Immune System: A healthy immune system is crucial for overall health. Vitamin C is one of many nutrients that contribute to immune function. Antioxidant Properties: Vitamin C is an antioxidant that helps protect the body from oxidative stress.

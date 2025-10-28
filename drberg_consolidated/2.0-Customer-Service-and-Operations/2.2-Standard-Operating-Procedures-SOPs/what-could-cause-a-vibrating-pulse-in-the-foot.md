@@ -1,3 +1,0 @@
-# What could cause a vibrating pulse in the foot?
-
-A vibrating pulse in the foot could be attributed to several factors. One common cause is neuropathy, often associated with pre-diabetes or insulin resistance. In such cases, Benfotiamine supplementation can be beneficial, alongside reducing high carbohydrate intake. Another potential cause, though less common, is hypercalcemia, which involves elevated calcium levels in the blood and can lead to similar nerve-related symptoms. This condition might also present with excessive thirst and frequent urination. If these symptoms persist, consulting a healthcare professional for a comprehensive evaluation is advisable.

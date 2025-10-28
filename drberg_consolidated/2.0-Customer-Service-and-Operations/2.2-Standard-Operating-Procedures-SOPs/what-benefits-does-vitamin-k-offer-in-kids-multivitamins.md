@@ -1,3 +1,0 @@
-# What benefits does Vitamin K offer in Kids Multivitamins?
-
-Kids Multivitamin - Vitamin K (fruit and vegetable sourced) Vitamin K is an important nutrient that contributes to several aspects of children's health. Blood Clotting: Vitamin K is involved in the production of clotting factors, which are necessary for normal blood clotting. Osteocalcin: Vitamin K is involved in the production of osteocalcin, a protein that helps bind calcium to bones.

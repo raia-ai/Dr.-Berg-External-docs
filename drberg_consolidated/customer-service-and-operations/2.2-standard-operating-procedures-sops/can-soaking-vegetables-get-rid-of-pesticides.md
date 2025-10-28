@@ -1,3 +1,0 @@
-# Can soaking vegetables get rid of pesticides?
-
-I think it'll help a little tiny bit, but you need to these pesticides, you have to usually soak them with and even outside of vinegar can help you. But you want to add something to it. I have a video on that and I give options of how to how to remove some of this stuff. But just water alone will do. Maybe 5% elimination, but the chemicals are fat soluble. And this is why when you get a chemical wash, it usually can actually use a salt. It's a natural solvent that helps pull out some of these fat soluble chemicals that get attached to the outside of the vegetable. So find something like that.

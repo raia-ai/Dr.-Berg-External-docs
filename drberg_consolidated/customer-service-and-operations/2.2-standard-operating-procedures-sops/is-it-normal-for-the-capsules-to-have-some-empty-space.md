@@ -1,3 +1,0 @@
-# Is it normal for the capsules to have some empty space?
-
-We have a rigorous quality control process. Every bottle is weighed, and if there's any discrepancy from the expected weight, the bottle is removed from the line. Each capsule in that bottle is then individually inspected and weighed. We don't use fillers in our capsules, so some empty space within the capsule itself is normal and expected. However, there should not be significant variations in the amount of product between capsules. In rare cases, a small amount of powder might escape a capsule during shipping.

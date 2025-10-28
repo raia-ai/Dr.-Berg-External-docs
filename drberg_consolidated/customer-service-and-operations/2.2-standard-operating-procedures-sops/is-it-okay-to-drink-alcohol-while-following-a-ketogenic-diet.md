@@ -1,3 +1,0 @@
-# Is it okay to drink alcohol while following a ketogenic diet?
-
-There are alcoholic drinks that are low carb and zero carbs, but the alcohol itself is a solvent to the liver, which acts as a poison (toxin) destroying liver and brain cells, eventually causing a fatty liver, inflammation, fibrosis and scar tissue (cirrhosis). It will dehydrate you and deplete B-vitamins and bump you out of fat burning for a few days.https://hls-player.drberg.com/asset?path=migrated-assets/can-i-drink-alcohol-on-keto-ketogenic-diet-drberg

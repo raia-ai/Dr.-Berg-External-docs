@@ -1,3 +1,0 @@
-# What are the best ways to avoid dizziness during fasting?
-
-To prevent dizziness while fasting, particularly on a carnivore diet, ensure adequate intake of potassium, magnesium, and sea salt. Electrolyte imbalances can cause dizziness, often exacerbated by low salt levels or fluid loss from diarrhea or vomiting. Sea salt can help quickly restore energy and balance. Additionally, consider taking vitamin B1, especially if dizziness persists. For optimal nutrient intake, diversify your diet to include a range of foods like eggs, seafood, and organ meats.https://hls-player.drberg.com/asset?path=migrated-assets/do-you-feel-lightheaded-on-keto-diet-intermittent-fasting-drberg

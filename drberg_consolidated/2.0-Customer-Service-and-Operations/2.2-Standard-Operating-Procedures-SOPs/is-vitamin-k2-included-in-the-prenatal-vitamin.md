@@ -1,3 +1,0 @@
-# Is vitamin K2 included in the Prenatal Vitamin?
-
-While prenatal supplements often contain vitamin K, most brands contain vitamin K1, which supports blood clotting but has minimal benefits for calcium balance and bone health. In contrast, vitamin K2 regulates skeletal calcium deposition and promotes fetal bone development. If you believe you would benefit from taking vitamin K2 during pregnancy, consult a healthcare provider to identify an appropriate prenatal supplement.

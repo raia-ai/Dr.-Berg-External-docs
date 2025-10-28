@@ -1,3 +1,0 @@
-# Does long-term sun exposure raise the risk of cancer?
-
-Dr. Dan Coit, a surgical oncologist that researched melanomas and found out that they are not related to sun exposure. Melanocytes are cells in the skin that release melanin that protects our skin against UV light.You get vitamin D from the sun and vitamin D is very protective against a lot of different types of diseases. He also talks about how some chemicals from the sunscreen can actually trigger skin disease.*We recommend consulting with your doctor before making any dietary changes or before you start taking any new supplements, especially if you have any existing health conditions.

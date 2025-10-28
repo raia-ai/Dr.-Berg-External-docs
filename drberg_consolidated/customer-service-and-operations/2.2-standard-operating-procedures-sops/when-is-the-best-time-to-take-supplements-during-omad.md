@@ -1,3 +1,0 @@
-# When is the best time to take supplements during OMAD?
-
-For an OMAD regimen, timing of supplement intake can impact effectiveness and comfort. Fat-soluble vitamins, such as D and K2, can be taken at any time, ideally with a meal to enhance absorption, though many products include coconut or MCT oil to aid in this process. For electrolyte powders, it's best to consume them earlier in the day to avoid excessive nocturnal urination. Other supplements can be taken as needed, ensuring they are integrated into your routine in a manner that aligns with your fasting schedule.https://hls-player.drberg.com/asset?path=migrated-assets/drberg-recommended-supplements-for-intermittent-fasting

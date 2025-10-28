@@ -1,3 +1,0 @@
-# What can trigger nightmares?
-
-Nightmares are frightening or very unpleasant dreams. If you experience them, they are due to a nutritional deficiency.Cause: Vitamin B1 deficiencyVitamin B1 is very important for the healthy functioning of your nervous system and brain. One of the symptoms of vitamin B1 deficiency is nightmares. You can be deficient in this vitamin either by not consuming it enough or by consuming foods that deplete your body of it.

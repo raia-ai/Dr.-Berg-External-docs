@@ -1,3 +1,0 @@
-# Is there a significant difference between grass-fed and grass-finished beef?
-
-Grass-fed doesn’t mean the cow is entirely fed grass. Grass-finished means the cow has consumed grass its entire life. We want the cow to consume only grass to increase omega-3 fatty acids and CLA (conjugated linoleic acid, a fatty acid found in meat and dairy that is believed to have various health benefits) and have more vitamin E and A. But 97 percent of all beef in the US is grain-fed.You also want to consume beef that is pasture-raised, meaning that the animal got its food from organic grass grown in a pasture.

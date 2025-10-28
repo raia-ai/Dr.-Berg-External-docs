@@ -1,3 +1,0 @@
-# What is liver body type?
-
-Someone with a liver body type will have a big pot belly or beer belly. If you tap one side of the belly, you will feel a ripple effect—this is because the belly in filled with fluid. A million sit-ups will not flatten this kind of stomach. That’s because it’s a result of an unhealthy liver.https://hls-player.drberg.com/asset?path=migrated-assets/drberg-liver-body-type-05

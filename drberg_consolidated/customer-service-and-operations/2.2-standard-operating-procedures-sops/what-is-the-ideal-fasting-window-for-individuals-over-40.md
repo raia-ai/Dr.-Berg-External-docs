@@ -1,3 +1,0 @@
-# What is the ideal fasting window for individuals over 40?
-
-For individuals over 40, starting with an 18-hour fasting window and a 6-hour eating window is often effective. This approach, typically involving skipping breakfast, is manageable and can yield significant benefits, including enhanced autophagy.For those seeking more pronounced results, such as improved immune function, a 20-hour fasting period with a 4-hour eating window may be beneficial. This extended fasting duration can further enhance the health benefits of intermittent fasting.https://hls-player.drberg.com/asset?path=migrated-assets/is-it-safe-for-an-older-person-to-fast

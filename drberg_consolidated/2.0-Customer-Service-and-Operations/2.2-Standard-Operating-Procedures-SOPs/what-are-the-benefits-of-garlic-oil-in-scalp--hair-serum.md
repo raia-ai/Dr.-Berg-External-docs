@@ -1,3 +1,0 @@
-# What are the benefits of garlic oil in Scalp & Hair Serum?
-
-Scalp & Hair Serum - Garlic Oil (Allium sativum) Traditional hair care: Garlic oil has been traditionally used to support healthy hair and scalp. May support healthy hair: Garlic oil may help contribute to the overall health and appearance of your hair. May promote scalp balance: This ingredient may help promote a balanced and harmonious scalp environment. May help reduce discomfort: This ingredient may help to reduce feelings of discomfort on the scalp.

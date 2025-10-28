@@ -1,3 +1,0 @@
-# What are signs of a dying liver?
-
-The first two symptoms of a liver problem typically are: 1. Malaise (you just don’t feel quite right) 2. FatigueAs things progress over the years, you may start to notice more indicators or signs of a dying liver. 10 signs of a dying liver: 1. Confusion or disorientation 2. Ascites 3. Severe itching 4. Yellowing of the skin and the whites of the eyes 5. No appetite 6. Weakness and fatigue 7. Nausea 8. Bloating 9. Edema (in the ankles and legs, especially the left side) 10. Bruising https://hls-player.drberg.com/asset?path=migrated-assets/10-signs-of-a-dying-liver-end-stage-liver-disease

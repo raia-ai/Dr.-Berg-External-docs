@@ -1,3 +1,0 @@
-# Why do I feel sick when I exercise?
-
-Feeling unwell after exercise might indicate a deficiency in L-glutamine. This amino acid is crucial for immune function and gut health. Low L-glutamine, combined with excessive exercise, can impair immunity and increase infection risk. To address this, consider supplementing with 5-10 grams of L-glutamine daily. Increased needs can also arise from systemic or chronic inflammation, surgery, or trauma.

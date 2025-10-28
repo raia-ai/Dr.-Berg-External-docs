@@ -1,3 +1,0 @@
-# What vitamin can I take to boost my exercise performance?
-
-Vitamin B1 is intimately involved in the mitochondria or the energy factor of the cell, especially in cellular respiration (the use of oxygen in the combustion of food into energy). B1 is an anti-fatigue nutrient that can give you endurance.https://hls-player.drberg.com/asset?path=migrated-assets/vitamin-b1-boost-energy-for-workout-drberg-on-b1-vitamin-for-energy-boost

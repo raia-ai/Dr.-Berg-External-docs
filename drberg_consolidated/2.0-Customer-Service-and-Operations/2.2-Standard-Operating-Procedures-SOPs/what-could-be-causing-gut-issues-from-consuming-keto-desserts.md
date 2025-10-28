@@ -1,3 +1,0 @@
-# What could be causing gut issues from consuming keto desserts?
-
-If you have gut issues, you should not be having any keto desserts. The ingredients in keto desserts can add to the inflammation in your gut. Let’s break down the ingredients you should avoid. 1. Sugar alcohols - Erythritol - Stevia - Monk fruit - Xylitol - Maltitol - IMO (Vita Fiber) 2. Flour alternatives - Almond flour - Coconut flour - Chia seed flour - Chickpea flour - Hazelnut flour 3. Vegetable fats - Coconut out - Safflower oil - Sunflower oil - Corn oil - Soy oil 4. Nuts and seeds (all of them) https://hls-player.drberg.com/asset?path=migrated-assets/keto-desserts-and-gut-issues

@@ -1,3 +1,0 @@
-# What could be causing me to feel worse after taking apple cider vinegar?
-
-Feeling worse after taking apple cider vinegar may indicate:1. Ulcer2. GastritisRemedies:1. Zinc carnosine (50 mg, 3x daily)2. Chlorophyll3. Cabbage4. DGL-licorice5. ProbioticsFor gastritis, ulcers, and SIBO, avoid probiotics and fiber. Consider a carnivore diet and fasting.Prevent recurrence with a healthy keto diet and intermittent fasting.Apple Cider Vinegar Benefits:- Regulates blood sugar- Improves insulin resistance- Aids digestionBest taken before meals, mixed in water, or as tablets (4-5). Betaine hydrochloride can also help.https://hls-player.drberg.com/asset?path=migrated-assets/feeling-worse-with-apple-cider-vinegar-acv

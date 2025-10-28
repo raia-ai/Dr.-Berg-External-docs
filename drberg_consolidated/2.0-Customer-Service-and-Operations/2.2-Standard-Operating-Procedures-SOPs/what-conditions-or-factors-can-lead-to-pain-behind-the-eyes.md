@@ -1,3 +1,0 @@
-# What conditions or factors can lead to pain behind the eyes?
-
-Many eye problems like soreness, sensitivity to light, and eye strain can be linked to nerve hypersensitivity, often exacerbated by underlying conditions such as shingles. Shingles, triggered by factors like cold weather, stress, and nutrient deficiencies (such as vitamin D and zinc), can manifest with symptoms including pain behind the eyes. Preventive measures include maintaining strong immunity through adequate sleep, regular exercise, stress reduction, and a healthy diet like Healthy Keto®.https://hls-player.drberg.com/asset?path=migrated-assets/fixed-jan-9th-triggers-of-shingles

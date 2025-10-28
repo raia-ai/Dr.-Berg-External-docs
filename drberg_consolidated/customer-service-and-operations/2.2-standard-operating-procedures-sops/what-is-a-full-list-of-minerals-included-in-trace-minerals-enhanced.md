@@ -1,3 +1,0 @@
-# What is a full list of minerals included in Trace Minerals Enhanced?
-
-Trace Minerals Enhanced contains the following minerals: iodine, silicon, copper, manganese, boron, chromium, molybdenum, and zinc. The product also contains 100mg of the Trace Minerals Complex which is comprised of over 70 trace mierals in very small, trace amounts. Most of these trace minerals are in ppm (parts per million) per gram. The complex is 100mg or 1/10 of a gram.

@@ -1,3 +1,0 @@
-# What should I do if I experience sticky, tarry black stools while following a ketogenic diet?
-
-It’s unabsorbed fat. While you’re transitioning from running on sugar for many years to burning fat for fuel, your body needs time to adapt. You need to make more enzymes and bile to properly digest the fat. During this temporary transition time, you could end up with fatty stools, a condition called steatorrhea. You’re overloading the colon with more fat than it can handle.Here is a video where Dr. Berg explains the cause and what you can do: https://www.youtube.com/embed/4GIAf80ZYKo

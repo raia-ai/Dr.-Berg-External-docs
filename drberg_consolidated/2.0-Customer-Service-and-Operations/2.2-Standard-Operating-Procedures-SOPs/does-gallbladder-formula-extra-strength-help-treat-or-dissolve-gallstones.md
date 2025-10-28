@@ -1,3 +1,0 @@
-# Does Gallbladder Formula Extra Strength help treat or dissolve gallstones?
-
-Our Gallbladder Formula Extra Strength is formulated to support healthy gallbladder function and digestion. It is not intended to treat or dissolve gallstones. For personalized guidance on managing gallstones, please consult your healthcare professional for personalized advice. We are not medical professionals. We can not diagnose, treat, or cure any health conditions.

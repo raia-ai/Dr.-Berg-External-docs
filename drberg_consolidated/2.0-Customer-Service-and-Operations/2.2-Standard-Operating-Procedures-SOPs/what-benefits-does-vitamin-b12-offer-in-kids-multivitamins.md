@@ -1,3 +1,0 @@
-# What benefits does Vitamin B12 offer in Kids Multivitamins?
-
-Kids Multivitamin - Vitamin B12 (Methylcobalamin) Methylcobalamin is a highly bioavailable form of vitamin B12. Active form: This multivitamin includes methylcobalamin, a form of vitamin B12. Nerve Cells: Methylcobalamin is involved in maintaining healthy nerve cells. Energy: Methylcobalamin helps in the production of energy within cells. Red Blood Cells: Methylcobalamin is involved in the formation of red blood cells. Well-being: Methylcobalamin supports overall health and well-being.

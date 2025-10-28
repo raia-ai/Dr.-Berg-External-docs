@@ -1,3 +1,0 @@
-# What should I do and avoid if I have diarrhea?
-
-Dietary Do's and Don'ts for DiarrheaFoods and Drinks to Avoid:- Dairy products (if lactose intolerant)- Fatty or greasy foods- Spicy foods- High-fiber foods (raw fruits, vegetables, whole grains, legumes)- Caffeinated beverages (coffee, tea, soda)- Alcohol and sugary drinksThese can be hard to digest and may worsen diarrhea.When to Seek Medical Advice:- Diarrhea lasts more than a few days- Severe symptoms accompany diarrheaFor lactose intolerance, avoid dairy to see if symptoms improve. Stick to low-fiber, easily digestible foods until you recover.

@@ -1,3 +1,0 @@
-# What can Adrenal Glandular help with?
-
-Adrenal Glandular is a powerful supplement that helps fight off adrenal fatigue and boost your resistance to stress. This product is a perfect fit for those who experience brain fog, irritability, low stress tolerance, and other signs of adrenal burnout.*We recommend consulting with your doctor before making any dietary changes, especially if you have any existing health conditions.

@@ -1,3 +1,0 @@
-# What is the amount of elemental magnesium in Magnesium Glycinate?
-
-One capsule of our Magnesium Glycinate product contains 120 mg of elemental magnesium per capsule. The FDA mandates that the elemental magnesium amount be labeled as magnesium. The source and form of magnesium must be specified and distinguished from the elemental magnesium content. Please note that our labeling may differ from other companies' products (as seen in the examples below). Dr Berg's Magnesium Glycinate LabelOther labels and methods of presenting elemental magnesium from magnesium glycinate

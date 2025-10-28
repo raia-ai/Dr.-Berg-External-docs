@@ -1,3 +1,0 @@
-# What could be the possible reasons for left-sided abdominal pain after eating?
-
-Left-sided abdominal pain causes:The left side of the abdomen can be affected by:- Spleen issues- Kidney stones- Intestinal problems- Heart conditions- Pancreatic issuesPancreatic factors causing left-side pain:1. High carb diet2. Gallstones3. Alcohol consumption4. Poor dietary choices5. Medications6. Infections7. Elevated blood calcium levelsManagement for left-sided abdominal pain:1. Intermittent fasting2. Adopting a healthy keto diet3. Increased consumption of vegetablesConsult a healthcare professional for proper diagnosis and treatment.https://hls-player.drberg.com/asset?path=migrated-assets/abdominal-pain-radiating-to-the-back-deeper-causes-of-chronic-pancreatitis-drberg

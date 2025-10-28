@@ -1,3 +1,0 @@
-# How can I use nutritional yeast in my diet?
-
-Nutritional yeast is a type of yeast that is a microbe that is inactive. It’s different than bakers yeast, which is an active yeast. You need to be sure you’re consuming non-fortified nutritional yeast. My version is non-fortified and does not contain synthetic vitamins. Nutritional yeast uses in your diet:1. Broths2. Sauces3. Soups4. Salads5. Curries6. Eggs7. Veggies8. Dips https://hls-player.drberg.com/asset?path=migrated-assets/8-ways-to-use-nutritional-yeast-in-your-diet

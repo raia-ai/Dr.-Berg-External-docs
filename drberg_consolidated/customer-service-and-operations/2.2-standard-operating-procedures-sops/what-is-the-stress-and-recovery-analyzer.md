@@ -1,3 +1,0 @@
-# What is the Stress and Recovery Analyzer?
-
-The Dr. Berg Stress and Recovery Analyzer. Designed to provide real-time insight into key health metrics for a comprehensive view of your overall well-being. Whether you're an athlete and want to analyze your workouts or simply looking to understand your health better, the Dr. Berg Stress and Recovery Analyzer is an invaluable tool to empower you with knowledge. Get your results fast with easy set up and installation via Bluetooth technology.

@@ -1,3 +1,0 @@
-# Can nutritional yeast help with the adaptation process to a ketogenic diet?
-
-Nutritional yeast gives us amino acids (protein), B vitamins, minerals, and trace minerals which are all needed in the transition from sugar burning to fat burning (keto-adaptation). You want to make sure you get a non-fortified one without synthetic B vitamins.https://hls-player.drberg.com/asset?path=migrated-assets/keto-adaptation-and-nutritional-yeast

@@ -1,3 +1,0 @@
-# What are the most common mistakes people make when treating acne?
-
-Common mistakes during acne treatment include over-washing and scrubbing the skin, using harsh products that disrupt the skin's natural balance, not considering hormonal factors, and ignoring diet-related causes such as high insulin levels. These actions can worsen acne or prolong its healing process.https://hls-player.drberg.com/asset?path=migrated-assets/how-to-get-rid-of-acne-the-biggest-mistake-in-acne-treatment-drberg

@@ -1,3 +1,0 @@
-# How many carbs should I eat to support higher levels of fitness?
-
-The first thing you needed to do is to get your body fat adapted and it could take some time especially if you’re an athlete. With Keto (Ketogenic Diet) you will have the flexibility to go from 20grams to 50grams on the high end for carbs.The type of carbohydrates are very important and you want to consume the carbs that are low in the glycemic index and also low in glycemic load. Foods (Carbohydrates) to Consume: • Berries – Blackberries and Raspberries • Green Bananas • HummusThese foods are great to consume especially for someone that is doing a higher levels of performance whether it is for competing, crossfit workouts or long distance running.

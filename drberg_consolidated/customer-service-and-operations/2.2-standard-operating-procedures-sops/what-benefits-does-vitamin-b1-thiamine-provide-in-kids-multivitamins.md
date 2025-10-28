@@ -1,3 +1,0 @@
-# What benefits does Vitamin B1 (Thiamine) provide in Kids Multivitamins?
-
-Kids Multivitamin - Vitamin B1 (Thiamine) (fruit and vegetable sourced)Vitamin B1, also known as thiamine. Here are some of the key benefits of including thiamine in a children's multivitamin: Converting food to energy: Thiamine helps the body convert carbohydrates into energy. Nerve function: Thiamine is involved in supporting healthy nerve function.

@@ -1,3 +1,0 @@
-# What do I do if I'm thinking about food too often?
-
-There are two types of people:• People who eat for health• People who eat for pleasure If you have food cravings, it’s almost impossible to eat for health. Once you get rid of cravings (yes, it’s possible), it allows you to better control what you eat. The purpose of food is to give you nourishment. Food can still be pleasurable. But, once you start letting food control you, that’s when it gets out of hand. https://hls-player.drberg.com/asset?path=migrated-assets/always-thinking-about-food-drberg-explains-what-causes-food-cravings

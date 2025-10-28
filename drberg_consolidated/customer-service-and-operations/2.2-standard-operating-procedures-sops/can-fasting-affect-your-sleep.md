@@ -1,3 +1,0 @@
-# Can fasting affect your sleep?
-
-There are two things you can try: 1. You can add MCT oil to your diet. You want to have this just before bed. 2. Increase your carbs to 50g a day. Try one of these and see how it affects your sleep. The reason for this problem has to do with insulin resistance. You could have insulin resistance that has been there for a long time. This causes your brain to be starved of glucose. It can take your body time to adapt to ketones so that your energy, especially in the brain, isn’t restricted.https://hls-player.drberg.com/asset?path=migrated-assets/is-fasting-messing-up-your-sleep

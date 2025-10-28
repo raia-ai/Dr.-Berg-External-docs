@@ -1,3 +1,0 @@
-# Is it okay to exercise while fasting?
-
-People often believe they must eat before they exercise to have enough energy, but this is not always true. If you are fasting regularly, your body will begin to burn fat for energy, which means that you will still be able to exercise without eating prior.Benefits of exercise while fasting:• A massive additional increase in growth hormone• Amazing reparative actions • You can enhance fat burning by 20-30% https://hls-player.drberg.com/asset?path=migrated-assets/should-i-workout-while-i-am-fasting-drberg-answers

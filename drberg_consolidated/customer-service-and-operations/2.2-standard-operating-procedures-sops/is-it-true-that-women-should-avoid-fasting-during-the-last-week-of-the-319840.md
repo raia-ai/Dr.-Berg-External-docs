@@ -1,3 +1,0 @@
-# Is it true that women should avoid fasting during the last week of their cycle to prevent disrupting hormonal function?
-
-It's only true if you're nutrient deficient before, during, or after fasting. That's why it's crucial to supplement with electrolytes, B vitamins, omega-3, vitamin D, vitamin C, and trace minerals during fasting to prevent deficiencies that could impact your body's functions. Proper supplementation ensures a balanced approach to fasting and supports overall health during this period.

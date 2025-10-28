@@ -1,3 +1,0 @@
-# What types of teas should be avoided during pregnancy?
-
-Some herbal teas contain compounds that may have side effects, especially in pregnant women, and it’s best to avoid teas including hibiscus, licorice, blue cohosh, fenugreek, nettle, fennel, sage, and motherwort. In addition, limiting caffeinated teas such as matcha, chai, black, green, and white tea is recommended due to their caffeine content.

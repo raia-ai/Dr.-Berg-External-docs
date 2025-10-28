@@ -1,3 +1,0 @@
-# What is the concept of water fasting?
-
-Water fasting involves consuming only water, excluding all other beverages and supplements. However, it's advisable to include vitamins, minerals, sea salt, coffee, and tea to avoid nutrient deficiencies. Drink filtered or bottled spring water instead of tap or distilled water. Gradually transition from intermittent fasting to prolonged fasting to help your body adapt. The benefits of fasting include increased brain cell production, antioxidants, and mitochondria, improved insulin levels, enhanced autophagy, reduced inflammation, and a lower risk of tumors and cancer.https://hls-player.drberg.com/asset?path=migrated-assets/what-is-water-fasting-drberg

@@ -1,3 +1,0 @@
-# What benefits does Vitamin B7 (Biotin) provide in Kids Multivitamins?
-
-Kids Multivitamin - Vitamin B7 (Biotin) Biotin, also known as vitamin B7, is a nutrient, that may offer several benefits: Energy: Biotin contributes to the body's energy production processes. Biotin: Keratin is a key protein that makes up hair, skin, and nails. Nervous System: Biotin contributes to the health of the nervous system. Gene Expression: Biotin plays a role in gene expression.

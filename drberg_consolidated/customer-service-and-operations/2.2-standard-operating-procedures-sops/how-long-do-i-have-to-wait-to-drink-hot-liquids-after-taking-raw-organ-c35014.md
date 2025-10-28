@@ -1,3 +1,0 @@
-# How long do I have to wait to drink hot liquids after taking Raw Organic Wheatgrass Juice Powder?
-
-It takes 30 minutes for a cool drink like Wheatgrass Juice Powder to absorb, then you can have a hot drink, and it will not affect the digestive enzymes in it. If you drink hot liquids first, best to wait 1-2 hrs. before drinking the Wheatgrass Juice Powder. Wheatgrass Juice Powder is best on an empty stomach, 20 minutes before your meal or 2 hrs after.

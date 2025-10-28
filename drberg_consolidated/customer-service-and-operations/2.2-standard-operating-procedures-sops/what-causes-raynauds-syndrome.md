@@ -1,3 +1,0 @@
-# What causes Raynaud's syndrome?
-
-Raynaud’s syndrome is a condition where your fingertips turn blue or purple, usually after exposure to cold. Stress can actually trigger Raynaud’s syndrome as well. This could last from minutes to hours.Cause #1: Vitamin B1 deficiencyVitamin B1 is vital for the healthy regulation and adaptation of your body’s temperature changes. When your body cannot adapt to cold, this can manifest itself in Raynaud’s syndrome. Consuming enough vitamin B1 will support your nervous system and your tolerance to cold.

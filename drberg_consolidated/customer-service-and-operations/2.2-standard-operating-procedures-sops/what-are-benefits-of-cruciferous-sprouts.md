@@ -1,3 +1,0 @@
-# What are benefits of cruciferous sprouts?
-
-Cruciferous sprouts contain 100 times the amount of sulforaphane as adult plant counterparts. This phytonutrient can help increase your resistance to cancer. They induce carcinogen-detoxifying enzymes. Sprouts can also promote selective apoptosis. Studies show that sprouts are highly effective at lowering incidences of breast tumor cells. Other research shows that they can help protect against H. pylori and gastritis. Add some cruciferous sprouts to your salad or smoothie, or eat them on their own. These incredible superfoods are worth adding to your shopping list.

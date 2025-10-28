@@ -1,3 +1,0 @@
-# How can I download the Dr. Berg Junk Food Meter app?
-
-The Dr. Berg Junk Food Meter app is available for iOS and Android devices.iOS users can download the app from the Apple App Store - https://apps.apple.com/app/id6738574318Android users can download the app from the Google Play Store - https://play.google.com/store/apps/details?id=com.passio.drberg https://play.google.com/store/apps/details?id=com.passio.drberg&pcampaignid=web_share

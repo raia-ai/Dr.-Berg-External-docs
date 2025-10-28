@@ -1,3 +1,0 @@
-# How is the Stress and Recovery Analyzer test data stored? Is it safe?
-
-The Stress and Recovery Analyzer is a licensed product developed by Binacor, LLC. All test results are stored on secure servers by Binacor. Binacor is committed to maintaining the confidentiality, integrity and security of any personal information about our Stress and Recovery Analyzer users. More information is available through Binacor's Privacy Policy - https://bodyhealthanalyzer.com/privacy-policy-2/.

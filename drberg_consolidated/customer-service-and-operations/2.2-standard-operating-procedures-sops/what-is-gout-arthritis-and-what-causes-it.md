@@ -1,3 +1,0 @@
-# What is gout arthritis, and what causes it?
-
-Gout arthritis comes from being too acidic. If your body pH is too acidic this can cause calcium deposits in your joints, mainly in the smaller parts of your body like fingers. The condition usually gets better when you alkalize your body more. One of the best ways to alkalise the body is to consume citrates.https://hls-player.drberg.com/asset?path=migrated-assets/why-is-lemon-juice-good-for-gout-arthritis-and-bad-for-osteoarthritis-drberg

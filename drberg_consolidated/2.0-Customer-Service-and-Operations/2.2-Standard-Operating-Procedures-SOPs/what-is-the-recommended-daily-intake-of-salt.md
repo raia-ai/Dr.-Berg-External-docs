@@ -1,3 +1,0 @@
-# What is the recommended daily intake of salt?
-
-You need around 1 to 2 tsp of salt per day. The amount depends on your activity level. If you sweat a lot, this can increase your need for sodium. If you’re on keto, you want a bare minimum of 1 tsp of salt a day. This is because, as you lose fat, you also lose water weight and electrolytes. Salt is a vital electrolyte. The best one is Himalayan salt.

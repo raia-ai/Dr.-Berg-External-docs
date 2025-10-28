@@ -1,3 +1,0 @@
-# What can cause left-sided abdominal pain?
-
-Left-Side Abdominal Pain: Potential Pancreas IssuePain on the left side of your abdomen may indicate a problem with the pancreas, as it's connected to this area through specific nerves.Pancreas Functions:1. Hormone Production: Generates insulin. Overproduction due to high carb intake can overwork the pancreas, leading to pain.2. Enzyme Production: Produces digestive enzymes. Eating processed or enzyme-poor foods can strain the pancreas.https://hls-player.drberg.com/asset?path=migrated-assets/left-sided-abdominal-pain-after-eating-cause-of-abdominal-pain-left-side-drberg

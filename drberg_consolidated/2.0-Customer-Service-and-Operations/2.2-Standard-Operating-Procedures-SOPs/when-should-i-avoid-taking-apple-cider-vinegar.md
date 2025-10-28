@@ -1,3 +1,0 @@
-# When should I avoid taking apple cider vinegar?
-
-If you have an ulcer, it is best not to take apple cider vinegar (ACV) as it can agitate the ulcer and cause more burning. If you have gastritis, it may also be best to avoid ACV. Gastritis is caused by inflammation of the stomach lining, and drinking additional acid can increase the inflammation.If you have Zollinger-Ellison syndrome, the production of gastric acid in your body is already above normal levels and ulcers may be formed. Drinking ACV will only continue to overwhelm the stomach with acid, worsening the condition.https://hls-player.drberg.com/asset?path=migrated-assets/when-not-to-take-apple-cider-vinegar-acv

@@ -1,3 +1,0 @@
-# What is a ketone, and how is it produced in the body?
-
-A ketone is an energy unit that the body uses, taken from your own fat reserves. It is a preferred fuel source, the alternative to glucose (blood sugar). Preferred: in other words, your brain and heart love it. When you are on a ketogenic diet, your body switches from using sugar as energy to breaking down and absorbing its own fat.https://hls-player.drberg.com/asset?path=migrated-assets/what-is-a-ketone-explained-by-drberg

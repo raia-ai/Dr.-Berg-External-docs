@@ -1,3 +1,0 @@
-# Which of Dr. Berg's products would you suggest I start with based on my current health needs and goals?
-
-I recommend starting with the Electrolyte Powder. It features a unique blend of minerals, high in potassium and trace minerals, without any hidden ingredients like maltodextrin. It's excellent for those on a keto diet and beneficial even if you're not. This product provides a solid foundation for your nutritional needs.

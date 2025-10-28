@@ -1,3 +1,0 @@
-# What are the benefits of the Liver Cleanse Detox Support?
-
-Dr. Berg's Liver Cleanse Detox Repair Support is formulated to: Formulated with ingredients traditionally used to support liver health. Designed to assist the liver in its essential functions. Includes antioxidants traditionally used to support liver health. Formulated to support healthy bile production. Formulated to support liver health and function. These benefits aim to support your liver's overall health and its ability to perform its essential functions.

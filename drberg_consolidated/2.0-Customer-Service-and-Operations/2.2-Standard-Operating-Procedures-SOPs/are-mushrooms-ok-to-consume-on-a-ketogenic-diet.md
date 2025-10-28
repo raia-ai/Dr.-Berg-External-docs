@@ -1,3 +1,0 @@
-# Are mushrooms ok to consume on a ketogenic diet?
-
-Yes, you can. Here is a list of very powerful mushrooms and their benefits.Benefits of Various Mushrooms1. Reishi: Boosts immunity, anticancer, reduces fatigue, stabilizes blood sugar.2. Shiitake: Lowers LDL, reduces brain plaques, anticancer, lowers blood pressure.3. Lion’s Mane: Prevents dementia, improves focus and memory.4. Chaga: Antibacterial, antiviral, anticancer.5. Cordyceps: Enhances exercise, reduces stress, helps kidney disease and arrhythmias.6. Turkey Tail: Anticancer, boosts immune system.7. Maitake: Relieves stress, eases anxiety, anticancer.https://hls-player.drberg.com/asset?path=migrated-assets/eat-more-mushroom-on-keto

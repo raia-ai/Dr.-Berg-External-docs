@@ -1,3 +1,0 @@
-# Should I take electrolytes while following a ketogenic diet?
-
-It’s the lack of keto electrolytes that’s responsible for: • Keto flu • Constipation • Keto fatigue • Cramping • Heart flutters Why you need electrolytes on keto: 1. Lowering your carbs lowers fluids (including electrolytes) 2. To improve insulin resistance 3. For the mitochondria—requires more electrolytes on keto https://hls-player.drberg.com/asset?path=migrated-assets/the-ketogenic-diet-and-electrolytes

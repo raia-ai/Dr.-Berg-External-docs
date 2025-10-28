@@ -1,3 +1,0 @@
-# What benefits does DIM provide in the DIM Supplement for Estrogen Balance?
-
-DIM Supplement Estrogen Balance - DIM (Diindolylmethane) DIM (Diindolylmethane) is a compound derived from cruciferous vegetables like broccoli, Brussels sprouts, and cabbage. Estrogen: DIM (diindolylmethane) is involved in the body's natural breakdown and processing of estrogen. Antioxidants: Antioxidants help protect cells from damage caused by free radicals. This product contains DIM (diindolylmethane), which has antioxidant properties Estrogen Metabolism: This product contains DIM (diindolylmethane), a compound found in cruciferous vegetables that plays a role in estrogen metabolism.

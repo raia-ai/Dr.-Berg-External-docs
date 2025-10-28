@@ -1,3 +1,0 @@
-# Is gluten in food harmful to my body?
-
-Many nutritional advisors believe gluten is harmful and that you should try to avoid it. However, just because something is gluten-free, that doesn’t mean it’s not going to raise your insulin. For example, grains like wheat might be gluten-free, but they’re still going to affect your blood sugars.Gluten-free grains are better than grains with gluten. But, it’s important to consume a low- carb diet (20 to 50 g of carbs per day) for success with keto. A person could consume gluten-free grains in small amounts as long as they stick to only having 20 to 50 g of carbs per day.

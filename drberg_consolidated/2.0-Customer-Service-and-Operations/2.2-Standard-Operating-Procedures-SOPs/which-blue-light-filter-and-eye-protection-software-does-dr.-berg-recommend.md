@@ -1,3 +1,0 @@
-# Which Blue Light Filter and Eye Protection Software does Dr. Berg recommend?
-
-Dr. Berg Recommends Blue Light Filter and Eye Protection Software - Iris Tech CompanyWebsite: https://iristech.co/?ap_id=drbergAdditionally, Dr. Berg has mentioned:F.lux - https://justgetflux.comNight Shift for macOS, iOS, and iPadOS. Night Light for Android devices.Iris and F.lux provide more customized controls. The Apple and Android blue light software are built into the device's operating software.

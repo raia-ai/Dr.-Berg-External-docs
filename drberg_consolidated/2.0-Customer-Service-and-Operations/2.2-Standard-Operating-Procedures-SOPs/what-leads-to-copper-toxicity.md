@@ -1,3 +1,0 @@
-# What leads to copper toxicity?
-
-Copper toxicity is primarily caused by environmental exposure, such as unbound copper ions in drinking water. However, toxicity can also occur from taking contraceptive pills or having a copper-containing intrauterine device (IUD). In addition, taking supplements with high concentrations of copper or having a zinc deficiency can also lead to copper toxicity, as zinc competes with copper for intestinal absorption.

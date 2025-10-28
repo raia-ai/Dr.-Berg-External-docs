@@ -1,3 +1,0 @@
-# Why do I get sleepy after eating protein?
-
-Only a percentage of protein is absorbed; the rest can be converted to sugar via gluconeogenesis, potentially spiking insulin and causing tiredness. Here are absorption rates:- Breast milk: 49%- Egg: 48%- Meat/fish: 32%- Wheat/soy: 18%- Dairy: 16%- BCAA: <1%Excessive protein, lean protein, or protein with refined carbs can be converted to sugar. Dr. Berg recommends 3 to 6 oz of fatty protein per meal. Adjust if you're very active, large, or young. Experiment to find what works best for you.https://hls-player.drberg.com/asset?path=migrated-assets/why-you-get-sleepy-after-eating-protein-drberg

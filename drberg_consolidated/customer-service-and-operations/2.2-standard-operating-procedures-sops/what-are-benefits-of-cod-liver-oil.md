@@ -1,3 +1,0 @@
-# What are benefits of Cod Liver Oil?
-
-Cod liver oil has the perfect balance of vitamin A and vitamin D These two vitamins support the immune system. Vitamin A and vitamin D are fat-soluble, which means they can penetrate the cell membrane—they are very powerful. Most fat-soluble vitamins are stored in the liver, making cod liver oil a great source of fat-soluble vitamins.Other good sources are grass-fed liver, wild-caught fish, grass-fed butter, and egg yolks. In the winter months, when you don’t get as much sun, taking cod liver oil becomes more important. You can also take cod liver oil to give yourself some really powerful calcium metabolizing vitamins.https://hls-player.drberg.com/asset?path=migrated-assets/cod-liver-oil-benefits-drberg

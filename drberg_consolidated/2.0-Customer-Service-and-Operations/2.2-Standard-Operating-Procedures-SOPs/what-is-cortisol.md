@@ -1,3 +1,0 @@
-# What is cortisol?
-
-Cortisol is a stress hormone produced by your adrenal glands. Cortisol adapts your body to stress state. The more stress you experience, the more cortisol your adrenal glands produce. The side effects of high cortisol and low stress-tolerance are:• Poor sleep• High heart rate• High blood pressure• Arterial inflammation• Cortisol resistance• Lowers immune function and inactivates the natural killer T-cells• Increased cancer risk• Poor memory• Brain fog• Increased risk of nutrient deficiencies (K+, B1, H+) This is why it's very important keeep your adrenal glands healthy.Dr. Berg Adrenal & Cortisol Support supplement supports your adrenals naturally and help reduce side effects of stress.

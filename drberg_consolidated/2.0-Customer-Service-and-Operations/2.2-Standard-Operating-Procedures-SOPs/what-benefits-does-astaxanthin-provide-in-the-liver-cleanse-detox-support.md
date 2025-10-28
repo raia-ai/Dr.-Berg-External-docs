@@ -1,3 +1,0 @@
-# What benefits does Astaxanthin provide in the Liver Cleanse Detox Support?
-
-Astaxanthin: Oxidative Stress: Astaxanthin is recognized for its antioxidant potential. Antioxidants are believed to play a role in protecting cells from oxidative stress. Support for overall liver function: Astaxanthin is recognized for its antioxidant properties. A well-functioning liver, crucial for processes like detoxification, energy production, and nutrient metabolism, relies on a healthy internal balance.

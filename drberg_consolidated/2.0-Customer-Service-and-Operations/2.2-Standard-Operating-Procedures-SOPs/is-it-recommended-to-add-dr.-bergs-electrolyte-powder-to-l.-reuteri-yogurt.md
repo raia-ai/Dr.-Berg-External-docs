@@ -1,3 +1,0 @@
-# Is it recommended to add Dr. Berg's Electrolyte Powder to L. Reuteri Yogurt?
-
-It's generally not recommended to add Dr. Berg's Electrolyte Powder to yogurt after the fermentation process. Here's why:Live cultures: Yogurt contains live and active cultures (probiotics) that are beneficial for gut health. Adding the electrolyte powder, which is quite alkaline, could potentially disrupt the delicate balance of these cultures and reduce their viability.

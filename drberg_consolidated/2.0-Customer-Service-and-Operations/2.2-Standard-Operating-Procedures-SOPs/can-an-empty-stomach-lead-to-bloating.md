@@ -1,3 +1,0 @@
-# Can an empty stomach lead to bloating?
-
-No, an empty stomach is unlikely to cause bloating. Bloating typically results from digestive distress, such as bacterial fermentation or food sensitivities. When the stomach is empty, food from previous meals may still be digested. Bacteria in the gut feed on undigested carbohydrates and fiber, which can contribute to fermentation and gas production. Additionally, sensitivities to dairy, gluten, or other foods can inflame the gastrointestinal tract, which can lead to bloating, gas, and abdominal pain.

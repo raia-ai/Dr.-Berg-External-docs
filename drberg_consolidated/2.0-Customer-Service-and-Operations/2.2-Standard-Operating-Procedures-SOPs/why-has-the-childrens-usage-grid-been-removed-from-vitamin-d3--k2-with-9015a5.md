@@ -1,3 +1,0 @@
-# Why has the children's usage grid been removed from Vitamin D3 & K2 with Zinc & MCT Oil?
-
-The manufacturer removed the children's usage grid for Vitamin D3 & K2 with Zinc & MCT Oil out of an abundance of caution. While the product can be suitable for children, the child's pediatrician needs to approve its use and the appropriate amount. Dr. Berg Nutritionals cannot provide guidance on usage for children.Vitamin D3 & K2 with Zinc & MCT Oil now features measuring lines on the dropper (1.0 mL, 0.75 mL, 0.5 mL, and 0.25 mL) to help estimate the amount of D3 to provide to the child according to their doctor's recommendations. According to the product label, 0.8 mL contains 5000 IUs. The 0.25 mL line on the dropper is roughly equivalent to 1562.5 IUs.

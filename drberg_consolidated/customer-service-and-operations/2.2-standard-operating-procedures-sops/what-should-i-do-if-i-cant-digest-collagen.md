@@ -1,3 +1,0 @@
-# What should I do if I can't digest collagen?
-
-A highly acidic stomach is needed to turn dietary protein into collagen. As you age, stomach acid levels decrease significantly, with those aged 60-70 having only about 25% of the stomach acid they had at 20. This reduction can impair collagen digestion, leading to issues like loss of elasticity and high blood pressure.Stomach acid triggers enzymes that break down food into collagen. To address collagen and digestion issues, start by improving digestion. Taking apple cider vinegar and betaine hydrochloride with meals may help restore proper pH levels.https://hls-player.drberg.com/asset?path=migrated-assets/sagging-skin-collagen-and-digestion-drberg

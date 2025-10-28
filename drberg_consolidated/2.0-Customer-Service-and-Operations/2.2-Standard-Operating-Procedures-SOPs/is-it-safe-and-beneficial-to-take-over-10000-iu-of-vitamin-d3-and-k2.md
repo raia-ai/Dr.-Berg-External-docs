@@ -1,3 +1,0 @@
-# Is it safe and beneficial to take over 10,000 IU of Vitamin D3 and K2?
-
-Individuals might choose to take higher doses of Vitamin D3 and K2 (above 10,000 IU) due to factors such as impaired absorption of these fat-soluble vitamins and other specific health needs; most people are deficient and may benefit from the higher amount to meet the ideal blood levels. It's crucial to remember that our D3 & K2 supplements are not intended to treat or cure any diseases.I can't give you personalized recommendations regarding appropriate Vitamin D3 & K2 usage for your individual needs.https://www.youtube.com/embed/T99bxA2XQVk

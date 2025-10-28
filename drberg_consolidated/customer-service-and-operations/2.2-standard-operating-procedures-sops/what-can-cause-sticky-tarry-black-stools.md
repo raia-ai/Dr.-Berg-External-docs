@@ -1,3 +1,0 @@
-# What can cause sticky, tarry black stools?
-
-Sticky tar-colored black stool is a symptom of consuming too much fat that your body can’t fully digest. It can occur when you have just started a ketogenic diet or it can happen by itself. There are simple remedies for it.Symptoms:Sticky black tarry stoolGreasy stoolFatty stoolSkid marks on the toiletCause #1: Unabsorbed fatIf you are consuming too much fat and your body is not used to it, this can cause the sticky tar-like stool. The solution would be to increase the amounts of bile produced by your body to handle and absorb these fats. Additionally, you can reduce the fat intake temporarily, while your body gets used to it.

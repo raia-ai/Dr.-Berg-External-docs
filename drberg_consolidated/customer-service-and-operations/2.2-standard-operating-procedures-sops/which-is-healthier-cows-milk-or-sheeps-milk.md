@@ -1,3 +1,0 @@
-# Which is healthier: cow's milk or sheep's milk?
-
-Sheep milk cheese is healthier than most cow milk cheese and is better tolerated and utilized in the human body.Most cow milk cheese contains A1 casein, which is actually a genetic mutation. A1 casein allows a harmful peptide known as BCM-7 into the digestive tract, which can cause digestive issues. The A2 casein found in sheep milk cheese does not cause this problem.

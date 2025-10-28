@@ -1,3 +1,0 @@
-# What is the maximum storage temperature for Friendly Bacteria Probiotic Liquid?
-
-For optimal preservation of our Friendly Bacteria Probiotic, storing it in the refrigerator is recommended, but not required. Alternatively, you can store it in a cool, dry place away from direct sunlight, oven or stove. Avoid leaving the product in a hot car or exposing it to temperatures exceeding 80 degrees Fahrenheit.

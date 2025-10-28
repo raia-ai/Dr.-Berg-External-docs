@@ -1,3 +1,0 @@
-# How many carbs are considered low-carb on a keto diet?
-
-For most people following a ketogenic diet, daily net carbohydrate intake should be kept below 20-50 grams. This range allows the body to enter and maintain ketosis, promoting fat-burning for energy production.Individual carb tolerance may vary, so monitoring your response and adjusting accordingly is essential.https://hls-player.drberg.com/asset?path=migrated-assets/what-is-net-carb-understanding-net-carbs-on-keto-diet-with-drberg

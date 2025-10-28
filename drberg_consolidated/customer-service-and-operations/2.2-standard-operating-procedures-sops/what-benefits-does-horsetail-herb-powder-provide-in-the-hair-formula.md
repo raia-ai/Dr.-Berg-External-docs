@@ -1,3 +1,0 @@
-# What benefits does Horsetail Herb Powder provide in the Hair Formula?
-
-Horsetail herb powder (whole plant) Horsetail herb powder, derived from the whole plant, is rich in silica and other minerals, offering potential benefits for hair health: Hair Strength: Silica is a natural element found in hair that contributes to its strength and flexibility. Horsetail is a plant known to be a rich source of silica. Hair Growth: Silica is believed to contribute to the development of healthy hair follicles. Horsetail is a source of silica and also contains selenium, a mineral with antioxidant properties. Hair Texture and Shine: Horsetail contains various minerals, including silica, which is a natural component of hair.

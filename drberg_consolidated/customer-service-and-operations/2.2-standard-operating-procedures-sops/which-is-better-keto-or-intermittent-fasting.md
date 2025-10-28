@@ -1,3 +1,0 @@
-# Which is better: keto or intermittent fasting?
-
-The keto diet is a low-carb diet that allows no more than 50g of carbs to be consumed in a day. Intermittent fasting involves windows of time when you consume no food at all. This has a more powerful impact on health compared to the keto diet alone. Fasting significantly increases ketone levels, enhances genes related to survival, anti-aging, and longevity, and promotes greater autophagy. However, combining intermittent fasting with the keto diet can maximize the benefits of both, making it easier to achieve health and weight loss goals more effectively.https://hls-player.drberg.com/asset?path=migrated-assets/fasting-vs-keto-whats-better

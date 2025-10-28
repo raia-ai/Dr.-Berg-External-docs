@@ -1,3 +1,0 @@
-# What should I do if my doctor advises against doing keto?
-
-If your doctor has advised against the ketogenic diet, it is important to prioritize their recommendations. Consider following the prescribed dietary guidelines for at least a month to evaluate how you feel and how your body responds. This approach will provide you with valuable insights into your health and may help you make informed decisions moving forward. After this period, you can discuss your experiences and any potential dietary changes with your healthcare provider.

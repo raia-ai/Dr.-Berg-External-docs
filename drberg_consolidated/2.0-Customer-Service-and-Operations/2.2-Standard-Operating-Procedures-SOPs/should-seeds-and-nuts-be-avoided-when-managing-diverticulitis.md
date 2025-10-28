@@ -1,3 +1,0 @@
-# Should seeds and nuts be avoided when managing diverticulitis?
-
-Diverticulitis involves inflammation in the colon's diverticula, not caused by seeds or nuts but rather by inflammatory foods like grains, bread, pasta, and certain oils. Insulin resistance exacerbates the condition. Adopting a ketogenic diet and intermittent fasting can reduce colon inflammation and symptoms. Beneficial foods include dark leafy vegetables, wheatgrass juice powder, cabbage, and fermented vegetables.https://hls-player.drberg.com/asset?path=migrated-assets/should-i-avoid-seeds-nuts-with-diverticulitis-drberg

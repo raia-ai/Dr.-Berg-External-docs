@@ -1,3 +1,0 @@
-# What causes a hunched or stooped posture?
-
-If your posture is hunched and stooped this can have nutritional reasons behind it, mainly a vitamin D deficiency. In addition to restoring the amount of vitamin D you can also do stretch techniques.Cause #1: vitamin D deficiencyVitamin D is a very important vitamin for our posture and the healthy function of our bones. Vitamin D alone increases the absorption of calcium (vitally needed for the development of our bones) by 20 times. If you are deficient in this vitamin, stooped posture can be one of the symptoms.https://hls-player.drberg.com/asset?path=migrated-assets/is-your-poor-posture-linked-to-vitamin-d-deficiency-drberg

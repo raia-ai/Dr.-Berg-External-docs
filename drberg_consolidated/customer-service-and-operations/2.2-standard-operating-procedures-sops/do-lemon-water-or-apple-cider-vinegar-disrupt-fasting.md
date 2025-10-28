@@ -1,3 +1,0 @@
-# Do lemon water or apple cider vinegar disrupt fasting?
-
-No, lemon water and apple cider vinegar typically do not break a fast. Apple cider vinegar can even contribute to ketosis, as it can be utilized as a fuel source. Therefore, incorporating apple cider vinegar into your water may actually support energy levels during fasting.https://hls-player.drberg.com/asset?path=migrated-assets/lemon-water-is-essential-for-fasting

@@ -1,3 +1,0 @@
-# How long can I safely take the Probiotic with Prebiotic Blend?
-
-Someone who has been on a high-carb diet may benefit from taking probiotics for 3 months. We recommend cycling probiotics for a month and then taking a month-long break to prevent your body from becoming dependent. Listen to your body. If your mood and/or energy decrease when you are not taking the product, you may benefit from taking it regularly.

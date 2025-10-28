@@ -1,3 +1,0 @@
-# What can cause persistent bad breath?
-
-Combatting Bad BreathBad breath often stems from fungal and mold presence in the mouth, which can disrupt the balance of good bacteria.Bad Breath on KetoDuring ketosis, a fruity acetone-like smell (similar to nail polish remover) may arise, indicating your body is adapting to fat burning.https://hls-player.drberg.com/asset?path=migrated-assets/why-does-my-breath-smell-like-acetone-on-keto-diet-drberg-on-bad-keto-breathhttps://hls-player.drberg.com/asset?path=migrated-assets/bad-breath-cure-with-oil-of-oregano-drberg

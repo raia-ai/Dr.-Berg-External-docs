@@ -1,3 +1,0 @@
-# What are the worst ingredients to avoid on a keto diet?
-
-The worst keto ingredients (dirty keto):1. Corn Most corn is GMO2. Yogurt Contains a lot of sugar3. Commercial chicken Is processed and fed grains 4. Processed meatContains nitrates, hidden sugar, may contain MSG, is not grass-fed5. Processed cheeseIs processed and not grass-fed6. SpinachIs loaded with oxalates 7. Nuts (almonds)Almonds are loaded with oxalates 8. Vegetable oilsAre typically GMO https://hls-player.drberg.com/asset?path=migrated-assets/9-bad-keto-food-ingredients-to-avoid-non-keto-friendly-foods-drberg

@@ -1,3 +1,0 @@
-# What vitamin deficiencies are associated with dry or oily hair?
-
-Sebaceous Gland Function and Hair HealthSebaceous Glands:- Produce sebum to protect skin and hair.Dry Hair:- Cause: Deficiency in vitamins A, D, and E.- Remedies: - Virgin cod liver oil. - Purified bile salts if needed. - Leafy greens, nuts, and seeds for vitamin E.Oily Hair:- Cause: Zinc deficiency, high insulin levels (e.g., PCOS).- Remedies: - Healthy Keto® and intermittent fasting. - Zinc-rich foods: seafood, oysters, red meat, liver. - Address digestive issues, avoid grains and alcohol.https://hls-player.drberg.com/asset?path=migrated-assets/vitamin-deficiencies-that-causes-dry-or-oily-hair-drberg

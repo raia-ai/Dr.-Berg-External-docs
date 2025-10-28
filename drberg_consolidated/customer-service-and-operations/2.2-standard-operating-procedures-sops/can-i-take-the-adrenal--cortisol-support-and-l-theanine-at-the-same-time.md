@@ -1,3 +1,0 @@
-# Can I take the Adrenal & Cortisol Support and L-Theanine at the same time?
-
-When starting Dr. Berg's Adrenal & Cortisol Support and L-Theanine Adrenal Support, it's recommended to introduce each supplement gradually. Begin with one and monitor how your body responds. If you experience no adverse reactions, you can then add the second supplement. If you continue to feel well while taking both, it's likely safe to continue using them together.

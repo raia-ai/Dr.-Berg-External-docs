@@ -1,3 +1,0 @@
-# What benefits does vitamin K in Whole Food Multivitamin?
-
-Why Vitamin K (fruit & vegetable sourced) is beneficial in our Whole Food Multivitamin.Vitamin K, sourced from fruits and vegetables in a whole food multivitamin, offers several benefits due to its natural form and the accompanying phytonutrients: Naturally Sourced Sourced from plants, this form of Vitamin K is readily absorbed and utilized by the body. Natural Source of Vitamin K: Our whole food multivitamin includes Vitamin K1 sourced from fruits and vegetables, offering a natural approach to supplementation.

@@ -1,3 +1,0 @@
-# Which types of dairy should be avoided for better digestion?
-
-Many people believe they have lactose intolerance or are allergic to all dairy products. However, often the abdominal pain, bloating, gas, nausea, and diarrhea people experience is actually a result of the specific casein protein in the dairy, not lactose.A1 casein protein in milk is often the cause of discomfort when consuming dairy, whereas consuming dairy with the A2 protein casein can leave people unharmed.• A1 – Increases inflammation, found in the most commonly used dairy cows.• A2 – Better to consume, this form of casein protein can be found in goat and sheep dairy products.https://hls-player.drberg.com/asset?path=migrated-assets/best-dairy-to-avoid-digestive-stress-lactose-intolerance-drberg

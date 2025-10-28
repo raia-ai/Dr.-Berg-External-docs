@@ -1,3 +1,0 @@
-# Is it necessary to rest between exercises?
-
-Muscle growth doesn't happen during your workouts; it happens during rest and recovery. When you exercise, you're breaking down your muscle tissue. Your body needs time to repair this damage and build new muscle tissue stronger than before.Aim for 7-9 hours of quality sleep each night. During sleep, your body releases growth hormone, which is essential for muscle growth and repair. In addition to sleep, incorporate rest days into your training program.Rest days allow your muscles to fully recover and rebuild.

@@ -1,3 +1,0 @@
-# Are nuts a healthy and safe option for snacking?
-
-It seems like nuts would be a good snack because they are low-carb, high-fat, and have moderate protein. 1 oz. of nuts = • 14.2 g of fat • 6g of protein • 6.1g of carbs • 3.6g of fiber • 2.5g of net carbsThe problem with having nuts as a snack is the word “snack.” I believe consuming snacks is never a good thing. Snacking is bad because it stimulates something called GIP.A few things to know about GIP: • It stimulates insulin • It stimulates fat accumulation • It stimulates appetite This is why intermittent fasting is so vitally important not just for your weight but for your overall health. It’s fine to consume nuts. Just be sure to have them with a meal or right after a meal—not as a snack.

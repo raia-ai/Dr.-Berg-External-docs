@@ -1,3 +1,0 @@
-# What are the best strategies for maintaining my weight?
-
-To maintain your weight, it's important not to make drastic changes to your routine. However, if you find yourself losing too much weight, consider increasing your fat intake and slightly raising your carbs, while staying under 50 grams. As your health improves and insulin resistance decreases, you may have more flexibility in your diet. Occasionally testing how your body responds to going off-plan can offer insight into your tolerance, but always ensure you can easily return to your routine. The healthier you are, the more flexibility you have.

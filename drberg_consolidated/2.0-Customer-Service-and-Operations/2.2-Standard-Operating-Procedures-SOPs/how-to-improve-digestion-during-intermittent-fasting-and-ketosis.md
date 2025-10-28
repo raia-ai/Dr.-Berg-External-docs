@@ -1,3 +1,0 @@
-# How to improve digestion during intermittent fasting and ketosis?
-
-If you eat two meals a day, have protein and fat for the first meal and vegetables and salad for the second. Combining everything can be hard on the digestive system. For those eating one meal a day, eat your protein first, wait an hour, then eat your salad.https://hls-player.drberg.com/asset?path=migrated-assets/quick-tips-on-keto-diet-and-intermittent-fasting-for-better-digestion-in-1-minute-drberg

@@ -1,3 +1,0 @@
-# Why did Dr. Berg use gelatin capsules in L-Theanine Adrenal Support instead of vegetable capsules?
-
-L-Theanine Adrenal Support - Gelatin Capsule Gelatin capsules offer several benefits for delivering supplements: Convenience and Ease of Swallowing: Gelatin capsules are typically smooth and easy to swallow. Tasteless and Odorless: Gelatin itself has no taste or odor, which masks any unpleasant flavors or smells of the supplement ingredients. This makes them more palatable for many users.

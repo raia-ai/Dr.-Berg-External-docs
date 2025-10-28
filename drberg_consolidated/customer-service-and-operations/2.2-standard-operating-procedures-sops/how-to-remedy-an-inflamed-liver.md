@@ -1,3 +1,0 @@
-# How to remedy an inflamed liver?
-
-What you could do if you have an inflamed liver: 1. Take milk thistle (500mg per day) 2. Take vitamin D3 (10,000-20,000+ IUs per day) 3. Do intermittent fasting (at least 18 hours per day) 4. TUDCA (2 in the morning and 2 in the afternoon on an empty stomach) 5. Take tocotrienols (300mg with a meal) 6. Take selenium (200mcg) https://hls-player.drberg.com/asset?path=migrated-assets/seven-remedies-for-an-inflamed-liver

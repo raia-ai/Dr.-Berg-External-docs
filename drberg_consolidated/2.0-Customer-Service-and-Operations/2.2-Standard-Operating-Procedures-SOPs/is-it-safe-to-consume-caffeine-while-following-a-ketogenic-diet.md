@@ -1,3 +1,0 @@
-# Is it safe to consume caffeine while following a ketogenic diet?
-
-One small coffee is fine. However coffee is the 3rd most sprayed crop in the world so it is always us organic. Also if you put cream in it - use grass-fed cream. If you sweeten it, add xylitol (non-GMO). Decaffeinated: used water filtered because this too could add more chemicals. Adding too much coffee can stimulate the adrenals to add more cortisol thus slowing your ketosis.https://hls-player.drberg.com/asset?path=migrated-assets/is-coffee-okay-on-keto-drberg-on-caffeine-ketosis

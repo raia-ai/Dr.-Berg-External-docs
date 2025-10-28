@@ -1,3 +1,0 @@
-# Can intermittent fasting be effective while following a high-carb diet?
-
-Intermittent fasting can be problematic if you have hypoglycemia (low blood sugar). Without regular meals, your blood sugar drops, straining your brain and nervous system. This leads to feeling grouchy, moody, irritable, and other symptoms of low blood sugar.A safer approach is to adapt to a ketogenic diet first. This helps your body use ketones for energy. Then, gradually transition into intermittent fasting:Start with 3 meals, no snacks.Slowly delay breakfast each day.Aim to sustain energy between meals without your blood sugar crashing.https://hls-player.drberg.com/asset?path=migrated-assets/never-do-intermittent-fasting-on-high-carb-diet-drberg

@@ -1,3 +1,0 @@
-# Does eating food boost metabolism?
-
-The answer is no. Eating does not stimulate metabolism, and it will not help you lose weight. Every time you eat any type of food, you’re going to trigger insulin to some degree. That’s why you don’t want to snack or have frequent meals. When you’re insulin goes up, it’s going to force the blood sugars down. Now, you’re going to be more hungry, and you’re going to crave carbs and sweets.

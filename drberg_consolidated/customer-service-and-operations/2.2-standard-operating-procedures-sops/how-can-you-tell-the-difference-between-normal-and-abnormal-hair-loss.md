@@ -1,3 +1,0 @@
-# How can you tell the difference between normal and abnormal hair loss?
-
-The life cycle of a hair is about 2-5 years. In a normal situation, an average person will lose 50-100 strands of hair every day.If you run your fingers through your hair with a gentle tug, you should see between about 1-10 hairs in your hand—this is normal. But, if you keep running your fingers in the same spot and your hair keeps coming out, there are several reasons why this could be happening.Potential causes of hair loss:• A hormonal change (high estrogen, low progesterone, high DHT, low thyroid, high cortisol)• Certain medications• Lupus• Nutrient deficiencieshttps://hls-player.drberg.com/asset?path=migrated-assets/normal-hair-loss-vsabnormal-hair-loss

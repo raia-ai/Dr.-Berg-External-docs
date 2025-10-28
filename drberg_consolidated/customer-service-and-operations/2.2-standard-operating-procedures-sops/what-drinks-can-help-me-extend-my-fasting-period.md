@@ -1,3 +1,0 @@
-# What drinks can help me extend my fasting period?
-
-Recommendation: Mix ¼ cup of ginger, 1 lemon, and 12 oz. of water. This combination of ingredients provides many benefits for someone who is fasting. Ginger provides antioxidants, reduces inflammation, supports the immune system, alleviates nausea and gas, helps with motion sickness, lowers insulin, and decreases cholesterol, blood pressure, and hunger. Adding lemon, rich in vitamin C, helps reduce the risk of kidney stones by combining citrates with oxalates during intermittent fasting and ketosis.https://hls-player.drberg.com/asset?path=migrated-assets/use-ginger-lemon-water-to-do-intermittent-fasting-longer-drberg

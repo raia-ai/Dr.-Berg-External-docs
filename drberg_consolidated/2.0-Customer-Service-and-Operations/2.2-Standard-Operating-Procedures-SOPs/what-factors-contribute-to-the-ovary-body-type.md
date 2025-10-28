@@ -1,3 +1,0 @@
-# What factors contribute to the ovary body type?
-
-Causes of estrogen dominance are typically environmental. Pesticides, herbicides, fungicides, and heavy metals all contribute to estrogen dominance. DDT is a pesticide that mimics estrogen. It was banned in the U.S. in 1971. Although it’s been banned, we’re still finding it in fat tissue in Americans, even in children. Although it can’t be used in the United States, it’s used in other countries where we import fruits and vegetables.

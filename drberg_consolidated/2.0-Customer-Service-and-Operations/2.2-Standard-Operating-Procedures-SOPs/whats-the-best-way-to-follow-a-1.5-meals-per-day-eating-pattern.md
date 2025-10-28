@@ -1,3 +1,0 @@
-# What’s the best way to follow a 1.5 meals per day eating pattern?
-
-Having your first meal around 1:00 p.m. and your last, lighter meal between 5:00 and 6:00 p.m. allows for a 19 to 20-hour fasting window each day.During your first meal, focus on consuming heavier proteins and fats. For the second meal, opt for a light salad with healthy fats.Because the second meal is lighter, it has a lesser impact on insulin levels.Eating 1.5 meals per day, rather than just one, helps distribute your caloric intake and ensures you receive all necessary nutrients.This approach provides the benefits of a 20-hour fast while making it easier to meet your nutritional needs.https://hls-player.drberg.com/asset?path=migrated-assets/one-and-a-half-meals-per-day-oaahm-keto

@@ -1,3 +1,0 @@
-# Is ashwagandha safe to take long-term?
-
-The long-term safety of Ashwagandha use is mostly unknown. Ashwagandha is a good supplement to cycle. Use Ashwagandha short-term, up to 3 months, and then stop usage for at least a month and see how you feel. If you are more stressed, your exercise performance is lower, or you experience more pain in your joints, resume Ashwagandha use for a month and see if you begin to experience an improvement. Always take the recommended dose or less. Ashwagandha use, including cycling, should be done under the supervision of a medical healthcare provider.

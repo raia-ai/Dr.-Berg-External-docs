@@ -1,3 +1,0 @@
-# What are signs that I'm not getting enough Vitamin C?
-
-Overall, vitamin C is essential to support your immune system, connective tissue, and capillaries. It’s also a very powerful antioxidant.The top signs of low vitamin C: 1. Bleeding gums 2. Small red and purple dots on your skin 3. Bruising 4. Dry, rough, or scaly skin 5. Chicken skin 6. Nose bleeds 7. Dry, splitting hairThe best sources of vitamin C are foods high in vitamin C or food concentrates.Foods rich in vitamin C: • Lemons • Peppers • Cabbage • Blueberries • Sauerkrauthttps://hls-player.drberg.com/asset?path=migrated-assets/7-ways-to-know-you-have-low-vitamin-c-drberg

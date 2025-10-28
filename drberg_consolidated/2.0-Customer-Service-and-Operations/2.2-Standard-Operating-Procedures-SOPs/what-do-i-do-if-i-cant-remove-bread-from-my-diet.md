@@ -1,3 +1,0 @@
-# What do I do if I can't remove bread from my diet?
-
-Keto-friendly alternatives to bread:Oopsie bread (cloud bread)Bread made of almond flour, cauliflower, chia seed, flaxseed, coconut flour and zucchiniIf you’re craving bread, you’re usually deficient in vitamin B1. Taking nutritional yeast can help reduce the craving.Healthy Keto® and intermittent fasting can also help make your hunger go down, making it easier to avoid bread.https://hls-player.drberg.com/asset?path=migrated-assets/the-healthiest-bread-in-the-world

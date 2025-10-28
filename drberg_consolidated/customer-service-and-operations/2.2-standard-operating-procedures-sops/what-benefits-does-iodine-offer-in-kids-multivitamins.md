@@ -1,3 +1,0 @@
-# What benefits does Iodine offer in Kids Multivitamins?
-
-Kids Multivitamin - Iodine (Sea Kelp) Sea kelp is a type of seaweed that's naturally rich in nutrients. Here are some of the benefits: Rich Source of Iodine: Kelp is a type of seaweed that contains iodine. Vitamins and Minerals: Kelp is a rich source of various vitamins and minerals, including vitamins A, C, E, and K, as well as folate, iron, and zinc. These nutrients contribute to overall health and well-being, supporting various bodily functions. Supports Healthy Immunity: Kelp contains antioxidants with supports a healthy immune response.

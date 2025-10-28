@@ -1,3 +1,0 @@
-# What are the best strategies to calm your mind before bed for better sleep and relaxation?
-
-To calm your mind before bed, consider addressing the balance between your autonomic nervous system's sympathetic (fight-or-flight) and parasympathetic (rest-and-digest) responses, which may be skewed by elevated cortisol levels. Vitamin B1 can be particularly effective in mitigating excessive problem-solving and mental activity that disrupts sleep. By increasing your intake of natural vitamin B1, you may help shift your system toward a more restful state, facilitating better sleep without intrusive thoughts.https://hls-player.drberg.com/asset?path=migrated-assets/drink-1-cup-daily-to-bring-your-stress-to-zero

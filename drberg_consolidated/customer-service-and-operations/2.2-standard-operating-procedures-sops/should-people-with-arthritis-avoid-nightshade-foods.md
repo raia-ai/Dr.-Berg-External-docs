@@ -1,3 +1,0 @@
-# Should people with arthritis avoid nightshade foods?
-
-The answer to this question is No. Unless you are sensitive or allergic to solanine (natural pesticide) then yes you should avoid it. Potato is sprouting or turning green which means it has more of this chemical and you should avoid it. Your body can detoxify solanine naturally. Tomatoes, peppers, and eggplant minus potatoes (high in starch) have high amounts of nutrients, phytonutrients, and anti-inflammatory properties.

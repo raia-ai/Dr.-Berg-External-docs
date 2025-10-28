@@ -1,3 +1,0 @@
-# What is the most effective treatment for an ear infection?
-
-This is a simple and very inexpensive natural ear infection remedy, and it works. All you need to do is take one drop of garlic oil and put it in the ear with the infection before bed. Let it drain into the ear and go to sleep. It may already start to feel better by morning. You can do this each day for about three days. Garlic has incredible anti-yeast and antimicrobial properties that will help kill off the bad microbes and leave the good microbes. https://hls-player.drberg.com/asset?path=migrated-assets/best-natural-remedy-for-ear-infection-drberg

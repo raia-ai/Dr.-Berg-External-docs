@@ -1,3 +1,0 @@
-# Does the Raw Organic Wheatgrass Juice Powder contain aristolochic acid?
-
-The Aristolochic Acid you're concerned about is likely a carcinogenic chemical found in a plant family called birthworts. These plants are native to Europe but also grow wild in parts of Canada and the northeast U.S. Since they prefer temperate, moist climates, it's highly unlikely they are present in our fields or products. Based on this, the risk of contamination is extremely low.

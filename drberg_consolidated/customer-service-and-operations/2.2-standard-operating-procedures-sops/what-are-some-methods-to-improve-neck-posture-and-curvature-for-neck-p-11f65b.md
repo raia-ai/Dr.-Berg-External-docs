@@ -1,3 +1,0 @@
-# What are some methods to improve neck posture and curvature for neck pain relief?
-
-In this video, Dr. Berg discusses how injuries like whiplash can damage the natural curvature of your neck, potentially leading to discomfort. He also demonstrates a helpful stretch with his massage tool to help restore healthy neck alignment.https://www.youtube.com/watch?v=abyNXeKF0kEDr. Berg's Massage Tool - https://shop.drberg.com/product/massage-tool

@@ -1,3 +1,0 @@
-# What benefits does sesame seed oil provide in Scalp & Hair Serum?
-
-Scalp & Hair Serum - Sesame Seed Oil (Sesamum indicum) Traditional hair care: Sesame seed oil has been traditionally used to support healthy-looking hair. May enhance hair's appearance: Sesame seed oil may help improve the look and feel of your hair, leaving it softer, smoother, and easier to manage. May support scalp comfort: Sesame seed oil may help support a healthy and comfortable scalp environment. Traditional hair care: Sesame seed oil has been traditionally used to maintain healthy-looking hair. May boost shine: This ingredient may help boost your hair's natural shine and radiance.

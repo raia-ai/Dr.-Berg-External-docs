@@ -1,3 +1,0 @@
-# Does Advanced Immune Support supplement contain copper?
-
-Only zinc in quantities of 60mg or more a day over a long period of time can possibly cause copper deficiencies. It is not advised to take copper and zinc together as the zinc can automatically cancel out the copper. It is better to space out the supplementation of zinc, copper, iron, and other phosphorous supplements to be able to absorb them properly.

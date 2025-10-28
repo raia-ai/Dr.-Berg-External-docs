@@ -1,3 +1,0 @@
-# What effective strategies can help prevent dehydration caused by alcohol consumption?
-
-To prevent alcohol dehydration, it’s recommended to drink water, replenish electrolytes with a high-potassium electrolyte powder, avoid drinking alcohol on an empty stomach, and limit alcohol consumption to no more than two drinks per day if you are male and one drink if you are female. https://hls-player.drberg.com/asset?path=migrated-assets/drinking-water-is-not-the-best-way-to-stay-hydrated

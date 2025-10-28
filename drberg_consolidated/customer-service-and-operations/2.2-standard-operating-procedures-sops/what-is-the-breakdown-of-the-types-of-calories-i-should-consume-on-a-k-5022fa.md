@@ -1,3 +1,0 @@
-# What is the breakdown of the types of calories I should consume on a ketogenic diet?
-
-Dr. Berg suggests a ratio of 70% fat, 20% protein, 5% clean carbs, and 5% other carbs. He also recommends consuming 7 to 10 cups of leafy salad vegetables daily. If you’re including other vegetables like broccoli or Brussels sprouts, you can reduce this to about 3.5 to 4 cups.https://hls-player.drberg.com/asset?path=migrated-assets/how-many-calories-should-i-eat-on-keto-diet-the-simple-formula-drberg

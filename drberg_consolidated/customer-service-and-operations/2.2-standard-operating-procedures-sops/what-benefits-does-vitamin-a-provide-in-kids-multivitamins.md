@@ -1,3 +1,0 @@
-# What benefits does Vitamin A provide in Kids Multivitamins?
-
-Kids Multivitamin - Vitamin A (100% as beta-carotene) (vegetable sourced) This children's supplement contains vitamin A in the form of beta-carotene, which is a natural precursor to vitamin A found in many vegetables. This children's supplement contains vitamin A, which is an important nutrient for the body. Vitamin A is an important nutrient that plays a role in the immune system

@@ -1,3 +1,0 @@
-# What is the most effective treatment for managing and relieving hemorrhoids?
-
-Hemorrhoids are basically dilated and inflamed veins at the end of your rectum. It can be very painful. What can help with this?Collinsonia root. This can be taken as tea but is recommended as a pill. This basically puts the tone back in the vein and improves circulation. The deeper cause of this condition would be deficient of the vitamin C complex. People can have this condition from birth from a mechanical standpoint, such as pregnancy.https://hls-player.drberg.com/asset?path=migrated-assets/hemorrhoids-treatment-best-remedy-cure-for-hemorrhoids-by-drberg

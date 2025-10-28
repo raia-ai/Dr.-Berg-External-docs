@@ -1,3 +1,0 @@
-# Is it okay to drink alcohol while fasting?
-
-No. Alcohol does not turn to sugar – so is alcohol keto-friendly? Despite the fact that it doesn’t turn to sugar or raise insulin levels, the alcohol calories will turn into fat. Within one minute, it’s already into your bloodstream and up to your brain.https://hls-player.drberg.com/asset?path=migrated-assets/how-much-alcohol-will-stop-weight-loss-and-ketosis-drberg

@@ -1,3 +1,0 @@
-# What could be causing a strange taste in my mouth while on a keto diet?
-
-A weird taste in your mouth could be due to:1. Oral thrush/candida - Remedies: Probiotics, apple cider vinegar, sea salt rinse2. Pregnancy (decreased zinc) - Remedies: Zinc supplements, zinc-rich foods3. Menopause - Remedy: Bile salts4. Diabetes - Remedies: Benfotiamine, Healthy Keto® diet, fasting5. Liver problems - Remedies: Selenium, milk thistle, fasting6. Low zinc - Remedies: Zinc supplements, zinc-rich foods7. Acid reflux - Remedies: Apple cider vinegar, betaine hydrochloride8. Sinus infection - Remedy: Nasal rinse9. Transition to a Healthy Keto diet - Normal during adaptation phase.https://hls-player.drberg.com/asset?path=migrated-assets/weird-taste-in-your-mouth-9-causes

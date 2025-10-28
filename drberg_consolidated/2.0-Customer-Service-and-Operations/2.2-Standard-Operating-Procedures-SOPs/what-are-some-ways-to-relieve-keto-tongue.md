@@ -1,3 +1,0 @@
-# What are some ways to relieve keto tongue?
-
-Taking enough vitamins and also eating the healthy version of Keto with vegetables. But I would also try to get your carbs down low, but also at the same time, drink more fluids and also make sure you have enough Omega three fatty acids.https://hls-player.drberg.com/asset?path=migrated-assets/why-dry-mouth-on-keto-cotton-mouth-drberg-on-xerostomia-dry-mouth-causes

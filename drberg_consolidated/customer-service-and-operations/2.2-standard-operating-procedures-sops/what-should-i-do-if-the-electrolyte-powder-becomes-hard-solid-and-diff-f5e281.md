@@ -1,3 +1,0 @@
-# What should I do if the Electrolyte Powder becomes hard, solid, and difficult to scoop?
-
-We apologize that your electrolyte powder hardened and became difficult to scoop. This can happen if the tub is accidentally left open for a while or if moisture gets inside. To prevent this in the future, we recommend storing your electrolyte powder in a cool, dry place.Here are a few solutions to help you use your current powder:Gently break it up: You can try using a clean spoon or butter knife to carefully break up the clumps.However, for the best experience and easiest scooping, a fresh tub of electrolyte powder might be best.

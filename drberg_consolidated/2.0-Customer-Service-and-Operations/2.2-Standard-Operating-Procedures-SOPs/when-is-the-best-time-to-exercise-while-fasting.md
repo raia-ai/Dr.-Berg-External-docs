@@ -1,3 +1,0 @@
-# When is the best time to exercise while fasting?
-
-When integrating exercise with fasting, listen to your body and assess how you feel. It's crucial to adapt to fasting before adding intense workouts. Some may benefit from timing exercise around meals or increasing protein intake, while others might need an extra meal for energy. Ensure you’re well-adjusted to fasting before engaging in physical activity.

@@ -1,3 +1,0 @@
-# What are the key benefits of unsulphured blackstrap molasses?
-
-Blackstrap molasses is a “waste” product resulting from sugarcane processing. In processing they create a refined product which is pure white or brown sugar and the molasses is what’s left. Interestingly enough, molasses is where you have all the nutrients.BenefitsRich in nutrientsB vitaminspotassiumzincsilicaironmineralstrace mineralsGood for women specificallywho have anemiawho have fibroid issueswho have heavy bleeding during their periodsGood for kids who are hyperactive and consume a lot of sugarGood for certain types of blood sugar issueshttps://hls-player.drberg.com/asset?path=migrated-assets/blackstrap-molasses-benefits-explained-by-drberg

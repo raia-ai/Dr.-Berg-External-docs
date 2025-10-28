@@ -1,3 +1,0 @@
-# What benefits does Vitamin B5 provide in Kids Multivitamins?
-
-Kids Multivitamin - Vitamin B5 (Pantothenic acid) (Calcium pantothenate) Pantothenic acid, also known as vitamin B5. Converting food to energy: Pantothenic acid helps the body convert food into energy. Hormones: Pantothenic acid is involved in the production of hormones. Healthy Skin and Nails: Pantothenic acid supports the health of the skin and hair. Well-Being: Pantothenic acid contributes to overall health and well-being.

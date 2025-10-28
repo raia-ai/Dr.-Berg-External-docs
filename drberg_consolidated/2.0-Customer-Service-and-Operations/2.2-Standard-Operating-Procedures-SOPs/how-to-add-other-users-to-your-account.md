@@ -1,3 +1,0 @@
-# How to add other users to your account?
-
-Here's how to add a new user to your HRV - Stress & Recovery AnalyzerGo to the Log-In Screen: Open the app or website and navigate to the login page.Click on "Register": Look for a "Register" or "Sign Up" button and click on it.Choose User Type: Select the appropriate option: "I am a professional user" or "I am a home user."Complete Account Information: Fill in all the required details, including name, email address, and password. Make sure the new user's email and password are unique and not the same as yours.Account Limit: You can create up to six different accounts.If you have any trouble, don't hesitate to reach out for assistance!

@@ -1,3 +1,0 @@
-# What is the potential amount of weight loss on a ketogenic diet?
-
-It is possible to lose 0.5 lbs (0.227 kg) per day while fasting, which amounts to 3.5 lbs (1.58 kg) per week in a best-case scenario. Initially, you might lose 7 to 15 lbs in the first week, mostly water weight from glycogen. Glycogen, stored with 3 to 3.8 grams of water per gram, is quickly used up during fasting, causing significant water loss.Factors affecting weight loss during fasting include:- Age- Activity level- Gender- Metabolism- Overall health- Diet- Stress levelhttps://hls-player.drberg.com/asset?path=migrated-assets/overcoming-keto-plateau-after-6-8-weeks-drberg

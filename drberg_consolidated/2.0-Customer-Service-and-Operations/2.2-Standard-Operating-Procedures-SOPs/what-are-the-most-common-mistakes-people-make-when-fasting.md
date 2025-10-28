@@ -1,3 +1,0 @@
-# What are the most common mistakes people make when fasting?
-
-Common mistakes when practicing fasting include transitioning too quickly before the body has adapted, unknowingly consuming too many carbohydrates, following plans like the 5-2 method (eating normally for five days and reducing calorie intake to a quarter for two days), and adhering to low-calorie, low-nutrient diets. Additionally, using low-quality ingredients, not getting enough potassium, B vitamins, or trace minerals, neglecting essential nutrients like B12, DHA, zinc, or iron on a vegan diet, and consuming low-fat foods can all impede progress.https://hls-player.drberg.com/asset?path=migrated-assets/youtube-videos-the-top-7-errors-people-make

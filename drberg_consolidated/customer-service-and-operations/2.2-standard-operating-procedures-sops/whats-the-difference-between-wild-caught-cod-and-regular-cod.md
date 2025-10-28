@@ -1,3 +1,0 @@
-# What's the difference between wild-caught cod and regular cod?
-
-When comparing "wild caught cod" to simply "cod," the key difference is that "wild caught cod" refers to cod that was caught in the wild ocean, while "cod" could potentially include both wild caught and farmed cod, meaning fish raised in controlled aquaculture environments; generally, "wild caught" is considered to be a higher quality option due to its natural diet and movement in the open ocean. Dr. Berg used will-caught cod for the Omega 3 Cod Liver Fish Oil supplement.

@@ -1,3 +1,0 @@
-# What are the nutritional benefits of grass-fed butter?
-
-BENEFITS: 1. Essential fatty acids 2. Fat-soluble vitamins - K2 (takes calcium out of the soft tissues and arteries. Vitamin A is also good for the immune system, the eyes, and the skin. 3. CLA (conjugated linoleic acid) - great for the cardiovascular system and weight loss. 4. Omega 3 5. MCTs - medium chain triglycerides.https://hls-player.drberg.com/asset?path=migrated-assets/5-amazing-health-benefits-of-grass-fed-butter-drberg
