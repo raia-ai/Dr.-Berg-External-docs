@@ -77,12 +77,6 @@ Reference these pages when customers have questions about the shopping experienc
 
 ***
 
-## \[SHOP\_MISC] # Buy with Prime – Dr. Berg Fast, free delivery with your Amazon Prime membership \*\*Save
-
-\[SHOP\_MISC] # Buy with Prime – Dr. Berg Fast, free delivery with your Amazon Prime membership **Save 10% off using the code BWP10** View as List Grid \* \* \* ## FiltersFilter & Sort Showing 33 filtered results \* Use code SK25 to save 25% \* Use code **EIS25** to save 25% Learn more: https://shop.drberg.com/collections/buy-with-prime
-
-***
-
 ## \[SHOP\_MISC] # Certified Halal Kosher – Dr. Berg FREE STANDARD SHIPPING ON ORDERS OF $160 OR MORE\*
 
 \[SHOP\_MISC] # Certified Halal Kosher – Dr. Berg FREE STANDARD SHIPPING ON ORDERS OF $160 OR MORE\* Learn more: https://shop.drberg.com/collections/certified-halal-kosher
@@ -467,12 +461,6 @@ Reference these pages when customers have questions about the shopping experienc
 
 ***
 
-## \[SHOP\_MISC] # Save 10% on These Top Products – Dr. Berg (5 products) Sort by View as List Grid \* \* \*
-
-\[SHOP\_MISC] # Save 10% on These Top Products – Dr. Berg (5 products) Sort by View as List Grid \* \* \* ## FiltersFilter & Sort Sort by \* Best selling \* Alphabetically, A-Z \* Alphabetically, Z-A \* Price, low to high \* Price, high to low \* Date, old to new \* Date, new to old Flavor \* Cucumber Lime (1) \* Grape (1) \* Lemonade (1) \* Orange (1) \* Pomegranate Cherry (1) \* Raspberry Lemon (2) \* Strawberry Lemonade (1) \* Tangerine (1) \* Tropical (1) Form \* Capsules (3) \* Powder (2) Potency \* 10,000 IU (1) \* 5000 IU (1) \* 325 mg (1) Size \* 60 Capsules (2) \* 90 Capsules (1) \* 120 Capsules (1) \* 235 g Powder (1) \* 1.6 lbs (1) \* 10.23 oz (1) \* 10.29 oz (1) \* 10.55 oz (1) \* 10.58 oz (1) \* 11.6 oz (1) \* 11.11 oz (1) \* 20 oz (1) Diet Type \* Keto (5) Contains No \* Preservatives (4) Certification \* non-GMO (1) Servings \* 45 (1) \* 50 (2) \* 60 (2) \* 100 (1) \* 120 (1) \* Best Seller [Electrolyte Powder with 1000 mg of Potassium with Magnesium - Raspberry & Lemon - 100 Servings](https://shop.drberg.com/products/electrolyte-powder-with-1-000-mg?variant=40274185584712) In stock **$44.99 USD** ~~58.37 USD~~ Save 10% with code TOP5 [View details](https://shop.drberg.com/products/electrolyte-powder-with-1-000-mg?variant=40274185584712) \* Best Seller [Electrolyte Powder with 1000 mg of Potassium with Magnesium - Lemonade - 100 Servings](https://shop.drberg.com/products/electrolyte-powder-with-1-000-mg?variant=40255257772104) In stock **$44.99 USD** ~~$58.37 USD~~ Save 10% with code TOP5 [View details](https://shop.drberg.com/products/electrolyte-powder-with-1-000-mg) \* Best Seller [D3 & K2 Vitamin](https://shop.drberg.com/products/d3-k2-vitamin) 4.8 out of 5 star rating (1663) In stock **$14.99 USD - $34.99 USD** Save 10% with code TOP5 [View details](https://shop.drberg.com/products/d3-k2-vitamin) \* Best Seller [Gallbladder Formula Extra Strength with Ox Bile and Digestive Enzymes- 90 Vegetable Capsules](https://shop.drberg.com/products/gallbladder-formula-extra-strength-90-capsules) 4.7 out of 5 star rating (1663) In stock new price **$36.99 USD** original price ~~$47.29 USD~~ Save 10% with code TOP5 [View details](https://shop.drberg.com/products/gallbladder-formula-extra-strength-90-capsules) \* Best Seller [Natural Vitamin B1+ Allithiamine with B Complex Blend - 60 Capsules](https://shop.drberg.com/products/natural-vitamin-b1-with-b-complex-blend-60-capsules) 4.7 out of 5 star rating (430) In stock new price **$23.99 USD** original price ~~$25.99 USD~~ Save 10% with code TOP5 [View details](https://shop.drberg.com/products/natural-vitamin-b1-with-b-complex-blend-60-capsules) \* New Product [Magnesium Powder Drink Raspberry Lemon Flavor – 325 mg of Magnesium Glycinate per serving – 50 servings](https://shop.drberg.com/products/magnesium-powder) 4.4 out of 5 star rating (67) In stock new price **$29.99 USD** original price ~~$35.99 USD~~ Save 10% with code TOP5 [View details](https://shop.drberg.com/products/magnesium-powder) Learn more: https://shop.drberg.com/collections/save-10-on-these-top-products
-
-***
-
 ## \[SHOP\_MISC] # Say Hello To Your New Favorites – Dr. Berg FREE STANDARD SHIPPING ON ORDERS OF $160 OR
 
 \[SHOP\_MISC] # Say Hello To Your New Favorites – Dr. Berg FREE STANDARD SHIPPING ON ORDERS OF $160 OR MORE\* Learn more: https://shop.drberg.com/collections/your-new-favorites
@@ -491,12 +479,6 @@ Reference these pages when customers have questions about the shopping experienc
 
 ***
 
-## \[SHOP\_MISC] # Shop all Dr. Berg Products – Page 2 Science-backed, high-quality products to empower y
-
-\[SHOP\_MISC] # Shop all Dr. Berg Products – Page 2 Science-backed, high-quality products to empower your health naturally. 80 products in All Products View as List Grid \* \* \* ## FiltersFilter & Sort Showing 80 filtered results \* Use code SK25 to save 25% \* Use code **EIS25** to save 25% Learn more: https://shop.drberg.com/collections/all-dr-berg-products?page=2
-
-***
-
 ## \[SHOP\_MISC] # Shop all Dr. Berg Products – Page 3 Science-backed, high-quality products to empower y
 
 \[SHOP\_MISC] # Shop all Dr. Berg Products – Page 3 Science-backed, high-quality products to empower your health naturally. 80 products in All Products View as List Grid \* \* \* ## FiltersFilter & Sort Showing 80 filtered results \* [Energy Bundle](https://shop.drberg.com/products/energy-bundle-d3-k2-and-wholefood-multivitamin) In stock new price **$64.78 USD** original price ~~$88.70 USD~~ \* [Stress Kit](https://shop.drberg.com/products/stress-kit) In stock new price **$102.57 USD** original price ~~$154.85 USD~~ \* [Keto Combo](https://shop.drberg.com/products/keto-combo-electrolyte-powder-raspberry-lemon-and-nutritional-yeast-tablets) In stock new price **$59.38 USD** original price ~~$85.54 USD~~ Learn more: https://shop.drberg.com/collections/all-dr-berg-products?page=3
@@ -506,12 +488,6 @@ Reference these pages when customers have questions about the shopping experienc
 ## \[SHOP\_MISC] # Shop all Dr. Berg Products – Page 4 Science-backed, high-quality products to empower y
 
 \[SHOP\_MISC] # Shop all Dr. Berg Products – Page 4 Science-backed, high-quality products to empower your health naturally. 80 products in All Products View as List Grid \* \* \* ## FiltersFilter & Sort Showing 80 filtered results Learn more: https://shop.drberg.com/collections/all-dr-berg-products?page=4
-
-***
-
-## \[SHOP\_MISC] # Shop all Dr. Berg Products Science-backed, high-quality products to empower your healt
-
-\[SHOP\_MISC] # Shop all Dr. Berg Products Science-backed, high-quality products to empower your health naturally. 80 products in All Products View as List Grid \* \* \* ## FiltersFilter & Sort Showing 80 filtered results \* Use code **WGL20** to save 20% \* Use code PL15 to save 15% Learn more: https://shop.drberg.com/collections/all-dr-berg-products
 
 ***
 
@@ -557,12 +533,6 @@ Reference these pages when customers have questions about the shopping experienc
 
 ***
 
-## \[SHOP\_MISC] # Sip Your Way Into Summer – Dr. Berg (3 products) 10% Off Select Products View as List
-
-\[SHOP\_MISC] # Sip Your Way Into Summer – Dr. Berg (3 products) 10% Off Select Products View as List Grid \* \* \* ## FiltersFilter & Sort Showing 3 filtered results \* Use code **REFRESH10** to save 10% \* Use code **REFRESH10** to save 10% \* Use code **REFRESH10** to save 10% Learn more: https://shop.drberg.com/collections/sip-your-way-into-summer
-
-***
-
 ## \[SHOP\_MISC] # Sitemap – Dr. Berg FREE STANDARD SHIPPING ON ORDERS OF $160 OR MORE\*
 
 \[SHOP\_MISC] # Sitemap – Dr. Berg FREE STANDARD SHIPPING ON ORDERS OF $160 OR MORE\* Learn more: https://shop.drberg.com/pages/sitemap
@@ -581,21 +551,9 @@ Reference these pages when customers have questions about the shopping experienc
 
 ***
 
-## \[SHOP\_MISC] # Stress Less, Live More! Save 10% with code LS10 – Dr. Berg FREE STANDARD SHIPPING ON O
-
-\[SHOP\_MISC] # Stress Less, Live More! Save 10% with code LS10 – Dr. Berg FREE STANDARD SHIPPING ON ORDERS OF $160 OR MORE\* Learn more: https://shop.drberg.com/collections/stress-less-live-more
-
-***
-
 ## \[SHOP\_MISC] # Stress Support – Dr. Berg FREE STANDARD SHIPPING ON ORDERS OF $160 OR MORE\*
 
 \[SHOP\_MISC] # Stress Support – Dr. Berg FREE STANDARD SHIPPING ON ORDERS OF $160 OR MORE\* Learn more: https://shop.drberg.com/collections/stress-support-products
-
-***
-
-## \[SHOP\_MISC] # Strong Bones, Stronger You! – Dr. Berg (3 products) Limited-time offer: 10% off with d
-
-\[SHOP\_MISC] # Strong Bones, Stronger You! – Dr. Berg (3 products) Limited-time offer: 10% off with discount code **SB10** View as List Grid \* \* \* ## FiltersFilter & Sort Learn more: https://shop.drberg.com/collections/strong-bones-stronger-you
 
 ***
 
