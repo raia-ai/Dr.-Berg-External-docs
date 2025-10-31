@@ -82,3 +82,4 @@
     * [Stress Management](drberg_external_support/4.0-Health-and-Nutrition-Knowledge/4.3-Nutritional-Science/23-stress-management.md)
     * [Nutritional Deficiencies](drberg_external_support/4.0-Health-and-Nutrition-Knowledge/4.3-Nutritional-Science/24-nutritional-deficiencies.md)
     * [Nutrition General](drberg_external_support/4.0-Health-and-Nutrition-Knowledge/4.3-Nutritional-Science/25-nutrition-general.md)
+* [7.0-Health-Knowledge-Base](7.0-health-knowledge-base.md)
