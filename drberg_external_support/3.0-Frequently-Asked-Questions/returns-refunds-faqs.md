@@ -114,11 +114,7 @@ _This document contains 55 frequently asked questions about returns and refunds.
 
 [**Home**](https://support.drberg.com/) **/** [**All Frequently Asked Questions**](https://support.drberg.com/faqs) **/** **Support** **/** How do I contact customer support? You can make a call, live chat, or send an email. \
 Follow this link to connect to Customer Support: [https://support.drberg.com/services](https://support.drberg.com/services) \
-You can also send an email to orders@drberg.com or give us a call at +1 (703) 354-7336.\
-Customer Support Hours:\
-\- Monday through Friday: 8am-10pm EST \
-\- Saturday and Sunday: 9am-6pm EST \
-\- Federal Holidays: 9am-6pm EST
+You can also send an email to orders@drberg.com or give us a call at +1 (703) 354-7336.
 
 **Source:** [https://support.drberg.com/faqs/how-do-i-contact-customer-support](https://support.drberg.com/faqs/how-do-i-contact-customer-support)
 
@@ -476,6 +472,14 @@ Learn more: https://shop.drberg.com/products/daily-immunity-kit
 
 Learn more: https://shop.drberg.com/products/dr-berg-amazing-self-massage-tool
 
-**Source:** [https://shop.drberg.com/products/dr-berg-amazing-self-massage-tool](https://shop.drberg.com/products/dr-berg-amazing-self-massage-tool)
+**Source:** [https://shop.drberg.com/products/dr-berg-amazing-self-massage-tool](https://shop.drberg.com/products/dr-berg-amazing-self-massage-tool)\
+\
+
+
+**FAQ 56: What are customer service hours?**\
+Customer Support Hours:\
+\- Monday through Friday: 8am-10pm EST \
+\- Saturday and Sunday: 9am-6pm EST \
+\- Federal Holidays: 9am-6pm EST
 
 ***
