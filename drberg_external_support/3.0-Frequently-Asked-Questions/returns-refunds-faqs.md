@@ -480,6 +480,9 @@ Learn more: https://shop.drberg.com/products/dr-berg-amazing-self-massage-tool
 Customer Support Hours:\
 \- Monday through Friday: 8am-10pm EST \
 \- Saturday and Sunday: 9am-6pm EST \
-\- Federal Holidays: 9am-6pm EST
+
+
+FAQ 57: Are you open on Federal Holidays?\
+Yes we are open on holidays from 9am - 6pm EST
 
 ***
