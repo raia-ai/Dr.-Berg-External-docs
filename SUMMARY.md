@@ -87,3 +87,5 @@
   * [Intermittent Fasting](7.0-health-knowledge-base/intermittent-fasting.md)
   * [Keto](7.0-health-knowledge-base/keto.md)
   * [Natural Remedies](7.0-health-knowledge-base/natural-remedies.md)
+  * [Nutrition Questions](7.0-health-knowledge-base/nutrition-questions.md)
+  * [Symptoms, Conditions and Causes](7.0-health-knowledge-base/symptoms-conditions-and-causes.md)
